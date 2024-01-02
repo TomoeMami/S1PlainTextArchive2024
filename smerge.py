@@ -33,7 +33,7 @@ def get_dir_files(dir_path):
         result.append(os.path.join(dir_path, i))
     return result
 
-rootdir = "/home/riko/S1PlainTextArchive2023/"
+rootdir = "/home/riko/S1PlainTextArchive2024/"
 rootcat = ["外野","手游专楼","游戏区","漫区","虚拟主播区专楼"]
 
 for cate in rootcat:
