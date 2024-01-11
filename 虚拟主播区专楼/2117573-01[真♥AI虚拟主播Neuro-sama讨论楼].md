@@ -1477,3 +1477,12 @@ Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的
 还记得很久很久以前混V圈斗虫楼时有过万同接可称皇一说，联动除人头，vedalneuro最后合砍2万同接可称龟皇牛皇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我记得去年下半年开始订阅增长就有点陷入停滞了，一直40多w出头，这波终于也盘活了
 
+*****
+
+####  某某某人  
+##### 129#       发表于 2024-1-8 08:09
+
+好像是因為負債事件吸引了不少路人?
+
+另外砍到1s per sub這個給我一種感覺vedal一定要在那天下播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
