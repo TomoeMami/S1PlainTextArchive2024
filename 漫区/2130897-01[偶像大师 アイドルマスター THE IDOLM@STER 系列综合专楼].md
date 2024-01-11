@@ -1357,3 +1357,11 @@ n组开始就没有明显的c了吧
 [通告出來了](https://idolmaster-official.jp/news/01_10447)，石川場自然是延期了。新時間等確定後另行通知。
 <img src="https://tc2.wfhtony.space/images/2024/01/05/34946a35ef2acb8a59794fd94510b064.png" referrerpolicy="no-referrer">
 
+*****
+
+####  QuattroVageena  
+##### 1017#       发表于 2024-1-8 21:56
+
+ash手办到了，很可爱，就是这单脚站立让人很担心
+<img src="https://p.sda1.dev/15/0ebd3f8eaf2dda3a4e994520c21c410b/IMG_CMP_248504936.jpeg" referrerpolicy="no-referrer">
+
