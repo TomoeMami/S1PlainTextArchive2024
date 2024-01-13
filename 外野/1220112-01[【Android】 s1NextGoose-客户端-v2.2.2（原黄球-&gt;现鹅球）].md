@@ -77,3 +77,10 @@
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  cmnewfan  
+##### 1456#       发表于 2024-1-10 23:45
+
+鹅球又不能用了吗？
+
