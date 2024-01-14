@@ -219,3 +219,11 @@ C过去剧情看录像呗<img src="https://static.saraba1st.com/image/smiley/fac
 
 不过这次我确实是服了，西装tama抬一队原皮孔明抬一队这游戏突然变得极其简单。
 
+*****
+
+####  Skyline_R  
+##### 1427#       发表于 2024-1-11 18:51
+
+1周年入坑，零氪，终于拿下第一个100w<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://fc.sinaimg.cn/large/006yXTRoly1hlpvt9qtp1j31hc0u0gtp.jpg" referrerpolicy="no-referrer">
+
