@@ -14,3 +14,36 @@
 
 新年快乐！
 
+*****
+
+####  喜闻乐见  
+##### 3331#         楼主| 发表于 2024-1-11 20:20
+
+很好弹幕
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1hlpydl9c7nj20xc0j2aw3.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ladiesman802  
+##### 3332#       发表于 2024-1-13 13:59
+
+话说纸哥的生日舰长礼物还真是够慢的，叶子的泳装回礼物前几个月都收到了，纸哥的明信片居然还没打印出来，更不说签名了
+
+
+*****
+
+####  ladiesman802  
+##### 3333#       发表于 2024-1-15 02:43
+
+鱼一在微博说的是啥啊，有没有懂哥
+
+
+*****
+
+####  喜闻乐见  
+##### 3334#         楼主| 发表于 2024-1-15 19:06
+
+必是看了贴吧 发微博了 可是没照那个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
