@@ -2615,3 +2615,44 @@ http://www.famitsu.com/news/201612/201233 ...</blockquote>
 
 2024年「暗喻幻想：ReFantazio」计划在世界各地为玩家提供体验的机会，我们期待与所有RPG爱好者见面
 
+*****
+
+####  Piano-Forest  
+##### 154#         楼主| 发表于 2024-1-28 15:36
+
+据说Fantazio这个词是一种叫世界语的语言
+
+这次游戏以世界语来命名，而游戏中像PV里面彷佛异世界语言的文字实际上也是世界语
+
+世界语（Esperanto，又称“希望语”，因为Esperanto在该语言中的意思为“希望者”）
+
+用了该语言的体系，但有改动并未完全照搬
+
+暗喻幻想中的异世界文字，被我破译出来了：
+[https://b23.tv/Xjnc7dr](https://b23.tv/Xjnc7dr)
+
+*****
+
+####  Piano-Forest  
+##### 155#         楼主| 发表于 2024-1-28 15:44
+
+<img src="https://p.sda1.dev/15/06b42e002bcc45f0c0ff5f2fbd6f686e/a2vo5-hot9s-001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/4b418194a3934007974b9f0da9ef9e06/a2vo5-hot9s-002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/36c901425504eb600717e69180c38f5b/a2vo5-hot9s-003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/f65d518619c8d3d2fb24df8b67466adc/a2vo5-hot9s-004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/2b8dceac7f2771ba528939b3f8b21e4d/a2vo5-hot9s-005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/cb3555b2ca1dc0f8e20ebea4fb3b6dd7/a2vo5-hot9s-006.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 156#         楼主| 发表于 2024-1-31 13:07
+
+？为Netflix推出衍生作？
+[https://twitter.com/MbKKssTBhz5/status/1752268436565106845](https://twitter.com/MbKKssTBhz5/status/1752268436565106845)
+
+There are plans to expand Metaphor: ReFantazio as a new IP in different ways. 
+
+A Netflix game is part of this plan.
+

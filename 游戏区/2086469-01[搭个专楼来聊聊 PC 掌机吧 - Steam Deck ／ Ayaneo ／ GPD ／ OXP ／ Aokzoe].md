@@ -749,3 +749,65 @@ PureDark 的 FSR 3.0（付费）Mod。
 <blockquote>AYANEONEXTLITE操作系统公布以后，玩家朋友们非常关注并进行了热烈讨论，有玩家反馈仍然需要有 Windows 操作系统，「真玩家懂玩家」我们为玩 家带来福利升级，AYANEO NEXT LITE <strong>将预装正版 Windows 11 64 位家庭版操作系统</strong>，当然，玩家依然可以自行安装 HololSO，AYANEO 官网提供经AYANEO 官方适配兼容的 HololSO 系统镜像，供玩家下载体验。精简高效的 HololSO 系统可以为玩家提供更便捷的游戏管理、流畅稳定的游戏表现以及更低的整机功耗，并且原生兼容手柄和触屏操作，更符合掌机的操作习惯，也为玩家带来更丰富的系统选择。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+*****
+
+####  酷乐  
+##### 1090#       发表于 2024-1-28 23:37
+
+[https://www.thefpsreview.com/202 ... ding-to-asus-india/](https://www.thefpsreview.com/2024/01/25/asus-rog-ally-2-is-most-likely-launching-in-2024-according-to-asus-india/)
+
+真成笔记本了，一年一代？
+
+一代的销量已有50多万，应该远高于预期吧？
+
+
+*****
+
+####  bypass  
+##### 1091#         楼主| 发表于 2024-1-29 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63809925&amp;ptid=2086469" target="_blank">酷乐 发表于 2024-1-28 23:37</a>
+
+https://www.thefpsreview.com/2024/01/25/asus-rog-ally-2-is-most-likely-launching-in-2024-according-t ...</blockquote>
+咦，在哪看到有说 50w 销量呀，我看原文里面只说了印度的销量。50w 的话我觉得应该高于预期了，不能跟 SD 比但是跟小厂比起码是几十倍销量了。
+
+SD 和 ROG Ally 都是刚出的时候被质疑 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 结果后来出来的其他家更烂。
+
+*****
+
+####  bypass  
+##### 1092#         楼主| 发表于 2024-1-29 08:26
+
+如龙 8 的优化是真的好，不开帧生成也能 1080p 50+ 帧，而且画面观感也不差。
+
+<img src="https://imgur.ihainan.me/24gFn8T.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bypass  
+##### 1093#         楼主| 发表于 2024-1-29 08:26
+
+风怒，编辑掉。
+
+
+*****
+
+####  酷乐  
+##### 1094#       发表于 2024-1-29 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63811710&amp;ptid=2086469" target="_blank">bypass 发表于 2024-1-29 08:23</a>
+咦，在哪看到有说 50w 销量呀，我看原文里面只说了印度的销量。50w 的话我觉得应该高于预期了，不能跟 SD ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2167388-1-1.html](https://bbs.saraba1st.com/2b/thread-2167388-1-1.html)
+
+根据销售额估算的，再说印度都能卖7到8万，全球50万都估少了吧。
+
+
+*****
+
+####  bypass  
+##### 1095#         楼主| 发表于 2024-2-1 09:41
+
+Aya 家的 Flip：
+
+<img src="https://imgur.ihainan.me/keA5IhL.jpg" referrerpolicy="no-referrer">
+

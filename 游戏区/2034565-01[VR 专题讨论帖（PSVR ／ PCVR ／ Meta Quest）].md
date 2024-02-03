@@ -3861,3 +3861,23 @@ IGN 给了阿斯加德之怒 2 满分
 
 什么傻卵玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 306#         楼主| 发表于 2024-2-1 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53336391&amp;ptid=2034565" target="_blank">bypass 发表于 2021-10-30 08:45</a>
+
+Vertigo Games（亚利桑那阳光的开发者） 除了年底的 After the Fall 之外还在做 4 款 VR 游戏，但是其中几 ...</blockquote>
+地铁系列 VR 新作《Metro Awakening》是 Vertigo Games 开发和发行的，让我一下子就想到这个旧闻 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[https://store.steampowered.com/app/2669410/Metro_Awakening/](https://store.steampowered.com/app/2669410/Metro_Awakening/)
+
+<img src="https://img.saraba1st.com/forum/202402/01/082725ooehnhnnbuhch2es.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (295.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 08:27 上传
+
