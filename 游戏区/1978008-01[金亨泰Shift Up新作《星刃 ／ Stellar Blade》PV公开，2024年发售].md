@@ -1164,3 +1164,938 @@ PSN页面：
 
 应该是有戏
 
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2024-2-1 07:43
+
+新PV：[https://youtu.be/V6XYHiBxkvk](https://youtu.be/V6XYHiBxkvk)
+
+4月26日发售
+
+*****
+
+####  BadYanL  
+##### 129#       发表于 2024-2-1 07:54
+
+<img src="https://img.saraba1st.com/forum/202402/01/075414o6agyxys5vxvh4v6.png" referrerpolicy="no-referrer">
+
+<strong>1706739512607338.png</strong> (137.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 07:54 上传
+
+买买买
+
+
+*****
+
+####  小贝伦  
+##### 130#       发表于 2024-2-1 07:55
+
+什么时候上PC，我要打各种MOD<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  剑起苍斓  
+##### 131#       发表于 2024-2-1 08:23
+
+还是第一版的脸好看
+
+—— 来自 motorola XT2301-5, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ultraseven  
+##### 132#       发表于 2024-2-1 08:24
+
+最开始的脸太幼了吧，现在挺好的
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 133#       发表于 2024-2-1 08:25
+
+还的是屁股来自: iPhone客户端
+
+
+*****
+
+####  zhouaa  
+##### 134#       发表于 2024-2-1 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别的没看出来换装是真的多
+
+场景美术有点小菜  全是一个色调  感觉回到了虚幻4的时候
+
+*****
+
+####  JoelBirch  
+##### 135#       发表于 2024-2-1 09:04
+
+英配和这张脸真对不上吧，强烈要求日配<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iou90  
+##### 136#       发表于 2024-2-1 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848367&amp;ptid=1978008" target="_blank">zhouaa 发表于 2024-2-1 08:56</a>
+别的没看出来换装是真的多
+
+场景美术有点小菜  全是一个色调  感觉回到了虚幻4的时候 ...</blockquote>
+迷宫啥的估计也挺没劲的？怪物好像多样了一些
+
+
+*****
+
+####  宛若青空  
+##### 137#       发表于 2024-2-1 09:16
+
+这次PV让我决定必买了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+主人公服装真的好多还是有各种各样类型满足各种喜好的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">动作感觉也还可以。
+
+该有的也都有该摇的也摇，本来还挺担心SIE发行会被和谐的，希望有实体限定版。
+
+*****
+
+####  Piano-Forest  
+##### 138#         楼主| 发表于 2024-2-1 09:19
+
+<img src="https://p.sda1.dev/15/a27f93626f5b63b0da3c7d1ee719d4aa/20240201_091725.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/91828b4f857c6f04aee2f8b6e4ca05e9/53501368354_c9e99e9c57_4k.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/437d5ca27891fc5146735965e4a6a79c/53501368359_70bfa9e593_4k.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 139#       发表于 2024-2-1 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63847900&amp;ptid=1978008" target="_blank">小贝伦 发表于 2024-2-1 07:55</a>
+
+什么时候上PC，我要打各种MOD</blockquote>
+原版就已经很色啦没有MOD一样爽玩啊
+
+金亨泰你为何要做索尼的<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡博雷z  
+##### 140#       发表于 2024-2-1 09:24
+
+不知道会独占多久，打算首发了
+
+
+*****
+
+####  意大利面  
+##### 141#       发表于 2024-2-1 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848443&amp;ptid=1978008" target="_blank">JoelBirch 发表于 2024-2-1 09:04</a>
+
+英配和这张脸真对不上吧，强烈要求日配</blockquote>
+那讲道理岂不是应该韩配？西巴拉玛
+
+*****
+
+####  雨翼free  
+##### 142#       发表于 2024-2-1 09:30
+
+换装好<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">，现在担心的就是游戏体量了
+
+*****
+
+####  洛克萨斯  
+##### 143#       发表于 2024-2-1 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">老金的审美在这个白左牛鬼蛇神横行的年代简直是清流
+
+*****
+
+####  qiyu1234  
+##### 144#       发表于 2024-2-1 09:33
+
+这游戏好多地方有简体中文啊
+
+衣服上 闪烁 超光速，还有原始的那件“撕开”
+
+
+*****
+
+####  S1的巨巨  
+##### 145#       发表于 2024-2-1 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848817&amp;ptid=1978008" target="_blank">qiyu1234 发表于 2024-2-1 09:33</a>
+这游戏好多地方有简体中文啊
+
+衣服上 闪烁 超光速，还有原始的那件“撕开” ...</blockquote>
+懂不懂大股东腾讯的含金量啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  S1的巨巨  
+##### 146#       发表于 2024-2-1 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848817&amp;ptid=1978008" target="_blank">qiyu1234 发表于 2024-2-1 09:33</a>
+这游戏好多地方有简体中文啊
+
+衣服上 闪烁 超光速，还有原始的那件“撕开” ...</blockquote>
+懂不懂大股东腾讯的含金量啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ShiKi847  
+##### 147#       发表于 2024-2-1 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848616&amp;ptid=1978008" target="_blank">naclken. 发表于 2024-2-1 09:19</a>
+
+原版就已经很色啦没有MOD一样爽玩啊
+
+金亨泰你为何要做索尼的</blockquote>
+因为shift up 没发行，nikke也是找的腾讯发行
+
+*****
+
+####  SergeGlenn  
+##### 148#       发表于 2024-2-1 09:37
+
+这几个预告看到现在，感觉招式动作设计的很平庸，不够帅
+
+*****
+
+####  JoelBirch  
+##### 149#       发表于 2024-2-1 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848712&amp;ptid=1978008" target="_blank">意大利面 发表于 2024-2-1 09:26</a>
+那讲道理岂不是应该韩配？西巴拉玛</blockquote>
+就是不想听韩语啊，折中一下<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  siebten  
+##### 150#       发表于 2024-2-1 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">pv五分四十秒左右闪过的那件肚兜？衣服真不错 
+
+
+*****
+
+####  纱布光环  
+##### 151#       发表于 2024-2-1 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉女主的脸每一部预告都微妙的不一样，而且没有之前的顺眼
+
+*****
+
+####  hkguty  
+##### 152#       发表于 2024-2-1 09:44
+
+韩版尼尔，虽然是动作游戏但其实主要还是冲着女主身材去的
+
+
+*****
+
+####  404489039  
+##### 153#       发表于 2024-2-1 09:45
+
+真好最期待的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eulereld  
+##### 154#       发表于 2024-2-1 09:47
+
+頭飾存在感太高了，可不可以搬到左邊
+
+*****
+
+####  hypnossz86  
+##### 155#       发表于 2024-2-1 09:51
+
+赌一手爆死
+然后光速半价steam开售
+
+*****
+
+####  虚无连斩  
+##### 156#       发表于 2024-2-1 09:53
+
+我是真的馋这个游戏，等6月要是没有PC的消息，感觉可以买个PS5了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Booorunestud  
+##### 157#       发表于 2024-2-1 09:55
+
+有日配就买，脸不太行
+
+*****
+
+####  黑修士  
+##### 158#       发表于 2024-2-1 09:57
+
+感觉整场SOP字面意义上最好看的一个片了，好几件服装都很诱人。
+
+*****
+
+####  Mr.Hopp  
+##### 159#       发表于 2024-2-1 09:57
+
+感觉不如去玩H游戏。。。
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 160#       发表于 2024-2-1 09:58
+
+整备小妹非常好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  热风疾风  
+##### 161#       发表于 2024-2-1 09:59
+
+这人的画风（油腻+小脚女人）是真的看不来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 162#       发表于 2024-2-1 10:00
+
+为啥我感觉女角色都加了雀斑，之前的片子也有吗
+
+*****
+
+####  缺德猫  
+##### 163#       发表于 2024-2-1 10:00
+
+衣服太美了
+
+
+*****
+
+####  zpower  
+##### 164#       发表于 2024-2-1 10:06
+
+喜欢短发妹
+
+*****
+
+####  qiyu1234  
+##### 165#       发表于 2024-2-1 10:06
+
+我感觉这游戏除了处决动作和QTE演出以外，eve的常规战斗机动性似乎没有想象中那么灵活或者说飘逸？
+
+*****
+
+####  jacket  
+##### 166#       发表于 2024-2-1 10:10
+
+正面硬刚长发勇气可嘉，看得人头皮发痒（想洗头）
+
+*****
+
+####  amanohanei  
+##### 167#       发表于 2024-2-1 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">就喜欢第一版又油又幼的,现在的不好看
+
+*****
+
+####  宛若青空  
+##### 168#       发表于 2024-2-1 10:14
+
+我也更喜欢第一版的，感觉要是能把那个造型做成DLC皮肤就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hypnossz86  
+##### 169#       发表于 2024-2-1 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849237&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-2-1 09:57</a>
+感觉不如去玩H游戏。。。</blockquote>
+求推荐这种水平的h游戏
+上pc之前好赖有个代餐
+
+*****
+
+####  霖岚_  
+##### 170#       发表于 2024-2-1 10:21
+
+为啥死活不公布售价……
+
+*****
+
+####  sandro  
+##### 171#       发表于 2024-2-1 10:23
+
+人设建模太好看，没有替代品啊
+
+
+*****
+
+####  社友者  
+##### 172#       发表于 2024-2-1 10:25
+
+联动下nikke的皮肤，谢谢茄子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tonberry  
+##### 173#       发表于 2024-2-1 10:28
+
+官方中文名字确认为《剑星》，专楼标题是不是可以改改
+
+
+*****
+
+####  Mr.Hopp  
+##### 174#       发表于 2024-2-1 10:40
+
+ 本帖最后由 Mr.Hopp 于 2024-2-1 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63849570&amp;ptid=1978008" target="_blank">hypnossz86 发表于 2024-2-1 10:17</a>
+
+求推荐这种水平的h游戏
+
+上pc之前好赖有个代餐</blockquote>
+PC上倒是有剑灵风格的小制作H游戏，不过都几年前的了。还有H版生化危机等等。
+
+
+*****
+
+####  BadYanL  
+##### 175#       发表于 2024-2-1 10:51
+
+<img src="https://img.saraba1st.com/forum/202402/01/105123s0vrrzqslyi7ws71.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (195.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-1 10:51 上传
+
+都这程度了，还需要mod吗？
+
+
+*****
+
+####  宛若青空  
+##### 176#       发表于 2024-2-1 10:58
+
+ 本帖最后由 宛若青空 于 2024-2-1 11:01 编辑 
+
+看了下PlayStation Blog的介绍文章，总结几个要点
+
+·在荒原和沙漠相连的半开放世界冒险
+
+·冒险过程会获得的Exospines和Gears等物品
+
+·解锁天赋树的SP EXP
+
+·服装、配饰、发型都能在游戏里获得各种各样的改变（说不定能还原初版造型，脸的话就没办法了）
+
+·支持HD震动触觉反馈和自适应扳机
+
+·标准版售价：$69.99 / £69.99/ €79.99/ ¥8,980 MSRP
+
+·数字豪华版售价：$79.99 / £79.99/ €89.99/ ¥9,980 MSRP
+
+[https://blog.playstation.com/202 ... ly-on-ps5-april-26/](https://blog.playstation.com/2024/01/31/stellar-blade-arrives-only-on-ps5-april-26/)
+
+*****
+
+####  jyqt  
+##### 177#       发表于 2024-2-1 10:59
+
+有没有nikke mod让我代餐下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 178#       发表于 2024-2-1 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nikke今年的联动还没公布呢，不会就是和这个联动吧
+
+*****
+
+####  crosz85  
+##### 179#       发表于 2024-2-1 11:04
+
+本来不想买的，但是二弟叫我买
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  雨翼free  
+##### 180#       发表于 2024-2-1 11:06
+
+怎么这游戏也要70美刀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  diectt  
+##### 181#       发表于 2024-2-1 11:10
+
+随便数了下，10套衣服往上跑，而且绝大部分衣服都不错，馋了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 182#       发表于 2024-2-1 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850222&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-1 10:58</a>
+看了下PlayStation Blog的介绍文章，总结几个要点
+
+·在荒原和沙漠相连的半开放世界冒险</blockquote>
+平台是啥
+
+
+*****
+
+####  leon0083  
+##### 183#       发表于 2024-2-1 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850496&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-2-1 11:14</a>
+
+平台是啥</blockquote>
+PS5
+
+*****
+
+####  无意义小号  
+##### 184#       发表于 2024-2-1 11:17
+
+衣服真的好多，还能自己搭配真的爱了。
+
+
+*****
+
+####  starrynight  
+##### 185#       发表于 2024-2-1 11:31
+
+上次玩金亨泰人设的游戏还是XBOX360时代的真名法典
+
+*****
+
+####  ybfelix  
+##### 186#       发表于 2024-2-1 11:34
+
+看这个pv的口气，什么灭绝另一个种族，后面歌姬还开始唱歌，不会是Marcoss走向吧
+
+
+*****
+
+####  黑夜守望者  
+##### 187#       发表于 2024-2-1 11:35
+
+ 本帖最后由 黑夜守望者 于 2024-2-1 11:37 编辑 
+
+这脸捏得……我能说国产水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  缺德猫  
+##### 188#       发表于 2024-2-1 11:44
+
+看配角就知道能捏得很好看，主角脸应该是金亨泰故意的，我总感觉这脸有点像他老婆，但翻他老婆照片对比又不太像。
+
+*****
+
+####  依存香炉  
+##### 189#       发表于 2024-2-1 11:52
+
+是的，我就是为了这个游戏和ff16买的ps5
+
+
+*****
+
+####  Cranberries  
+##### 190#       发表于 2024-2-1 11:59
+
+感觉动作有点硬
+
+
+*****
+
+####  缺德猫  
+##### 191#       发表于 2024-2-1 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851239&amp;ptid=1978008" target="_blank">Cranberries 发表于 2024-2-1 11:59</a>
+
+感觉动作有点硬</blockquote>
+片子里除了qte，没怎么展示动作，仅有的几个画面来看，挺垃的
+
+
+*****
+
+####  ShiKi847  
+##### 192#       发表于 2024-2-1 12:24
+
+繁体中文这翻译剑星也太屎了，为啥不用官方的星刃
+
+
+*****
+
+####  mjzs07  
+##### 193#       发表于 2024-2-1 12:26
+
+xb ns pc 手机我都有就是没有ps5 完了
+
+*****
+
+####  缺德猫  
+##### 194#       发表于 2024-2-1 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851598&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-2-1 12:24</a>
+
+繁体中文这翻译剑星也太屎了，为啥不用官方的星刃</blockquote>
+剑灵→剑星
+
+大概是这个思路....
+
+
+*****
+
+####  mhss  
+##### 195#       发表于 2024-2-1 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848902&amp;ptid=1978008" target="_blank">siebten 发表于 2024-2-1 09:39</a>
+
+pv五分四十秒左右闪过的那件肚兜？衣服真不错</blockquote>
+应该是兔女郎
+<img src="https://p.sda1.dev/15/71a86178e575a20e529f571f7983e079/Snipaste_2024-02-01_12-36-25.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  敏感词好多  
+##### 196#       发表于 2024-2-1 12:47
+
+截图里的脸不行，pv里又觉得还可以，另外这动作也就比黑沙强点有限吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Piano-Forest  
+##### 197#         楼主| 发表于 2024-2-1 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63848612&amp;ptid=1978008" target="_blank">Piano-Forest 发表于 2024-2-1 09:19</a></blockquote>
+繁中译名《剑星》<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+<img src="https://p.sda1.dev/15/ff6f710335f880e681cb9b4c7be6ed8a/20240201_135027.jpg" referrerpolicy="no-referrer">
+
+伊芙的旅程：
+
+《剑星》的故事始于战士伊芙从异星殖居地降临的一刻，她受命来到地球，击败突然出现的人类宿敌奈提巴。奈提巴似乎会听令于由阿尔法和长老组成的高等同类，攻击人类，但没人真的了解他们的起源。
+
+在满目疮痍的世界，主角伊芙遇见了留在地球的幸存者亚达姆，以及前腾空小队成员百合。他们并肩作战对抗奈提巴。一路上，伊芙一行人在人类最后的城市曦安，与聚居的幸存市民合作。
+
+《剑星》世界：
+
+曦安与藏着许多秘密的半开放区域「荒地」和「大沙漠」相连。你会遇到各种不同的人，并在广大的地区尽情冒险，一边实现伊芙的目标，一边帮助曦安市民。其中一项任务是收集超级电池－－维持曦安运作的重要能量来源。遍布各地的超级电池处于休眠状态，伊芙得取回这些电池，才能恢复曦安的往日荣光。她也因此遇见了更多人物。
+
+在伊芙的冒险旅程中，你将拾取外脊装或机件等物品，也会从中获得技能点数经验值，借此解锁强大技能。你还能获得服装、配件和发型等各种外观物品。
+
+此外，你在探索《剑星》时会听到各种音乐，从营地的轻松曲调，到能体现废弃城市的凄凉旋律，曲风多元。几乎所有歌曲都有副歌和人声，让你完全沉浸在《剑星》的世界中。
+
+预购详情
+
+数位版将由2月7日起于PlayStation Store开放预购，实体版则由3月1日起接受预购。
+
+《剑星》普通版建议零售价为HKD568 | TWD1,990
+
+顾客凡预购任何版本之《剑星》均可提前解锁伊芙的星球空降衣及伊芙的经典圆框眼镜，以及获得伊芙的护耳耳饰。
+
+《剑星》数位豪华版建议零售价为HKD628 | TWD2,290
+
+收录完整游戏、所有预购特典，以及伊芙的观星者套装、亚达姆的观星者服装、百合的观星者大衣、伊芙的半框眼镜、伊芙的肆方耳饰、无人机的观星者套装、2,000技能点数经验值和游戏内的5,000枚黄金货币，助你完成夺回地球的任务。
+
+预购实体版的顾客有机会获得「剑星原声带黑胶唱片」及/或「剑星USB随身碟」等预购特典
+
+
+*****
+
+####  ybfelix  
+##### 198#       发表于 2024-2-1 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63850852&amp;ptid=1978008" target="_blank">ybfelix 发表于 2024-2-1 11:34</a>
+
+看这个pv的口气，什么灭绝另一个种族，后面歌姬还开始唱歌，不会是Macross走向吧 ...</blockquote>
+另外之前没注意过故事背景，这个pv才看到主角是外星还乡团反攻地球，感觉越来越像其实你才是外星人，敌人是变种地球人这种展开的前置
+
+
+*****
+
+####  医生狼多  
+##### 199#       发表于 2024-2-1 14:57
+
+想要皮肤，又觉得豪华版仅皮肤买了有点凯（）
+
+
+*****
+
+####  虚无连斩  
+##### 200#       发表于 2024-2-1 15:05
+
+有人数了PV说是有22套衣服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 201#       发表于 2024-2-1 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853485&amp;ptid=1978008" target="_blank">ybfelix 发表于 2024-2-1 14:48</a>
+
+另外之前没注意过故事背景，这个pv才看到主角是外星还乡团反攻地球，感觉越来越像其实你才是外星人，敌人 ...</blockquote>
+敌人的英文名叫NA:tive，属于画公仔画出肠了。
+
+*****
+
+####  Rainwedell  
+##### 202#       发表于 2024-2-1 15:12
+
+NIKKE我不充钱这玩意可以买回来当充了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，PV后半段也看着还算有些意思
+
+
+*****
+
+####  404489039  
+##### 203#       发表于 2024-2-1 15:16
+
+为什么不送兔女郎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 204#       发表于 2024-2-1 15:17
+
+ 本帖最后由 宛若青空 于 2024-2-1 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853607&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-2-1 14:57</a>
+
+想要皮肤，又觉得豪华版仅皮肤买了有点凯（）</blockquote>
+
+反正也就差60HKD，感觉差不多是DLC价格
+
+看了下日服通常版8980日元，数字豪华版9980日元
+
+现在70刀的游戏算起来还是日服便宜多了，希望全区中文<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  naclken.  
+##### 205#       发表于 2024-2-1 15:19
+
+好啊，坚持独占是吧
+
+云了<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+
+*****
+
+####  断翼  
+##### 206#       发表于 2024-2-1 15:20
+
+<blockquote>缺德猫 发表于 2024-2-1 11:44
+看配角就知道能捏得很好看，主角脸应该是金亨泰故意的，我总感觉这脸有点像他老婆，但翻他老婆照片对比又不 ...</blockquote>
+基于网红模特Shin Jae-eun
+
+*****
+
+####  asakura20005  
+##### 207#       发表于 2024-2-1 15:21
+
+让我们相信老二的判断
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  宛若青空  
+##### 208#       发表于 2024-2-1 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853897&amp;ptid=1978008" target="_blank">断翼 发表于 2024-2-1 15:20</a>
+基于网红模特Shin Jae-eun</blockquote>
+那个不是说只扫描了身材吗，脸不是她吧
+
+
+*****
+
+####  秦南心  
+##### 209#       发表于 2024-2-1 15:30
+
+女主没有2B的出圈体质，感觉本作上限会比较低
+
+
+*****
+
+####  酒巻真希菜  
+##### 210#       发表于 2024-2-1 15:39
+
+下载了4k视频驻帧看了，我觉得实机应该是受到ps5的6700显卡拖后腿了，每次预告片都比前一版画质劣化了，现在更像个国产独立游戏水平了
+
+衣服看似多，每一件暂停看品味都一般般，女忍的OK，白衬衫脏兮兮，类似李小龙的特技服很平庸，兔女郎衣服也没啥看点质感不突出 ，棋盘格衣服 条纹衣服都属于凑数的不好看，哥特裙子那个丝袜油腻的像是水管，默认的紧身衣不说了，为何配色从深灰色科技感调为绿色……
+
+
+*****
+
+####  社友者  
+##### 211#       发表于 2024-2-1 15:55
+
+[https://nga.178.com/read.php?tid=39171777](https://nga.178.com/read.php?tid=39171777)
+
+七星娱乐，感恩思密达<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jacket  
+##### 212#       发表于 2024-2-1 16:06
+
+偶尔会看成悠木碧
+<img src="https://img.imoutomoe.net/images/2024/02/01/stellar.jpg" referrerpolicy="no-referrer">
+<img src="https://img.imoutomoe.net/images/2024/02/01/aoi.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 213#       发表于 2024-2-1 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么感觉su真的好多尼尔粉.....剑星给我感觉就很尼尔2
+
+
+*****
+
+####  RinQ0326  
+##### 214#       发表于 2024-2-1 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854673&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-2-1 16:06</a>
+我怎么感觉su真的好多尼尔粉.....剑星给我感觉就很尼尔2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你怎么不说nikke就是在各种致敬nierA，从设定到剧情。
+
+*****
+
+####  RinQ0326  
+##### 215#       发表于 2024-2-1 16:14
+
+风怒
+
+*****
+
+####  汪达  
+##### 216#       发表于 2024-2-1 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854257&amp;ptid=1978008" target="_blank">酒巻真希菜 发表于 2024-2-1 15:39</a>
+
+下载了4k视频驻帧看了，我觉得实机应该是受到ps5的6700显卡拖后腿了，每次预告片都比前一版画质劣化了，现 ...</blockquote>
+感觉看着画面水准和FF7RE差不多啊，国产独立游戏是啥概念？反正今天出的古龙风云录相比是远没这个水平的
+
+*****
+
+####  skgaminger1988  
+##### 217#       发表于 2024-2-1 16:21
+
+ 本帖最后由 skgaminger1988 于 2024-2-1 16:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63854257&amp;ptid=1978008" target="_blank">酒巻真希菜 发表于 2024-2-1 15:39</a>
+下载了4k视频驻帧看了，我觉得实机应该是受到ps5的6700显卡拖后腿了，每次预告片都比前一版画质劣化了，现 ...</blockquote>
+这个公司的品味一直很一般，玩过他们手游的话就知道了，角色经常是叠一堆色情要素却得出一点不色甚至有点滑稽的结果
+
+*****
+
+####  skgaminger1988  
+##### 218#       发表于 2024-2-1 16:21
+
+风怒
+
+
+*****
+
+####  refiver  
+##### 219#       发表于 2024-2-1 16:29
+
+又有人代表别人总结XX不色XX油腻XX的设计根本没人喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们不会真的以为如果没有美术撑着shift up那依托屎一样的游戏玩法能让他们撑到NIKKE和星之刃发售吧
+
+*****
+
+####  cedarmil1  
+##### 220#       发表于 2024-2-1 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63853851&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-2-1 16:17</a>
+
+反正也就差60HKD，感觉差不多是DLC价格
+
+看了下日服通常版8980日元，数字豪华版9980日元</blockquote>
+这价格啊, 零售店估计能打成7200円
+
+
+*****
+
+####  siro1987  
+##### 221#       发表于 2024-2-1 16:52
+
+感觉像韩版暗黑血统
+
+
+*****
+
+####  n5965315  
+##### 222#       发表于 2024-2-1 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63851598&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-2-1 12:24</a>
+
+繁体中文这翻译剑星也太屎了，为啥不用官方的星刃</blockquote>
+繁中翻译不是一直一坨？
+
+
+*****
+
+####  hentianwuya  
+##### 223#       发表于 2024-2-1 17:05
+
+来个demo品鉴一下，P话发售前很多人也不看好甚至有点小透明，成功靠demo扭转局面。
+
+
+*****
+
+####  jy000129  
+##### 224#       发表于 2024-2-1 17:15
+
+对棒游的游戏性一直没啥信心，观望，顺便黄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黑站见
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Onelooker  
+##### 225#       发表于 2024-2-1 17:26
+
+脸比起上两个版本已经救回来不少了
+
+
+*****
+
+####  哆哆鸡  
+##### 226#       发表于 2024-2-2 09:18
+
+第一版的脸好看+1
+
+但这游戏还是必买的
+
+这游戏到时候有多少销量就能知道lsp的购买力了
+
