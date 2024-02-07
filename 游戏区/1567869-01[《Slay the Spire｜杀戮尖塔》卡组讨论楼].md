@@ -5009,3 +5009,165 @@ nos ...</blockquote>
 
 还是观者好玩，就讲究一个乱拳打死心脏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Amelia_1812  
+##### 449#       发表于 2024-2-6 10:57
+
+这个是不是不太好打老头呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/05/215628llmfl9n7nwdmb167.png" referrerpolicy="no-referrer">
+
+<strong>ww.png</strong> (201.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 10:56 上传
+
+
+*****
+
+####  闷吸  
+##### 450#       发表于 2024-2-6 11:14
+
+24年回来爬楼，看到老玩家都是英文卡组，充满敬意<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  摩天城  
+##### 451#       发表于 2024-2-6 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63895900&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-2-6 10:57</a>
+这个是不是不太好打老头呀</blockquote>
+这15张是不好说，没啥上限，没有回收和过牌，既转不起来，每回合打的牌也有限。不过34层后面还有发育空间。
+
+
+*****
+
+####  Amelia_1812  
+##### 452#       发表于 2024-2-6 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896092&amp;ptid=1567869" target="_blank">闷吸 发表于 2024-2-5 22:14</a>
+
+24年回来爬楼，看到老玩家都是英文卡组，充满敬意</blockquote>
+我是连10层都还没到的轻度玩家<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Amelia_1812  
+##### 453#       发表于 2024-2-6 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896098&amp;ptid=1567869" target="_blank">摩天城 发表于 2024-2-5 22:14</a>
+
+这15张是不好说，没啥上限，没有回收和过牌，既转不起来，每回合打的牌也有限。不过34层后面还有发育空间 ...</blockquote>
+我觉得我无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202402/05/223531nj9zj1tqzw1v9pfv.png" referrerpolicy="no-referrer">
+
+<strong>ww.png</strong> (172.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 11:35 上传
+
+*****
+
+####  山形石雄  
+##### 454#       发表于 2024-2-6 11:38
+
+<blockquote>Amelia_1812 发表于 2024-2-6 10:57
+这个是不是不太好打老头呀</blockquote>
+进阶6随便打，进阶20这个卡组应该过不了，不好起防
+
+*****
+
+####  山形石雄  
+##### 455#       发表于 2024-2-6 11:39
+
+<blockquote>Amelia_1812 发表于 2024-2-6 10:57
+这个是不是不太好打老头呀</blockquote>
+进阶6应该有概率能打过，进阶20就很难了
+
+*****
+
+####  山形石雄  
+##### 456#       发表于 2024-2-6 11:41
+
+<blockquote>Amelia_1812 发表于 2024-2-6 10:57
+这个是不是不太好打老头呀</blockquote>
+进阶6应该有概率能过，进阶20就很难了
+
+
+*****
+
+####  dclara1  
+##### 457#       发表于 2024-2-6 13:01
+
+这deck加一张skim直接无敌，但没有就难说，就缺抽卡能力了
+
+*****
+
+####  Amelia_1812  
+##### 458#       发表于 2024-2-6 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63896985&amp;ptid=1567869" target="_blank">dclara1 发表于 2024-2-6 00:01</a>
+
+这deck加一张skim直接无敌，但没&amp;#x6 ...</blockquote>
+啊，碰到几次都没拿<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dclara1  
+##### 459#       发表于 2024-2-6 13:05
+
+ 本帖最后由 dclara1 于 2024-2-6 13:11 编辑 
+
+话说蛇眼开局基本无敌，从第0层开始就能围绕它来构筑太强了。
+
+我专门玩过一阵手动调蛇眼swap+棱镜开局的ironclad，nosl a20碎心胜率能到8 9成
+
+*****
+
+####  dclara1  
+##### 460#       发表于 2024-2-6 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897005&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-2-6 13:03</a>
+
+啊，碰到几次都没拿</blockquote>
+玩多了对card draw的价值的理解更深之后就知道该拿skim了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 461#       发表于 2024-2-6 13:08
+
+ 本帖最后由 平昭·南宫司卿 于 2024-2-6 13:09 编辑 
+
+没集中是硬伤，虽然有回响循环多重，但没防还要想办法理球感觉有点麻烦，不过 a6 应该还是够乱杀了，又不是低数值循环，老头什么臭弟弟
+
+
+*****
+
+####  Amelia_1812  
+##### 462#       发表于 2024-2-6 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897039&amp;ptid=1567869" target="_blank">dclara1 发表于 2024-2-6 00:07</a>
+
+玩多了对card draw的价值的理解更&amp; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">最早开始玩这游戏的时候一直玩silent经常拿一堆滤抽，然后发现打起来又累又没伤害还会被有些怪物制裁
+
+所以我现在不太敢拿滤抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dclara1  
+##### 463#       发表于 2024-2-6 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63897465&amp;ptid=1567869" target="_blank">Amelia_1812 发表于 2024-2-6 14:02</a>
+
+最早开始玩这游戏的时候一直玩silent经常拿一堆滤抽，然后发现打起来又累又没伤害还会被有些怪物制 ...</blockquote>
+ 这deck加张skim，多重+能量球=大概率首回合999能量999冰球999黑球随便炸了
+
