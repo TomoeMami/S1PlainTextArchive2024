@@ -1378,3 +1378,28 @@
 
 团灭的世界线整天逮着男主一个薅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  redsouris  
+##### 134#       发表于 2024-2-6 21:42
+
+ 本帖最后由 redsouris 于 2024-2-6 21:43 编辑 
+
+终于团灭啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+成功骗到女猎人集体去送，德鲁哈一个人杀光研究所完成当年就想干的事情
+一人独占粮食足够活8年
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ストック  
+##### 135#       发表于 2024-2-7 11:10
+
+在倒数第二话来一个对正数第二话《罗莎峰的恶魔》的绝妙call back，作者在叙事结构上比我想像得还要工整，很有点自己的想法在里面
+“停留吧，此刻是多么美丽”那一句出来给我汗毛看起来了，考虑到这句话没有用日本最流行的“時よ止まれ、汝はいかにも美しい”而是单独做了整合进前后文的再编，以及德鲁哈的瑞士出身背景，这句话大概百分百是德语了吧
+德鲁哈这一自比梅菲斯特真是一口气把这部作品的深度往上拔了不少，(连带着所长的形象也拔高了很多，)在此之前我是完全没想过女猎人会是对“永恒之女”的解构和隐喻的，这下会想在彻底完结之后专门抽时间把这部对照浮士德翻一遍再咂咂味
+
+—— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
