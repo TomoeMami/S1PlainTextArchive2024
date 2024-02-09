@@ -1378,3 +1378,167 @@ EN女同接带不起来也是这个原因 根本观众群体就是割裂的 除�
 
 2024-1-23 17:03 上传
 
+*****
+
+####  liuguokobe  
+##### 159#       发表于 2024-2-5 19:22
+
+怎么en最近连续开人&amp;毕业啊
+
+<img src="https://img.saraba1st.com/forum/202402/05/192217ul8bayxpbb3atu6b.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240205192149.png</strong> (270.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 19:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wiig  
+##### 160#       发表于 2024-2-5 19:44
+
+feels like an all out war
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  wiig  
+##### 161#       发表于 2024-2-6 10:19
+
+<img src="https://img.saraba1st.com/forum/202402/06/101918fvvme1ztypum5yp7.png" referrerpolicy="no-referrer">
+
+<strong>W995K{Z0[3161KWJ6APHFFU.png</strong> (42.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-6 10:19 上传
+
+
+*****
+
+####  Artanis  
+##### 162#       发表于 2024-2-6 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63895505&amp;ptid=2003757" target="_blank">wiig 发表于 2024-2-6 10:19</a></blockquote>
+不开玩笑，的确差点了，可能鬼门关走一趟大彻大悟了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  wiig  
+##### 163#       发表于 2024-2-6 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63895665&amp;ptid=2003757" target="_blank">Artanis 发表于 2024-2-6 10:34</a>
+
+不开玩笑，的确差点了，可能鬼门关走一趟大彻大悟了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 ...</blockquote>
+基德基德
+
+
+*****
+
+####  wiig  
+##### 164#       发表于 2024-2-6 13:08
+
+Niji should just go all-in and hire Mikeneko. If you are going to blow out, do it supernova style.
+
+
+*****
+
+####  wiig  
+##### 165#       发表于 2024-2-7 09:48
+
+<img src="https://img.saraba1st.com/forum/202402/07/094832flcel8lwlk67e2zf.png" referrerpolicy="no-referrer">
+
+<strong>FT1Z(0TA}D3)DDMJ65I)TL0.png</strong> (51.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-7 09:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wuzhengkai  
+##### 166#       发表于 2024-2-8 04:37
+
+&gt;gets terminated
+
+&gt;still manages to host the best branch wide Among Us collab in vtuber history
+
+
+*****
+
+####  lhawp  
+##### 167#       发表于 2024-2-8 05:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63911893&amp;ptid=2003757" target="_blank">wuzhengkai 发表于 2024-2-8 04:37</a>
+
+&gt;gets terminated
+
+&gt;still manages to host the best branch wide Among Us collab in vtuber history</blockquote>
+比起蛋蛋炸箱还是差点，大概能争个第二
+
+
+*****
+
+####  wiig  
+##### 168#       发表于 2024-2-8 09:02
+
+I kneel
+
+还有什么惊喜是我不知道的
+
+
+*****
+
+####  D-JoeII  
+##### 169#       发表于 2024-2-8 09:25
+
+去年一共掏了20萬刀還行
+
+
+*****
+
+####  wiig  
+##### 170#       发表于 2024-2-8 10:44
+
+<img src="https://img.saraba1st.com/forum/202402/08/104500yonoawh1wrzgnonc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-8 10:45 上传
+
+pomu:你知道的，kiara是我的好姐妹，我将把天赋带到杏en
+
+
+*****
+
+####  whitersnake  
+##### 171#       发表于 2024-2-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913224&amp;ptid=2003757" target="_blank">wiig 发表于 2024-2-8 10:44</a>
+pomu:你知道的，kiara是我的好姐妹，我将把天赋带到杏en</blockquote>
+炸来炸去都习惯了，🌈之前的疯狂扩张肯定是有后遗症的，本社1期都有了一个走的，vta制度也和炸弹差不多，日企弊端很明显，运营思路都是日式的，现在en这边只是集中爆发了而已
+
+*****
+
+####  whitersnake  
+##### 172#       发表于 2024-2-8 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63913224&amp;ptid=2003757" target="_blank">wiig 发表于 2024-2-8 10:44</a>
+pomu:你知道的，kiara是我的好姐妹，我将把天赋带到杏en</blockquote>
+炸来炸去都习惯了，🌈之前的疯狂扩张肯定是有后遗症的，本社1期都有了一个走的，vta制度也和炸弹差不多，日企弊端很明显，运营思路都是日式的，现在en这边只是集中爆发了而已
+

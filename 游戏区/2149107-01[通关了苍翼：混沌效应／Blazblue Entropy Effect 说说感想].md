@@ -648,3 +648,488 @@ EA的时候玩了选的第一个角色就半天过不了第一个boss，过不�
 
 正式版最可怕的还是那个塔科夫模式，肉眼可见骗钱玩意
 
+*****
+
+####  Lewismain  
+##### 100#       发表于 2024-2-6 09:54
+
+这个游戏的进阶难度和普通难度有啥区别
+
+*****
+
+####  yohyoh4966  
+##### 101#       发表于 2024-2-6 10:30
+
+正式版发售后一上来差评激增，这也导致了路人销量降低吧
+
+*****
+
+####  Tring  
+##### 102#       发表于 2024-2-6 10:55
+
+<blockquote>Lewismain 发表于 2024-2-6 09:54
+这个游戏的进阶难度和普通难度有啥区别</blockquote>
+进阶boss多些技能好像。
+
+*****
+
+####  Farlight  
+##### 103#       发表于 2024-2-6 23:41
+
+最大的感受是手感变化太大了，ea里的手感玩起来很爽，正式版就变黏了
+
+*****
+
+####  bgmilk  
+##### 104#       发表于 2024-2-7 00:43
+
+       我倒觉得正式版体验更好，刮确实更刮了不能割草爽了，但其他各方面体验都比ea好很多，没想到会直接解散可惜。看到厂长直播感觉还是有些追求的，国产单机真的好难啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AyCoodt  
+##### 105#       发表于 2024-2-7 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63894318&amp;ptid=2149107" target="_blank">ddwhzh 发表于 2024-2-6 07:46</a>
+
+主要问题就在这，小公司这么长时间就做了个独立游戏。但以独立游戏角度销量本身就不算差，独立游戏第一梯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你说的这些在正常情况下都不是问题，几个版本更迭的事
+
+他们的问题是“预期”太高，而“预期”高的原因也不是因为对独立游戏的销量有不切实际的期待，而是因为其他项目没回钱，于是这个项目不仅要回钱还要把其他项目的钱也填上不然公司就寄，这种与其说是“预期”不如说是“做梦”
+
+这制作组寄的可以说和游戏ea正式路线之争毫无关系，就算改了所说的那些销量也不可能奇迹到“预期”的程度
+
+*****
+
+####  leeskies  
+##### 106#         楼主| 发表于 2024-2-7 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可见玩家能玩到一个正常游戏多么不容易
+
+*****
+
+####  空集  
+##### 107#       发表于 2024-2-7 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 就我去年玩的加S1各位老哥发的独立游戏推荐贴我估计大部分去年觉得不错的新锐独立游戏远没有国内现在这些独游团队那么大的规模，更不说像素风那些或者rpgmaker风的那些优质独游往往制作“团队”少于五人
+
+*****
+
+####  伊布桑  
+##### 108#       发表于 2024-2-7 21:04
+
+老板转职播主养活苍翼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  g8287694  
+##### 109#       发表于 2024-2-7 22:39
+
+这游戏算是我最近玩的最爽的动作游戏了  真的很可惜，只能说ea转正式的改动挺搞笑的，为什么这么大的改动不再ea改非要在正式改
+
+
+*****
+
+####  ddwhzh  
+##### 110#       发表于 2024-2-8 10:52
+
+<blockquote>伊布桑 发表于 2024-2-7 21:04
+老板转职播主养活苍翼
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+考虑到森p都跑路了，91act老版现在才是苍翼正统（误）
+
+*****
+
+####  不见不散  
+##### 62#       发表于 2024-2-5 02:49
+
+玩了一下还不错，手感非常好，用ES选了各种强化纹章的被动咣咣就砍通关了，ES有个可以空中突进三次的被动，然后学了突进生成影子+影子发射冰箭，在空中飞就像是战斗机…之后又选了个白面拿下+b三次免费雪风走路走通了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 商店里各种升级太贵了，建议把钱改了大幅度提升游戏体验。
+
+*****
+
+####  Tring  
+##### 63#       发表于 2024-2-5 02:56
+
+ 本帖最后由 Tring 于 2024-2-5 03:01 编辑 
+
+看着正式版出的桃卡卡才买的。主体部分因为没玩过EA，其实并没有什么特别不满。
+
+除了觉得最后那个OMEGA关层太绕整得有点阴间还不好看，以及内容还嫌少了点（不算OMEGA就4个主题场景），以外都还能接受。
+
+但是那个傻逼PVP模式，本来都拉了好几个朋友打算一起打的，结果直接把我给玩破防了。
+
+以至于本来本体玩得很带劲的，但现在一开游戏就想起傻逼PVP，然后就连本体都不想碰了。
+
+这傻屌模式之蠢，让我一直骂可以骂几千字不带停的，所以就算了省省力气不在这喷了。
+
+我就说，你做个在线合作，做个大乱斗，甚至干脆就做个1V1对战，做啥在线模式都比做NM吃鸡要来得简单又有趣。
+
+非要选择一个最离谱的选项，还配上了最离谱的实现方式。
+
+*****
+
+####  ddwhzh  
+##### 64#       发表于 2024-2-5 12:56
+
+这游戏boss真就一点没交互，唯一一个知道弹反的还是最终boss黑面，boss设计逻辑就是伤害框涂色和切割，亏还是用格斗底子改的
+
+*****
+
+####  Tring  
+##### 65#       发表于 2024-2-5 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63886147&amp;ptid=2149107" target="_blank">ddwhzh 发表于 2024-2-5 12:56</a>
+
+这游戏boss真就一点没交互，唯一一个知道弹反的还是最终boss黑面，boss设计逻辑就是伤害框涂色和切割，亏还 ...</blockquote>
+我觉得BOSS设计，大型和人型太割裂了。
+
+大型就是滚滚砍，人型全是满屏光污染弹幕，两种BOSS不像是同一个游戏里的。
+
+*****
+
+####  时之放浪者  
+##### 66#       发表于 2024-2-5 14:38
+
+今天这游戏公司宣布破产倒闭了？！
+
+*****
+
+####  Tring  
+##### 67#       发表于 2024-2-5 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887534&amp;ptid=2149107" target="_blank">时之放浪者 发表于 2024-2-5 14:38</a>
+
+今天这游戏公司宣布破产倒闭了？！</blockquote>
+就一张来源不明的舅舅图在到处传，不知道真的假的。
+
+*****
+
+####  断片集  
+##### 68#       发表于 2024-2-5 15:54
+
+<img src="https://img.saraba1st.com/forum/202402/05/155440cbffe1fbfpbb6dsf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-5 15:54 上传
+
+官宣了啊
+
+*****
+
+####  哈扎马大尉  
+##### 69#       发表于 2024-2-5 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63888291&amp;ptid=2149107" target="_blank">断片集 发表于 2024-2-5 15:54</a>
+
+官宣了啊</blockquote>
+悲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sayuki1025  
+##### 70#       发表于 2024-2-5 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62095532&amp;ptid=2149107" target="_blank">q294083636 发表于 2023-8-20 14:54</a>
+
+我司游戏，大家有什么吐槽的我也往内部反馈一下，手游转单机是因为测试的时候反响不错 arc那边也有这种建议 ...</blockquote>
+老哥还在吗<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EdSheeran  
+##### 71#       发表于 2024-2-5 16:56
+
+我看知情人士说是上个项目资金没收回来，持续不下去了，可惜了。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  伊布桑  
+##### 72#       发表于 2024-2-5 17:23
+
+之后还能更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不然又会变成一款ea欺诈游戏了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  华安9527  
+##### 73#       发表于 2024-2-5 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63889073&amp;ptid=2149107" target="_blank">EdSheeran 发表于 2024-2-5 16:56</a>
+
+我看知情人士说是上个项目资金没收回来，持续不下去了，可惜了。
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+两个原因：
+
+角川全明星项目的合作方DeNA依然没有按照约定签署正式协议并支付开发费,导致项目的未来充满了不确定性。苍翼混沌效应正式版发布后销售收入低于预期。
+
+*****
+
+####  华安9527  
+##### 74#       发表于 2024-2-5 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63889354&amp;ptid=2149107" target="_blank">伊布桑 发表于 2024-2-5 17:23</a>
+
+之后还能更新吗不然又会变成一款ea欺诈游戏了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Nex ...</blockquote>
+现在不已经是正式版了吗？
+
+*****
+
+####  Tring  
+##### 75#       发表于 2024-2-5 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63889354&amp;ptid=2149107" target="_blank">伊布桑 发表于 2024-2-5 17:23</a>
+
+之后还能更新吗不然又会变成一款ea欺诈游戏了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Nex ...</blockquote>
+讽刺的是，现在普遍的声音认为，如果维持EA状态，口碑就不会炸了。
+
+*****
+
+####  双刀少女  
+##### 76#       发表于 2024-2-5 17:28
+
+ 本帖最后由 双刀少女 于 2024-2-5 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63887639&amp;ptid=2149107" target="_blank">Tring 发表于 2024-2-5 14:47</a>
+
+就一张来源不明的舅舅图在到处传，不知道真的假的。</blockquote>
+b站官号
+[https://www.bilibili.com/opus/894540708813209608](https://www.bilibili.com/opus/894540708813209608)
+
+*****
+
+####  萱时令  
+##### 77#       发表于 2024-2-5 18:02
+
+啊这 居然是这样的发展 正式版才玩了三四把就没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gugui  
+##### 78#       发表于 2024-2-5 18:09
+
+真的可惜了 ，希望这个项目能持续开发下去。
+
+*****
+
+####  whzfjd  
+##### 79#       发表于 2024-2-5 18:09
+
+苍翼还是太核心了，而且本家已经进棺材。这连个主机发布会都上不去，人气不足也是可以预见的
+
+*****
+
+####  hallowilliam  
+##### 80#       发表于 2024-2-5 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63889354&amp;ptid=2149107" target="_blank">伊布桑 发表于 2024-2-5 17:23</a>
+
+之后还能更新吗不然又会变成一款ea欺诈游戏了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Nex ...</blockquote>
+已经转正了啊，再怎么说也不是EA欺诈
+
+
+*****
+
+####  hallowilliam  
+##### 81#       发表于 2024-2-5 18:22
+
+挺可惜的，感觉苍翼的销量虽然不至于说大赚特赚，我认为应该没亏。。。
+
+大概还是其他项目挖坑太大了。。。。
+
+隔壁湮灭线我也买了支持，都不容易
+
+*****
+
+####  变老的大二  
+##### 82#       发表于 2024-2-5 18:28
+
+直接解散了可还行。。。这波资金都没法回笼吗
+
+*****
+
+####  ddwhzh  
+##### 83#       发表于 2024-2-5 19:54
+
+销量低于预期还行，我记得第二天都快8000多人玩，找了一堆up宣传，你说因为做这游戏没钱？ea全价买的我简直是傻子。
+
+*****
+
+####  q294083636  
+##### 84#       发表于 2024-2-5 19:56
+
+失业了呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伊布桑  
+##### 85#       发表于 2024-2-5 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890994&amp;ptid=2149107" target="_blank">q294083636 发表于 2024-2-5 19:56</a>
+失业了呀
+
+—— 来自 S1Fun</blockquote>
+太惨了老哥，能说说内幕吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  q294083636  
+##### 86#       发表于 2024-2-5 20:02
+
+各路消息能说的其实也都说了 我这儿也没啥特别的了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Tring  
+##### 87#       发表于 2024-2-5 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891053&amp;ptid=2149107" target="_blank">q294083636 发表于 2024-2-5 20:02</a>
+
+各路消息能说的其实也都说了 我这儿也没啥特别的了
+
+—— 来自 S1Fun</blockquote>
+能说说，正式版直接推翻EA，平衡向PVP看齐，到底是个咋回事？
+
+真就是想主打PVP搞社交化？
+
+*****
+
+####  q294083636  
+##### 88#       发表于 2024-2-5 20:18
+
+就觉得单机销量不足以覆盖成本 想换个方向突破一下 这个其实在项目组里不是重点 算是探索一下 人员也是抽调的其他组 而且想给手游探路
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ddwhzh  
+##### 89#       发表于 2024-2-5 20:54
+
+所以实际销量能有多少呀
+
+*****
+
+####  ギナ  
+##### 90#       发表于 2024-2-5 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891207&amp;ptid=2149107" target="_blank">q294083636 发表于 2024-2-5 20:18</a>
+就觉得单机销量不足以覆盖成本 想换个方向突破一下 这个其实在项目组里不是重点 算是探索一下 人员也是抽调 ...</blockquote>
+你们这个潜能系统是谁设计的，我至少接了十几单修改潜能的请求了，一问就是喷你们设计师脑子有病的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ギナ  
+##### 91#       发表于 2024-2-5 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63891207&amp;ptid=2149107" target="_blank">q294083636 发表于 2024-2-5 20:18</a>
+就觉得单机销量不足以覆盖成本 想换个方向突破一下 这个其实在项目组里不是重点 算是探索一下 人员也是抽调 ...</blockquote>
+你们这个潜能系统是谁设计的，我至少接了十几单修改潜能的请求了，一问就是喷你们设计师脑子有病的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  伊布桑  
+##### 92#       发表于 2024-2-5 22:18
+
+看老板直播，好像就剩下他一个人在播，有几个前员工在无偿帮忙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+反正老板目前表态是会接着做，下一个角色应该是雷琪儿。希望好好做吧。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  Tring  
+##### 93#       发表于 2024-2-6 00:08
+
+ 本帖最后由 Tring 于 2024-2-6 00:29 编辑 
+
+不如干脆开放点粗糙的MOD接口，创意工坊整上，让玩家自己来加东西算了。
+
+让员工做义工，不是长久之计。
+
+但是让玩家做义工（MOD）就是天经地义！
+
+*****
+
+####  pf67  
+##### 94#       发表于 2024-2-6 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890977&amp;ptid=2149107" target="_blank">ddwhzh 发表于 2024-2-5 19:54</a>
+销量低于预期还行，我记得第二天都快8000多人玩，找了一堆up宣传，你说因为做这游戏没钱？ea全价买的我简直 ...</blockquote>
+主要还是角川那边的问题吧
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  庸necro  
+##### 95#       发表于 2024-2-6 02:50
+
+前两天玩了，感觉还挺有意思的，居然就这么制作组解散了，感觉问题不是不能解决的，真的很可惜。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  makece  
+##### 96#       发表于 2024-2-6 03:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63890977&amp;ptid=2149107" target="_blank">ddwhzh 发表于 2024-2-5 19:54</a>
+
+销量低于预期还行，我记得第二天都快8000多人玩，找了一堆up宣传，你说因为做这游戏没钱？ea全价买的我简直 ...</blockquote>
+他们以前就是规模不小的商业公司，只是做了个独立规模的东西，肯定养不起的。
+
+本身也不是能灵活调头的小制作组
+
+*****
+
+####  fc874  
+##### 97#       发表于 2024-2-6 07:43
+
+pve敌人内容太少了，估计主要想做主做PVP吧，结果直接没了
+
+*****
+
+####  ddwhzh  
+##### 98#       发表于 2024-2-6 07:46
+
+<blockquote>makece 发表于 2024-2-6 03:12
+他们以前就是规模不小的商业公司，只是做了个独立规模的东西，肯定养不起的。
+
+本身也不是能灵活调头的小 ...</blockquote>
+主要问题就在这，小公司这么长时间就做了个独立游戏。但以独立游戏角度销量本身就不算差，独立游戏第一梯队深岩银河的ea阶段也就这个同时在线人数，后续正式版飙到几万那是ea阶段运营的好，后来通行证进一步聚人。目前这个游戏ea和正式版大掉头，推出了塔科夫模式败人品，尤其ea期间运作和培养核心用户也不太成功。
+
+*****
+
+####  ddwhzh  
+##### 99#       发表于 2024-2-6 07:48
+
+ 本帖最后由 ddwhzh 于 2024-2-6 07:52 编辑 
+<blockquote>ddwhzh 发表于 2024-2-6 07:46
+主要问题就在这，小公司这么长时间就做了个独立游戏。但以独立游戏角度销量本身就不算差，独立游戏第一梯 ...</blockquote>
+而且要真缺钱可以上xgp，上ps二档会员呀，那不是来钱快多了。还有给e宝卖身一条路。
+
