@@ -2734,3 +2734,10 @@ artless新作：蜡笔计算机（demo 2月5号发布） https://store.steampowe
 宣传片 https: ...</blockquote>
 蜡笔计算机本身还是物理模拟，只不过目标改成了分类，和蜡笔物理学一样比较有名2d物理游戏world of goo要出2代了
 
+*****
+
+####  BRAVADO  
+##### 172#       发表于 2024-2-9 09:42
+
+sokobond express 2月22号发售
+
