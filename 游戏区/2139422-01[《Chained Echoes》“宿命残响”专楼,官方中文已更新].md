@@ -2509,3 +2509,10 @@ steam社区也有全宝箱全收集攻略，白金攻略还有滚球谜题攻略
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这游戏后半段有机甲之后和变成开放地图后游戏体验急速下滑，这多了机甲之后探索图感觉一下子差了好多，每个地方都要飞一下
 
+*****
+
+####  sdnuluffy  
+##### 255#       发表于 2024-2-12 23:58
+
+刚通关，作为一个80后**rpg玩家挺喜欢的，合水晶烦了点
+
