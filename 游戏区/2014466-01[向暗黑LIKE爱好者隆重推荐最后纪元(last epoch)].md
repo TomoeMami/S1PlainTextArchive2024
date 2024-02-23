@@ -680,3 +680,59 @@ the slormancer
 
 如果说是地图大等导致小霸王服务器吃不住端选择地图随机出生点，我建议他们还是把图搞小点正好顺势也解决玩家和蠕动差不多的体验。
 
+*****
+
+####  刘昊霖  
+##### 64#       发表于 2024-2-20 10:35
+
+刚来，开荒用什么职业
+
+
+*****
+
+####  Yeelolo  
+##### 65#       发表于 2024-2-20 11:28
+
+有点心动，话说这游戏有没有什么攻略网站？
+
+
+*****
+
+####  stlover  
+##### 66#       发表于 2024-2-20 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007334&amp;ptid=2014466" target="_blank">Yeelolo 发表于 2024-2-20 11:28</a>
+
+有点心动，话说这游戏有没有什么攻略网站？</blockquote>
+[https://www.caimogu.cc/circle/350.html](https://www.caimogu.cc/circle/350.html)
+
+
+*****
+
+####  lighttt  
+##### 67#       发表于 2024-2-20 12:04
+
+预购有啥奖励吗，正式版会打折把
+
+*****
+
+####  2474089352  
+##### 68#       发表于 2024-2-20 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64007334&amp;ptid=2014466" target="_blank">Yeelolo 发表于 2024-2-20 11:28</a>
+有点心动，话说这游戏有没有什么攻略网站？</blockquote>
+有个last epoch tools 可以看build库和模拟加点
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  catcoffee  
+##### 69#       发表于 2024-2-20 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64006597&amp;ptid=2014466" target="_blank">刘昊霖 发表于 2024-2-20 10:35</a>
+
+刚来，开荒用什么职业</blockquote>
+我也刚入, 看别人推荐走的符文冰川, 现在50多级的体验不错, 生存输出都没问题
+
