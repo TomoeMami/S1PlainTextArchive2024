@@ -4787,3 +4787,94 @@ XGPU/Prime Gaming会员福利：限时领取《完美音浪》团队协作套装
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  陈词与芍药  
+##### 483#         楼主| 发表于 2024-2-22 02:19
+
+在 Xbox，我们致力于创造能够激励、娱乐和连接世界各地玩家的游戏。作为发行商和平台，我们致力于通过在更多设备上为更多人带来更多游戏来满足玩家的需求。我们所做的一切的核心是我们的玩家，以及他们围绕自己喜爱的游戏建立的充满活力的社区。 
+
+今天，我们宣布四款深受粉丝喜爱的 Xbox 游戏将于今年春天登陆 Nintendo Switch 和索尼平台。制作这些著名游戏的工作室利用​​他们的多平台经验，向更多玩家和社区开放他们创造的世界。  
+
+…………………
+
+由 Tango Gameworks/Bethesda Softworks 出品的《Hi-Fi RUSH》是一款屡获殊荣、深受玩家喜爱的节奏类动作游戏，世界将与音乐同步，该游戏将于 3 月 19 日午夜登陆 PlayStation 5，2 月 21 日可在 PlayStation 5 数字商城预购。
+
+………………
+
+这些游戏加入了《Minecraft》、《使命召唤》、《守望先锋》和《暗黑破坏神》等特许经营游戏的行列，这些游戏已经在多个平台上吸引了玩家和粉丝，我们很高兴能让更多玩家在更多平台上体验这些世界和故事。   
+
+无论是任天堂 Switch 玩家和 PlayStation 玩家在《Grounded》中一起在后院生存，还是 PlayStation 玩家在《盗贼之海》中体验海盗生活，通过跨平台游玩，这些多人游戏将把更多的人聚集在一起，并继续壮大他们的玩家社区。  
+
+……………………
+现在是玩游戏的最佳时机，我们迫不及待地想让更多玩家体验这些伟大的游戏。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  thez  
+##### 484#       发表于 2024-2-22 11:36
+
+我看PC版更新了PS5手柄适配了，有人玩过吗？触觉震动和扳机的体验如何？
+
+
+*****
+
+####  树洞专用  
+##### 485#       发表于 2024-2-22 12:15
+
+ns版什么时候上？只写了ps5的日期？
+
+
+*****
+
+####  时空之旅  
+##### 486#       发表于 2024-2-22 12:31
+
+<blockquote>树洞专用 发表于 2024-2-22 12:15
+ns版什么时候上？只写了ps5的日期？</blockquote>
+就没ns啊
+
+
+*****
+
+####  亚瑟摩根  
+##### 487#       发表于 2024-2-22 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030213&amp;ptid=2116452" target="_blank">树洞专用 发表于 2024-2-22 12:15</a>
+
+ns版什么时候上？只写了ps5的日期？</blockquote>
+没有NS
+
+
+*****
+
+####  byisme001  
+##### 488#       发表于 2024-2-22 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64030213&amp;ptid=2116452" target="_blank">树洞专用 发表于 2024-2-22 12:15</a>
+ns版什么时候上？只写了ps5的日期？</blockquote>
+上了ns，x1的该骂街了
+
+
+*****
+
+####  陈词与芍药  
+##### 489#         楼主| 发表于 2024-2-23 02:22
+
+https://store.playstation.com/zh-hk/concept/10008685
+
+预购已开，普通版213，豪华版284，ps会员打9折
+
+<img src="https://img.saraba1st.com/forum/202402/22/142216lb34b9wi9wz9wwgy.jpg" referrerpolicy="no-referrer">
+
+<strong>A12A9D58-D1F2-4276-9CEF-6C992142330A.jpg</strong> (625.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-23 02:22 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
