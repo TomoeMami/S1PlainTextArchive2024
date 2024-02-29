@@ -486,3 +486,26 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 
 终于开始出女主终决了
 
+*****
+
+####  法拉  
+##### 56#         楼主| 发表于 2024-2-26 11:28
+
+我宣布，这是这游戏七年来最超神的一天
+
+<img src="https://img.saraba1st.com/forum/202402/26/112742bxzxw0kf6k331xtz.png" referrerpolicy="no-referrer">
+
+<strong>img.png</strong> (160.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 11:27 上传
+
+<img src="https://img.saraba1st.com/forum/202402/26/112742oap89n5p7bandaz1.png" referrerpolicy="no-referrer">
+
+<strong>img2.png</strong> (122.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-26 11:27 上传
+
