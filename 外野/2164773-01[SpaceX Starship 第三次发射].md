@@ -1968,3 +1968,14 @@ RGV Aerial Photography航拍的发射台。可以清晰的看到助推器保持�
 FAA表示，SpaceX正在寻求许可，以在今年发射至少九次星舰。
 [https://arstechnica.com/space/20 ... ne-times-this-year/](https://arstechnica.com/space/2024/02/spacex-seeks-to-launch-starship-at-least-nine-times-this-year/)
 
+*****
+
+####  commcody  
+##### 136#         楼主| 发表于 2024-2-27 12:19
+
+SpaceX主导，FAA参与的第二发事故调查已结束。[https://www.spacex.com/updates](https://www.spacex.com/updates)
+
+B9在分离后执行返场点火时可能有液氧过滤器堵塞，导致发动机液氧涡轮泵失去进口压力，最终其中一台发动机失效时摧毁了B9。
+
+S25搭载了额外的推进剂以模拟载荷，在载入前需要排放以符合载入时的推进剂质量要求。在开始排放时液氧与S25后半部的一处泄露引发了火灾。火灾切断了飞行计算机的通讯，导致六台发动机在即将完成上升段工作时提前关机。自动飞行安全系统判定违反了飞行任务规则，于是激活了自毁系统摧毁了S25。
+
