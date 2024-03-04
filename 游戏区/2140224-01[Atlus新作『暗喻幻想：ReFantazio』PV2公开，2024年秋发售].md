@@ -2656,3 +2656,164 @@ There are plans to expand Metaphor: ReFantazio as a new IP in different ways.
 
 A Netflix game is part of this plan.
 
+*****
+
+####  Piano-Forest  
+##### 157#         楼主| 发表于 2024-2-29 09:55
+
+港服商店页面已上线：
+[https://store.playstation.com/zh-hant-hk/concept/10001029/](https://store.playstation.com/zh-hant-hk/concept/10001029/)
+[https://www.xbox.com/zh-hk/games ... ntazio/9n5dv8310xp7](https://www.xbox.com/zh-hk/games/store/metaphor-refantazio/9n5dv8310xp7)
+
+日区评级CERO 15+
+[https://www.xbox.com/ja-jp/games/store/](https://www.xbox.com/ja-jp/games/store/)メタファー-リファンタジオ/9n5dv8310xp7
+
+<img src="https://p.sda1.dev/15/681cb70a9b0c1df17482c3da7e43ba97/001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/a290b791d1cd55b8737d11c7a83321e3/002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/15/b2bd4baeb33cb2a24af30fa1c9325d01/003.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 158#         楼主| 发表于 2024-2-29 10:01
+
+微软商店网页显示
+
+發行日期：12/10/2024
+
+缩写
+
+英式：“日/月/年”
+
+美式：“月/日/年”
+[https://www.microsoft.com/zh-hk/p/暗喻幻想-refantazio/9n5dv8310xp7](https://www.microsoft.com/zh-hk/p/暗喻幻想-refantazio/9n5dv8310xp7)
+<img src="https://p.sda1.dev/15/843bb5c0d128db20dca86e201552379a/Screenshot_2024-02-29-09-54-49-519_com.yandex.browser-edit.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  walfeds  
+##### 159#       发表于 2024-2-29 10:07
+
+参考别的页面应该是10月12
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Piano-Forest  
+##### 160#         楼主| 发表于 2024-2-29 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101291&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-2-29 10:01</a>
+
+微软商店网页显示
+
+發行日期：12/10/2024</blockquote>
+对比港服其他商店页面应该是或将于10月12日发售
+
+星空 23年9月6日发售
+
+發行日期：6/9/2023
+[https://www.microsoft.com/zh-hk/p/starfield/9ncjsxwztp88](https://www.microsoft.com/zh-hk/p/starfield/9ncjsxwztp88)
+
+
+*****
+
+####  牛奶笛  
+##### 161#       发表于 2024-2-29 11:01
+
+12号是周六，肯定不是这一天
+
+
+*****
+
+####  eaglu  
+##### 162#       发表于 2024-2-29 11:49
+
+才看到男主CV是花江夏树，希望没什么有声音的台词吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  AeonsTorn  
+##### 163#       发表于 2024-2-29 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64102798&amp;ptid=2140224" target="_blank">eaglu 发表于 2024-2-29 11:49</a>
+才看到男主CV是花江夏树，希望没什么有声音的台词吧
+
+论坛助手,iPad</blockquote>
+据说男主台词有三百页哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 164#         楼主| 发表于 2024-2-29 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101211&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-2-29 09:55</a>
+
+港服商店页面已上线：
+
+https://store.playstation.com/zh-hant-hk/concept/10001029/
+
+https://www.xbox.com ...</blockquote>
+Steam页面：
+[https://store.steampowered.com/app/2679460/ReFantazio/](https://store.steampowered.com/app/2679460/ReFantazio/)
+
+
+*****
+
+####  eaglu  
+##### 165#       发表于 2024-2-29 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64104095&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-2-29 13:55</a>
+
+据说男主台词有三百页（还是三大本来着）哦</blockquote>
+三百页应该不会都有配音吧，不然我真得关语音玩了
+
+
+*****
+
+####  anmdrree  
+##### 166#       发表于 2024-3-1 00:58
+
+做着做着又做回去了，还是最早的设定最喜欢
+
+
+*****
+
+####  bobosnader  
+##### 167#       发表于 2024-3-1 02:13
+
+这作怪设怎么这么毕加索==
+
+
+*****
+
+####  Piano-Forest  
+##### 168#         楼主| 发表于 2024-3-1 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64101727&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-2-29 10:33</a>
+
+对比港服其他商店页面应该是或将于10月12日发售
+
+星空 23年9月6日发售</blockquote>
+<[img src="https://s2.loli.net/2024/03/01/ckYTgB72yEUiboI.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AeonsTorn  
+##### 169#       发表于 2024-3-1 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64110747&amp;ptid=2140224" target="_blank">bobosnader 发表于 2024-3-1 02:13</a>
+
+这作怪设怎么这么毕加索==</blockquote>
+<img src="https://s2.loli.net/2024/03/01/raL2OkFEgC4RZdJ.png" referrerpolicy="no-referrer">
+
+其实是耶罗尼米斯·博斯
+
