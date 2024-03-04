@@ -18,3 +18,13 @@
 
 鹅球黑名单能不能导出啊，我换了部手机，找不到哪里可以导出黑名单。要我一个一个重新添加不如杀了我<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+*****
+
+####  小修  
+##### 1495#       发表于 2024-3-1 23:25
+
+影视区突然解析出问题了，其他区没事。
+pc看影视区正常，不知道是什么bug
+
+—— 来自 samsung SM-F7210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
