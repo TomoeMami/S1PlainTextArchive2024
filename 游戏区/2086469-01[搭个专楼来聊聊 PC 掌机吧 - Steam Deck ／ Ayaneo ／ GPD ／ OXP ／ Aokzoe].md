@@ -961,3 +961,329 @@ I家工艺+低功耗场景=翻车，这不是理所当然的嘛<img src="https:/
 
 2024-2-20 19:47 上传
 
+*****
+
+####  LYCZERO  
+##### 1109#       发表于 2024-2-26 23:15
+
+rogally的摇杆问题好大，买的还没几天就出现摇杆漂移
+
+—— 来自 motorola XT2175-2, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  xiuwf  
+##### 1110#       发表于 2024-2-27 09:27
+
+flip的优惠券马上要过期了 纠结要不要下单
+
+感觉键盘手感会很差的样子
+
+然后重量似乎也有点感人
+
+
+*****
+
+####  trow233  
+##### 1111#       发表于 2024-2-27 09:39
+
+aya刚出的那个双屏翻盖机是不是翻车了
+
+看一些网友说散热存在问题
+
+我也不是很理解PC掌机搞个双屏干什么……
+
+
+*****
+
+####  bypass  
+##### 1112#         楼主| 发表于 2024-2-27 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078289&amp;ptid=2086469" target="_blank">trow233 发表于 2024-2-27 09:39</a>
+
+aya刚出的那个双屏翻盖机是不是翻车了
+
+看一些网友说散热存在问题</blockquote>
+已经有人到手了吗，之前看疯疯评测感觉还好。
+
+不过 Aya 最近评测都不让比较音频，借口都是工程机还在改进驱动，感觉有猫腻。
+
+
+*****
+
+####  trow233  
+##### 1113#       发表于 2024-2-27 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64078820&amp;ptid=2086469" target="_blank">bypass 发表于 2024-2-27 10:20</a>
+
+已经有人到手了吗，之前看疯疯评测感觉还好。
+
+不过 Aya 最近评测都不让比较音频，借口都是工程机还在改 ...</blockquote>
+就是在疯疯那个视频下有些评论在说
+
+不过也不知道是不是真实的
+
+
+*****
+
+####  医生狼多  
+##### 1114#       发表于 2024-2-27 13:02
+
+winmini新版还要下个月<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cst3108  
+##### 1115#       发表于 2024-2-27 19:19
+
+最近买了飞行家F1，感觉应该是目前综合最好的WIN掌机了，虽然不是没有缺点，不过没有很大的短板，相比ROG和SD小一圈和轻50克，散热和续航却非常好，7寸高刷屏也不错，基本各方面都很好了。不过即便如此，600克我还是觉得有点沉，就这在WIN掌机里已经算轻的了..... Winmini和AYA AIR虽然轻点但都有很大的缺陷，不知道什么时候能等到又轻散热续航又不是特别拉跨的掌机
+
+
+*****
+
+####  cst3108  
+##### 1116#       发表于 2024-2-27 19:26
+
+FLIP本来预购了最后看了评测还是退了，翻盖机650克有点离谱了，本来手感就不如直板机还这么死沉，轻便的优势也没了，不知道意义何在。不过散热应该比Winmini好，想要翻盖机又无法接受WinMini散热的可以考虑
+
+
+*****
+
+####  bypass  
+##### 1117#         楼主| 发表于 2024-2-27 20:37
+
+传音要出一款手柄 + 便携头显的 PC 掌机 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[https://www.tecno-mobile.com/acc ... /product/pocket-go/](https://www.tecno-mobile.com/accessories/product-detail/product/pocket-go/)
+
+<img src="https://img.saraba1st.com/forum/202402/27/203657anc53l0jlxv5v5vk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-2-27 20:36 上传
+
+
+*****
+
+####  trow233  
+##### 1118#       发表于 2024-3-1 16:21
+
+[https://mp.weixin.qq.com/s/DD_ti8rZXnLJwhn-xREwcw](https://mp.weixin.qq.com/s/DD_ti8rZXnLJwhn-xREwcw)
+
+WIN Mini 新版来啦！原生横屏，支持可变刷新率，支持 AMD FreeSYNC，WIN 4 8840U 下周三预售
+
+WIN Mini（2024）将采用全新的 AMD Ryzen™ 7 8840U 处理器，除此外，新版 WIN Mini 将 Oculink 接口改为 USB A 口，10Gbps 速率，方便用户外接 USB A 设备。
+
+但改动最大的是屏幕，WIN Mini（2024）采用与某硕相同的屏幕，支持 VRR 可变刷新率，支持 AMD FreeSYNC™ Premium，无惧游戏画面撕裂，无需再锁帧，将机能彻底释放！同时，屏幕仍采用 AR + AF 涂层！AR 增透涂层，硬度高，有效减少反光，防眩光、防刮伤，增加透光率，使屏幕亮度提升到 500nit，阻挡蓝光，有效保护眼睛。AF 防指纹纳米涂层，出色的防污性、拒水性、耐久性，减少指纹及各种污渍附着 。
+
+由于去掉了 DP 转 MIPI 芯片，降低了整机功耗和发热量。
+
+接口这是又改回去了啊？？
+
+由于去掉了 DP 转 MIPI 芯片，降低了整机功耗和发热量
+
+看来散热本身没有改咯？
+
+
+*****
+
+####  筒井彩芽  
+##### 1119#       发表于 2024-3-1 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这winmini才出多久啊，就出新版了？
+
+*****
+
+####  医生狼多  
+##### 1120#       发表于 2024-3-1 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64085549&amp;ptid=2086469" target="_blank">bypass 发表于 2024-2-27 20:37</a>
+传音要出一款手柄 + 便携头显的 PC 掌机 
+
+https://www.tecno-mobile.com/accessories/product-deta ...</blockquote>
+啥，这是把u放在哪里
+
+
+*****
+
+####  trow233  
+##### 1121#       发表于 2024-3-1 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116390&amp;ptid=2086469" target="_blank">筒井彩芽 发表于 2024-3-1 16:36</a>
+
+这winmini才出多久啊，就出新版了？</blockquote>
+年经机<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+不过7840和8840貌似没什么区别，这确实没啥诚意
+
+也没说新的MINI是不是还锁TDP
+
+
+*****
+
+####  bypass  
+##### 1122#         楼主| 发表于 2024-3-1 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64116432&amp;ptid=2086469" target="_blank">医生狼多 发表于 2024-3-1 16:39</a>
+
+啥，这是把u放在哪里</blockquote>
+塞到了手柄里面 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+ <blockquote>官方表示，Pocket Go 的大小约为华硕 ROG Ally 等普通 Windows 掌机的一半，重量也轻了 1/3。</blockquote>
+
+
+*****
+
+####  trow233  
+##### 1123#       发表于 2024-3-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64117272&amp;ptid=2086469" target="_blank">bypass 发表于 2024-3-1 17:56</a>
+
+塞到了手柄里面</blockquote>
+友商纷纷提到ROG
+
+看来ROG确实是7840U时代市场最认可的WIN掌机啊？
+
+
+*****
+
+####  bypass  
+##### 1124#         楼主| 发表于 2024-3-1 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64117370&amp;ptid=2086469" target="_blank">trow233 发表于 2024-3-1 18:08</a>
+
+友商纷纷提到ROG
+
+看来ROG确实是7840U时代市场最认可的WIN掌机啊？</blockquote>
+一开始评测续航数据出来的时候被骂惨了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 谁能想到后面大厂的机器除了 SD OLED 一个比一个拉。
+
+
+*****
+
+####  i0nium  
+##### 1125#       发表于 2024-3-1 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64119651&amp;ptid=2086469" target="_blank">bypass 发表于 2024-3-1 21:40</a>
+
+一开始评测续航数据出来的时候被骂惨了。
+
+ 谁能想到后面大厂的机器除了 SD OLED 一个比一个拉。 ...</blockquote>
+工程机也确实离谱了点，后面改进过
+
+
+*****
+
+####  luffyzhou  
+##### 1126#       发表于 2024-3-1 22:05
+
+最近在用sd玩暗黑4，锁40帧感觉还不错。大致估计了下手里机器的游玩时间占比，sd比ally还有air1s都多，有点儿想换成oled了…
+flip订了8840的版本，主要是不想再要个7840的机器（马甲就马甲吧）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霖岚_  
+##### 1127#       发表于 2024-3-2 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">所以这新gpdmini值得入手吗，眼馋好久了
+
+
+*****
+
+####  毒品  
+##### 1128#       发表于 2024-3-2 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121933&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-3-2 08:17</a>
+
+所以这新gpdmini值得入手吗，眼馋好久了</blockquote>
+等等吧，看这意思，就是砍了个芯片，没提散热大改
+
+
+*****
+
+####  医生狼多  
+##### 1129#       发表于 2024-3-2 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64121933&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-3-2 08:17</a>
+所以这新gpdmini值得入手吗，眼馋好久了</blockquote>
+如果真换了能vrr的屏还是挺重要的，就是散热估计没解决
+
+
+*****
+
+####  bypass  
+##### 1130#         楼主| 发表于 2024-3-4 17:48
+
+前两天打通如龙 8 啦。一半在台式机一半在掌机（尤其是过年回老家的几天）。我很少会用掌机玩大体量作品，但这种建模画质比较一般（在掌机上玩也不会有太多遗憾），又有一定刷刷刷因素，感觉意外合适。尤其是刷迷宫的时候，没打完就直接休眠，啥时候有空了再继续。
+
+比较可惜的是这作 FSR 3 的实现还是有很多缺陷，转动视角的时候残影严重，只能抛弃，不然低功耗的表现会更好一些。
+
+<img src="https://imgur.ihainan.me/wMntIkr.jpg" referrerpolicy="no-referrer">
+
+接下来是 P5R，12w 目前基本可以 60 帧。
+
+<img src="https://imgur.ihainan.me/PDZ6eit.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bypass  
+##### 1131#         楼主| 发表于 2024-3-4 17:48
+
+前两天打通如龙 8 啦。一半在台式机一半在掌机（尤其是过年回老家的几天）。我很少会用掌机玩大体量作品，但这种建模画质比较一般（在掌机上玩也不会有太多遗憾），又有一定刷刷刷因素，感觉意外合适。尤其是刷迷宫的时候，没打完就直接休眠，啥时候有空了再继续。
+
+比较可惜的是这作 FSR 3 的实现还是有很多缺陷，转动视角的时候残影严重，只能抛弃，不然低功耗的表现会更好一些。
+
+<img src="https://imgur.ihainan.me/wMntIkr.jpg" referrerpolicy="no-referrer">
+
+接下来是 P5R，12w 目前基本可以 60 帧。
+
+<img src="https://imgur.ihainan.me/PDZ6eit.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 1132#       发表于 2024-3-4 17:52
+
+现在的WIN掌机都能一键休眠了吧应该 我买的飞行家好像就行
+
+
+*****
+
+####  猫不萌  
+##### 1133#       发表于 2024-3-4 18:01
+
+果然是win下的fsr3正常，我deck oled跑fsr3卡的不行
+
+
+*****
+
+####  bypass  
+##### 1134#         楼主| 发表于 2024-3-4 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64144808&amp;ptid=2086469" target="_blank">任天索尼子 发表于 2024-3-4 17:52</a>
+
+现在的WIN掌机都能一键休眠了吧应该 我买的飞行家好像就行</blockquote>
+我用休眠（Hibernate）印象中没遇到过什么问题，但是看别人说睡眠（Sleep）很容易睡死唤醒不了，我自己倒是没怎么试过。
+
+
+*****
+
+####  qqks  
+##### 1135#       发表于 2024-3-4 21:48
+
+ 本帖最后由 qqks 于 2024-3-4 21:51 编辑 
+
+win10开始睡眠就是一坨屎，最可怕的是明明睡眠了放到包里还会在盒盖的情况下自动唤醒，风扇狂转机器剧烈发热。到夏天搞不好还会损坏机器。
+
+而且睡眠下跑电飞快，一个晚上就能20%左右的电量。
+
+**阿三搞得这破系统连睡眠都做不好。同样联网更新的安卓手机哪个像win10,win11这么弱智？
+
+开盒盖休眠以后到不会自动唤醒了，待机耗电也正常了，但再唤醒就慢多了
+
