@@ -2866,3 +2866,33 @@ z1e
 —— 来自 samsung SM-S9180, Android 14上的 S1Next-鹅 ...</blockquote>
 没办法，要么全程挂提子，要么硬等，网上说的办法是玄学
 
+*****
+
+####  Midnight.Coup  
+##### 285#       发表于 2024-3-5 16:02
+
+OLED 港版 512G 京东海外自营 4850，感觉和找日本代购买然后运费+交税高不了多少了，PD 充电器反正现在人手一个
+
+
+*****
+
+####  这次是十块钱  
+##### 286#       发表于 2024-3-5 16:22
+
+pdd 4600是好价吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Rushtime33  
+##### 287#       发表于 2024-3-5 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64155012&amp;ptid=2160139" target="_blank">这次是十块钱 发表于 2024-3-5 16:22</a>
+
+pdd 4600是好价吗
+
+—— 来自 S1Fun</blockquote>
+挺好的啊，官方价格549按现在汇率4000左右，加运费和税差不多了吧，倒余额人肉带回来另说。
+
