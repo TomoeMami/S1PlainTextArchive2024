@@ -1403,3 +1403,117 @@
 
 —— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+*****
+
+####  白金口袋  
+##### 136#       发表于 2024-3-6 15:33
+
+完结得很干脆，而且是完全不给一丝续作念想的HE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猎人D  
+##### 137#       发表于 2024-3-6 16:10
+
+死了也能继续当白月光，确实是算无遗策<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  如水  
+##### 138#       发表于 2024-3-6 16:31
+
+所以哪裡能看生肉呢
+
+
+*****
+
+####  其实也挺好  
+##### 139#       发表于 2024-3-6 16:35
+
+哇，这就完结了吗？
+熟肉好像还在43。
+伸个手问问哪里有生肉。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+----发送自 [OnePlus KB2000,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  北山玖公  
+##### 140#       发表于 2024-3-6 16:38
+
+生肉：[https://nicomanga.com/manga-this-communication-raw.html](https://nicomanga.com/manga-this-communication-raw.html)
+
+无事完结HE，这种充满误解的沟通一直持续到了最后，实在是不能不让人对“这种沟通”发笑。
+
+德鲁哈的目的还是一个都不差的完成了。
+
+死了的白月光确实无敌了，唯一缺陷就在于真的死掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  巴尔干炮  
+##### 141#       发表于 2024-3-6 17:08
+
+这种人还是死了好，少有的主角死了反而让人松口气的作品。
+
+
+*****
+
+####  没取名啊  
+##### 142#       发表于 2024-3-6 17:30
+
+之前猜到结局可能是把人杀光然后上山顶吃独食了，没想到女猎人们活了并且继续拯救世界，比我预想的美好多了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  第贰个十年  
+##### 143#         楼主| 发表于 2024-3-6 17:40
+
+不会日语，好急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  KDConan  
+##### 144#       发表于 2024-3-6 19:03
+
+最终还是只有自己能杀自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  redsouris  
+##### 145#       发表于 2024-3-6 20:02
+
+ 本帖最后由 redsouris 于 2024-3-6 20:05 编辑 
+
+恶魔吃完7年独食自己抹脖子死了
+结果女猎人还真回来了，临死的反射性动作让误会持续下去，还拯救世界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ストック  
+##### 146#       发表于 2024-3-6 21:29
+
+在倒数第二话call back了正数第二话之后，最后一话果然选择了对第一话进行再现来作为德鲁哈的终幕
+很喜欢德鲁哈真的以明镜止水的心境毫不迷惘和动摇地走完了最后的8年，云淡风地走进了完全符合自己计算的结局
+[colour=ffffff]因为自己种田养家畜搭房子锻炼了之前用不到的肌肉所以增重了也好，把按时冲澡睡前阅读一日三餐的自律有质量的生活维持到最后也好，包括他期间唯一一次想起女猎人们后默默把所有人都埋了还立了日式墓碑(结果大小做错了还土埋了半截以至于女猎人们一看到碑就知道是他立的)部分在内，[/colour]最后一次确认了这个粉毛的确是拥有清爽稳定但与常人迥异到触发恐怖谷效应的精神构造
+最后的结局果然明着把女猎人们变成了“永恒之女”，并且落到了“梅菲斯特引永恒之女上升”，算是在倒数第二话抛出了浮士德这个母题后可以预想到的最合情合理的解构法了，而且还连着浮士德之死的“意识蒙昧中的误解令主人公升华”一起解构了，很好的戏剧感
+本回卷首彩页里读作communication写作喜剧的这个注脚，给故事一路以来所有的单向沟通做了简洁明了的一锤定音
+
+P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识地和第一话魇住了德鲁哈的噩梦构成了回环，很舒服的一个地方
+
+—— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
