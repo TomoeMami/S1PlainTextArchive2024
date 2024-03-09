@@ -727,3 +727,108 @@ gbf策划真好做啊
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  jxzeroga0  
+##### 17647#       发表于 2024-3-5 21:10
+
+这周年剧情真是看得我全程笑得停不下来，莫名其妙的魔怔人大批发，标准的小丑反派王子为周年带来了太多乐子。
+
+
+*****
+
+####  cenhr  
+##### 17648#       发表于 2024-3-5 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64158287&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2024-3-5 21:10</a>
+
+这周年剧情真是看得我全程笑得停不下来，莫名其妙的魔怔人大批发，标准的小丑反派王子为周年带来了太多乐子 ...</blockquote>
+最惨的不是主角和老七，他们真的只是来玩的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  はちたや  
+##### 17649#       发表于 2024-3-5 23:03
+
+除了王子也没别的魔怔人吧，其实就这一个观感差的角色
+
+我是觉得该交代的背景和伏线这次都交代得挺清楚，看第三章怎么收尾了，目前读下来观感肯定比星屑街老6和调停这两个要好的
+
+
+*****
+
+####  cenhr  
+##### 17650#       发表于 2024-3-5 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159529&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-3-5 23:03</a>
+
+除了王子也没别的魔怔人吧，其实就这一个观感差的角色
+
+我是觉得该交代的背景和伏线这次都交代得挺清楚，看 ...</blockquote>
+黑帮街是最糟糕的，感觉就是为了玩龙珠超布洛里的梗但又要缝十天众<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jxzeroga0  
+##### 17651#       发表于 2024-3-6 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159529&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-3-5 23:03</a>
+
+除了王子也没别的魔怔人吧，其实就这一个观感差的角色
+
+我是觉得该交代的背景和伏线这次都交代得挺清楚，看 ...</blockquote>
+虽然能看懂编剧的思路，但剧情表现出来就是一个个人物的行为都很极端和搞笑啊
+
+极品黑幕不死鸟，26亿四千年不想死干了巴哈，过了四千年就感觉累了想死了，说是想偷偷输血给主角又搞得人尽皆知，还冒出来个假的不死鸟忽悠王子，全篇最想一出是一出的蛇精病；
+
+独角男不情不愿的参加打神，唐突死了老婆就能直接劈了巴哈，然后被不老不死折磨几千年，遇到九柱神知道能跟踪不死鸟，一言不合就暴躁老哥开打，打了几百年到第一章还突然暴走；
+
+“路西菲尔不是已经不在了吗”第三章掉头倒计时高叉黑大奶，被路西欧和女巴布挑逗，也是莫名其妙疑似不死鸟之力加成凑在一次来找主角复活旧领导；
+
+又一个带嫉妒感情的魔怔领导爱妹妹拉结尔，上一章还在深藏不露领导九柱神干主角，这一章直接光杆司令被抓走当解说，解说还不全说完继续谜语，疑似要复活路西菲尔继续搞事；
+
+九柱神集体逼格骤降，几百年负责摸鱼找不死鸟结果人家除了九柱神全都聊了一遍，突然被拉结尔一声令下就集体来找事，还藏了一个神秘不死鸟化身角色没认出来？
+
+王子就不说了，对面要是平行世界的老7直接一刀劈了，废话了半天就是来送老婆的感觉；
+
+*****
+
+####  jxzeroga0  
+##### 17652#       发表于 2024-3-6 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64159331&amp;ptid=1158205" target="_blank">cenhr 发表于 2024-3-5 22:46</a>
+
+最惨的不是主角和老七，他们真的只是来玩的</blockquote>
+这不死鸟和隔壁说的xxn差不多，想一出是一出，26亿4千年风平浪静，这几千年搞出来一堆破事就想死了。古兰姬塔这次纯躺枪，拉结尔一本正经分析不死鸟动机是重造一个创世神然后寻死直接笑出声了。
+
+
+*****
+
+####  洛克萨斯  
+##### 17653#       发表于 2024-3-6 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次活动剧本也配10周年啊，太拉了
+
+
+*****
+
+####  cenhr  
+##### 17654#       发表于 2024-3-6 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64162065&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-3-6 09:34</a>
+
+这次活动剧本也配10周年啊，太拉了</blockquote>
+至少比黑帮街演龙珠超布罗利好
+
+那个周年根本就不知所谓，都不知道重点在哪里。至少这次是不死鸟搞事，主角一行躺枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niu  
+##### 17655#       发表于 2024-3-6 16:12
+
+我個人感覺是不死鳥這些操作全是障眼法跟唬人。九柱神也好，王子也好，兩位天司妹子也罷，全是被不死鳥唬住當棄子。真正的目的是搞掉六龍招出天元六色之理。
+
