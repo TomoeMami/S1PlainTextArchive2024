@@ -570,3 +570,579 @@ bj为了讨好尼妹一脚把水桶踢翻拯救了老鼠
 
 我知道在量子蛋碎里和马克思佩恩一起喝水的是白妹
 
+*****
+
+####  mimiced  
+##### 41#       发表于 2024-2-2 19:56
+
+v社为啥会在意这些esg标准，又不是上市公司，游戏的接受度和销量会导向zzzq的么？那感觉大局已定，翻不了盘了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  变老的大二  
+##### 42#       发表于 2024-2-2 20:03
+
+<blockquote>mimiced 发表于 2024-2-2 19:56
+v社为啥会在意这些esg标准，又不是上市公司，游戏的接受度和销量会导向zzzq的么？那感觉大局已定，翻不了盘 ...</blockquote>
+v社有zzzq设定的我感觉就dota2动画吧。
+
+*****
+
+####  电波系腑海林  
+##### 43#       发表于 2024-2-2 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864669&amp;ptid=2170559" target="_blank">Onelooker 发表于 2024-2-2 18:33</a>
+就我看的这些零零碎碎的信息
+
+我更好奇的是dc粉丝的心理
+
+类比一下相当于如龙新作扮演一个三流黑道把桐生一马 ...</blockquote>
+看看电影华纳那些骚操作，不难理解为什么这个项目能够立项。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  社友者  
+##### 44#         楼主| 发表于 2024-2-2 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865084&amp;ptid=2170559" target="_blank">leader01234 发表于 2024-2-2 19:19</a>
+
+什么乱七八糟的阴谋论，这是多爱从4chan搬屎。这么一想往团队里塞zzzq代表可太有用了，进可上tga让 ...</blockquote>
+又没有完全黑esg啊，zzzq写得好的大有人在，反正不可能是这个sweet baby inc
+
+其次这贴从头到尾没提到剧情以外的任何内容，因为我压根就没玩过要我怎么评价
+
+自杀小队相比阿兰战神蜘蛛侠来说是个很好的例子，一个本该千篇一律的烂俗爆米花剧情为何也能够惹怒全网，连最爱打拳的resetera也看不下去这坨，调查一看编剧团队竟然是钻研zzzq的大手子，再调查编剧的过往发言和倾向，结合游戏中关键剧情的表现和文本描述发现刚好吻合，恰好是激怒网友的雷点，调查都到这了这锅不扣给zzzq那还能怎么编
+
+*****
+
+####  宛若青空  
+##### 45#       发表于 2024-2-2 20:18
+
+ 本帖最后由 宛若青空 于 2024-2-2 20:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864561&amp;ptid=2170559" target="_blank">社友者 发表于 2024-2-2 18:20</a>
+
+这贴一直1回复</blockquote>
+
+我还以为我这边出BUG显示了，原来是泥潭崩了
+
+说实话虽然之前就知道有这么一帮人存在，实际看到他们干的是还是被恶心得不得了。
+
+只希望自己喜欢的游戏不要被祸害了。
+
+*****
+
+####  社友者  
+##### 46#         楼主| 发表于 2024-2-2 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+其他游戏只是部分参与or顾问，自杀小队是剧本主力操刀，结果被全网炎上，说明这群人的水平就到这了
+
+好的zzzq写手本身也是好的写手，根本不需要像这群人一样以此为生
+
+*****
+
+####  wlgdc  
+##### 47#       发表于 2024-2-2 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做18x打桩游戏吧 这样剧情就合理了
+
+*****
+
+####  jy000129  
+##### 48#       发表于 2024-2-2 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63864561&amp;ptid=2170559" target="_blank">社友者 发表于 2024-2-2 18:20</a>
+
+这贴一直1回复</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">揭露这种内容的都会被限流
+
+*****
+
+####  九十九忍  
+##### 49#       发表于 2024-2-2 22:11
+
+笑了，有当初全网猎杀犹太教那味了
+
+*****
+
+####  leader01234  
+##### 50#       发表于 2024-2-2 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865557&amp;ptid=2170559" target="_blank">社友者 发表于 2024-2-2 20:15</a>
+
+又没有完全黑esg啊，zzzq写得好的大有人在，反正不可能是这个sweet baby inc
+
+其次这贴从头到尾没提到剧情 ...</blockquote>
+调查编剧团队==调查Kim Belair一人，怎么没有Kate Watson深度挖掘，他还是Advanced Scriptwriter呢,是4chan老哥没说吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。结合游戏关键剧情==确实看得出来挺捧WW的，问题好像没几个人对WW剧情有意见啊，如果是他们要求把最伟大的绿灯侠换成囧司徒我替哈尔谢谢他们。
+
+我真的觉得先用还算正常的WW塑造证明是这个zzzq外包写的剧本，再把所有狗屎虐英雄情节甩锅给他们很离谱。幕后纪录片里高谈阔论将从反派的视角来看世界多么新颖的人是都失踪了吗。sweet baby inc极大概率是不懂漫画也不懂写作的废物编剧，那么多Director看都不带看的是吗，如果他们能耐大到他们写的东西Rs一笔都不敢动又怎么可能纪录片上连个脸都不漏。学cdpr发小电影就要挨蠢驴的喷。
+
+*****
+
+####  社友者  
+##### 51#         楼主| 发表于 2024-2-2 23:36
+
+ 本帖最后由 社友者 于 2024-2-2 23:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63866420&amp;ptid=2170559" target="_blank">leader01234 发表于 2024-2-2 22:12</a>
+
+调查编剧团队==调查Kim Belair一人，怎么没有Kate Watson深度挖掘，他还是Advanced Scriptwriter呢,是4ch ...</blockquote>
+简单讲，为什么不能6个编剧全是贵物，其中2个来自sweet baby inc，并且在官网上<strong>明确公开</strong>表示它们负责了剧本过场音频烂梗etc，其他4人本来就是穿同一条裤子，而且整个团队9年内不断换血逐渐贵物化，本身这个游戏能立项就已经很贵物了，你现在在跳出来说这里还有几个贵物那里还有几个贵物有啥意义吗
+
+揪出sweet baby inc=我在帮rocksteady甩锅，网友真是无孔不钻啊
+
+另外这不是一个所谓的4chan独醒贴，4chan只是一个流量巨大+曝光率大的匿名网站，关于sweet baby inc和Rocksteady内部讨论这两月在ytb x reddit neogaf上到处到是
+
+*****
+
+####  naclken.  
+##### 52#       发表于 2024-2-3 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸寄生于男人的丑态
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 53#       发表于 2024-2-3 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 54#       发表于 2024-2-3 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 55#       发表于 2024-2-3 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 56#       发表于 2024-2-3 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 57#       发表于 2024-2-3 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  naclken.  
+##### 58#       发表于 2024-2-3 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 59#       发表于 2024-2-3 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865164&amp;ptid=2170559" target="_blank">强化人小叶子1号 发表于 2024-2-2 19:29</a>
+
+不单针对这个作品，如果真的有个zzzq指标的话，那他们这么爱往游戏里塞屎确实合理了起来 ...</blockquote>
+一个是有指标，一个是明显有一部分白左创作者对老作品是存在巨大恶意的，所以才经常做出不惜毁掉整个IP也要ZZZQ私货糊脸的行为，就连星战这种顶级IP都不能幸免
+
+*****
+
+####  popchong  
+##### 60#       发表于 2024-2-3 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865164&amp;ptid=2170559" target="_blank">强化人小叶子1号 发表于 2024-2-2 19:29</a>
+
+不单针对这个作品，如果真的有个zzzq指标的话，那他们这么爱往游戏里塞屎确实合理了起来 ...</blockquote>
+一个是有指标，一个是明显有一部分白左创作者对老作品是存在巨大恶意的，所以才经常做出不惜毁掉整个IP也要ZZZQ私货糊脸的行为，就连星战这种顶级IP都不能幸免
+
+*****
+
+####  naclken.  
+##### 61#       发表于 2024-2-3 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 62#       发表于 2024-2-3 19:15
+
+这几年有不少对传统道德不满的白左编剧在重要IP的项目上身居要职，不惜毁了整个IP也要拿ZZZQ私货糊观众一脸
+
+*****
+
+####  naclken.  
+##### 63#       发表于 2024-2-3 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63865397&amp;ptid=2170559" target="_blank">zzy516232108 发表于 2024-2-2 19:55</a>
+
+印象最深的一次在游戏中看到黑人气的浑身发抖，是德军总部新巨人
+
+BJ小时候很惨，他的daddy一直虐待他，搞得 ...</blockquote>
+老鼠这段我印象也极其深刻，感觉制作组是超级反串黑
+
+讽刺了尼妹在面对一件易如反掌的小事时也只能无能狂啸的丑态
+
+白左圣母遇事不是行动而是道德攻击男人，简直太像了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 64#       发表于 2024-3-5 08:55
+
+爽瓜！外国组织因干涉游戏“政治正确”而被玩家怒怼锁号  近日，推特用户PeterOvo5发文怒喷 Sweet Baby Inc. 组织在游戏里大搞“政治正确”，把《神鬼寓言4》中本来挺漂亮的女模特硬生生变丑等“卑鄙”行为。而这仅是该组织挨喷的一小步。  Sweet Baby Inc.组织是一个为各种公司提供“政治正确”或LGBTQ等相关服务的组织，参与的游戏包括《心灵杀手2》《漫威蜘蛛侠2》《战神：诸神黄昏》等，有玩家爆料称，该组织还参与了《神鬼寓言》重制版的开发……  对于该组织越来越肆无忌惮的行为，外网玩家彻底坐不住了，今年2月底，玩家Kabrutusrambo在Steam上建立了一个新的鉴赏家页面“Sweet Baby Inc detected”，该页面下的游戏全部都有这个组织的参与，目的是提醒玩家注意避雷。然而这种行为遭到了组织成员的反对，该组织编剧Chris Kindred直接在推特上号召粉丝们去攻击Kabrutusrambo，还给出了他的Steam个人账号。  不过粉丝们的反应也是积怨已久，不仅没有去攻击Kabrutusrambo，反而怒喷Chris Kindred没有道德。目前这位编剧，以及Sweet Baby Inc.组织的官方推特都已经被锁定无法访问，而鉴赏家页面“Sweet Baby Inc detected”的人数反而从开始的不到1万人狂飙至10.4万人。Kabrutusrambo也对所有支持他的成员们表示感谢。  现在，Kabrutusrambo在推特置顶了一句话：当 Sweet Baby Inc. 的某人讨厌你时，这表明你可能站在正确的一边。
+
+
+*****
+
+####  山岚夜雨  
+##### 65#       发表于 2024-3-5 09:03
+
+zzzq大军呢，咋没抬一手
+
+
+*****
+
+####  blueeyesww  
+##### 66#       发表于 2024-3-5 09:10
+
+zzzq确实恶心，但虐杀超级英雄我喜欢，尤其是蝙蝠侠，玩阿卡姆系列，我都想锤死这个蝙蝠侠
+
+
+*****
+
+####  那由  
+##### 67#       发表于 2024-3-5 09:17
+
+已经13w+订阅了，冲到了巴西区鉴赏家第一名<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双面人  
+##### 68#       发表于 2024-3-5 09:47
+
+<blockquote>社友者 发表于 2024-2-2 01:05
+v友制作，新鲜出炉的Sweet Baby Inc眼中的“油腻师姐”</blockquote>
+右边那个不是黑人兄弟吗
+
+
+*****
+
+####  normalli  
+##### 69#       发表于 2024-3-5 10:10
+
+虽然有点阴谋论，但是却能解释为啥厂商宁可不赚钱也要zzzq，原来还是资本市场的锅，用投资/被投资的角度来解释这种风向就非常合理了。
+投资者不玩游戏，只想通过游戏赚钱，而投资需要前瞻性，所以预测风向很重要，而zzzq就是宏观层面的大势所趋，投资者会按照这个标准投资。
+游戏公司为了拿到投资，必须迎合投资者的喜好，因为游戏在做出来之前玩家是不会掏钱的，越大的公司受的影响越大，而彻底没机会拿到大投资的小公司和制作组反而不太受到束缚。
+这其实就是经典资本市场盲目性的体现。
+
+
+*****
+
+####  GarfieldX  
+##### 70#       发表于 2024-3-5 10:27
+
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板
+
+
+*****
+
+####  superlink  
+##### 71#       发表于 2024-3-5 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">技术老白男，看公司这德行剧本这德行估计都跑光了，游戏当然没人做了
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  春哥亲自  
+##### 72#       发表于 2024-3-5 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150721&amp;ptid=2170559" target="_blank">GarfieldX 发表于 2024-3-5 10:27</a>
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
+线虫怎么能理解死宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  双面人  
+##### 73#       发表于 2024-3-5 11:34
+
+<blockquote>GarfieldX 发表于 2024-3-5 10:27
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
+马斯克咯，他真有一个儿子
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 74#       发表于 2024-3-5 11:34
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-3-5 11:35 编辑 
+
+记得有个说法是不加zzzq内容，会惹官司，还是被某个国家官方组织制裁，要赔钱来着
+
+
+*****
+
+####  langleizhi  
+##### 75#       发表于 2024-3-5 11:48
+
+支持川宝复辟的理由又多了一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bhunter  
+##### 76#       发表于 2024-3-5 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64150721&amp;ptid=2170559" target="_blank">GarfieldX 发表于 2024-3-5 10:27</a>
+
+那为啥没有不喜欢zzzq的资本家，宅男都这么弱鸡吗，做不了大老板</blockquote>
+当然有，可是赚钱跟是否喜欢又不是等价关系。之前的环境，zzzq是降低风险。
+
+
+*****
+
+####  天才八嘎  
+##### 77#       发表于 2024-3-5 12:19
+
+感觉以后得欧美游戏是好不了了
+
+
+*****
+
+####  FortuneAura  
+##### 78#       发表于 2024-3-5 12:42
+
+突然冒出这么一个带恶人扛下所有也是挺怪的，除他之外肯定也有其他类似业务的公司，或者大厂内部有类似的部门，只是他比较倒霉最近被挖出来推到风口浪尖了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zhai1zhai0  
+##### 79#       发表于 2024-3-5 13:27
+
+我喜欢德军总部的一点是同时得罪白左白右，混乱邪恶无差别黑
+
+
+*****
+
+####  夏延  
+##### 80#       发表于 2024-3-5 13:30
+
+感觉有点搞笑，文章说厂家请sweet baby的原因是投资者不想赚钱也要往玩家脑子里塞lgbt，这不就是白右的影子政府阴谋论吗？为什么会觉得投资者是一个步调一致的整体，真觉得他们会每年开个圆桌会议决定要给玩家喂哪些屎吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+我觉得还是厂商从老板到员工自身就信这套比较有说服力。
+
+
+*****
+
+####  D-JoeII  
+##### 81#       发表于 2024-3-5 13:40
+
+這件事最有趣的地方是很多遊戲玩家發現原來IMDB跟維基一樣誰都能編輯
+
+
+*****
+
+####  ardito  
+##### 82#       发表于 2024-3-5 13:48
+
+zq联盟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  毛利提督  
+##### 83#       发表于 2024-3-7 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64153034&amp;ptid=2170559" target="_blank">ardito 发表于 2024-3-5 13:48</a>
+
+zq联盟</blockquote>
+乐子：ZQ for Zoe Quinn<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/07/173218yotuxd2sg7xnx55t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>biQ0-1vpiZuT3cSu0-1ck.jpeg</strong> (171.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-7 17:32 上传
+
+因为Kotaku站出来写文章[https://kotaku.com/sweet-baby-inc-consulting-games-alan-wake-2-dei-1851312428](https://bbs.saraba1st.com/2b/链接)给Sweet Baby Inc.站台
+
+然后就有人开扒Kotaku和Sweet Baby Inc.
+
+结论是Sweet Baby Inc.和当年玩家门事件的核心人物Zoe Quinn以及Anita Sarkessian都有关系，Kotaku也是当年玩家门的参与者
+
+*****
+
+####  毛利提督  
+##### 84#       发表于 2024-3-7 17:44
+
+ 本帖最后由 毛利提督 于 2024-3-7 17:46 编辑 
+
+风怒
+
+*****
+
+####  毛利提督  
+##### 85#       发表于 2024-3-7 17:44
+
+风怒
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 86#       发表于 2024-3-7 17:53
+
+原来还有专门做这个的，哈人
+
+
+*****
+
+####  wbtsy  
+##### 87#       发表于 2024-3-7 19:04
+
+Kotaku来辟谣？那不是反而实锤了？
+
+
+*****
+
+####  欠损  
+##### 88#       发表于 2024-3-8 04:59
+
+参与了一堆“美术类”游戏，但这公司的官网设计还™不如zombo.com。
+
+真就纯为了喂屎而生啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  D-JoeII  
+##### 89#       发表于 2024-3-8 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64180318&amp;ptid=2170559" target="_blank">毛利提督 发表于 2024-3-7 17:44</a>
+
+乐子：ZQ for Zoe Quinn</blockquote>
+那就不止混子了
+
+希望盡快倒掉
+
+
+*****
+
+####  Jimlee079  
+##### 90#       发表于 2024-3-8 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你要投资人的钱，那就拿不到玩家的钱咯
+
+
+*****
+
+####  byisme001  
+##### 91#       发表于 2024-3-8 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64187758&amp;ptid=2170559" target="_blank">Jimlee079 发表于 2024-3-8 11:54</a>
+你要投资人的钱，那就拿不到玩家的钱咯</blockquote>
+确实是这样，非独立游戏理论上是制作者拿投资人的钱，投资人拿玩家的钱。虽然不可能，但如果真是投资人宁可不要玩家的钱也要塞那些内容，那也没辙
+
