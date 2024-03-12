@@ -2832,3 +2832,35 @@ dragon是可以长条，龙也可以短条，这点许慎也是支持的，所�
 
 高楼必有智障
 
+*****
+
+####  酷乐  
+##### 249#       发表于 2024-3-9 17:55
+
+[https://www.bilibili.com/video/BV1bA4m1G7qG/](https://www.bilibili.com/video/BV1bA4m1G7qG/)
+
+看看评论区一堆魔怔人在那出警，却不知道别人每年都会做一个生肖。
+
+
+*****
+
+####  亚尔迪8424  
+##### 250#       发表于 2024-3-9 18:23
+
+蒙奇d多拉贡
+
+
+*****
+
+####  酷乐  
+##### 251#       发表于 2024-3-9 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64200669&amp;ptid=2171337" target="_blank">亚尔迪8424 发表于 2024-3-9 18:23</a>
+
+蒙奇d多拉贡</blockquote>
+台湾：蒙其·D·多拉格
+
+港澳：莫奇·D·杜拉剛
+
+大陆：蒙奇·D·龙
+
