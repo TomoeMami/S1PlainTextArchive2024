@@ -635,3 +635,20 @@ season2は2024年1月放送開始
 
 十几集动画里最有信息量的一集
 
+*****
+
+####  MONSTERS  
+##### 48#       发表于 2024-3-13 22:22
+
+关智一刚拿牌要开挂接着就惨死，乱七八糟的挡刀和被捅.....写的什么弱智剧情
+
+还有两话了看怎么编<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 49#       发表于 2024-3-14 08:39
+
+没有相爱相杀的条件就创造条件，反正大家都死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
