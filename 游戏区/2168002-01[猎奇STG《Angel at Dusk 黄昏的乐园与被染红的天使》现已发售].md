@@ -1983,3 +1983,12 @@ ex难度上轮椅按住a键不是乱宰<img src="https://static.saraba1st.com/im
 打到13层，怪从屏幕上面刷出来，绕 ...</blockquote>
 蓄力武器换5联装的生物导弹试试，打小怪要贴脸，屏幕上端刷出来就贴上去，小怪放白光就是要发射了，提前蓄力档一波子弹。
 
+*****
+
+####  洁西卡  
+##### 160#       发表于 2024-3-17 22:17
+
+没想到我连故事模式的清流天使都打不过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
