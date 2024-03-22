@@ -451,3 +451,64 @@ TVアニメ『#ザ・ファブル』
 
 さらに、ディズニープラスで全話見放題　世界独占も決定
 
+*****
+
+####  Piano-Forest  
+##### 45#       发表于 2024-3-17 23:20
+
+正式PV：
+[https://youtu.be/gcZXJ8cxDpM](https://youtu.be/gcZXJ8cxDpM)
+[https://youtu.be/QrqwBDVXNG8](https://youtu.be/QrqwBDVXNG8)
+
+
+*****
+
+####  糖尔  
+##### 46#       发表于 2024-3-18 02:50
+
+这怎么看高桥也就是个挂名，最多总体上点拨几笔的那种<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">参与度估计还不如幕末机关说
+
+
+*****
+
+####  16B  
+##### 47#       发表于 2024-3-19 00:13
+
+变相加强了漫画的吸引力<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+这部漫画从角色到作者都是专家，那么为什么动画交不到专家手里呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 48#       发表于 2024-3-19 00:42
+
+ 本帖最后由 smdzh2 于 2024-3-19 01:43 编辑 
+
+手冢p我说你什么好呢，小岬画得跟40岁黄脸婆似的，其他画面也是各种难绷，打斗还搞ppt+线条那套，明明地下忍者做得还行，怎么专家这部又拉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不过还是要夸一下ed，相当带感
+
+*****
+
+####  山岚夜雨  
+##### 49#       发表于 2024-3-19 00:45
+
+地下忍者做的还行吗？制作难道不是一如既往，不过是前期玩了个花招乱叙赚了点口碑本质依然的及格线以下的制作水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，恰好这破制作对上原作的黑色幽默电波所以显得还能看罢了
+
+
+*****
+
+####  山代风我  
+##### 50#       发表于 2024-3-19 09:39
+
+地下忍者制作勉强算是及格线吧，起码用了点心思在，至于为啥是手冢P做，说明资方本来也就这么个期待和投入而已
+
+
+*****
+
+####  gawain  
+##### 51#       发表于 2024-3-20 01:12
+
+事实就是青漫不赚钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 找手冢凑活凑活的了
+
