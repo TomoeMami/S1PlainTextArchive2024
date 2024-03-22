@@ -1275,3 +1275,78 @@ LZ写一个LWOTC安装教程才是最实际的
 
 —— 来自 OnePlus CPH2487, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+*****
+
+####  tansapple  
+##### 63#       发表于 2024-3-19 08:16
+
+最近在玩lwotc，帮楼主捞一下吧，一开始没搞清楚下本人数和潜伏时间的关系，各种时间过长被援军围剿，后面搞懂之后组四人队就简单了，清理任务效率都高了，现在组四个忍者菜刀队一路切瓜砍菜好爽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ChrisSnake  
+##### 64#       发表于 2024-3-19 09:01
+
+有没有最高难度+所有debuff的教学
+
+
+*****
+
+####  acgzero  
+##### 65#       发表于 2024-3-19 09:14
+
+xcom2实在是太复杂了。。。
+
+今年开了一次坑，玩的举步维艰，最后化身计划满了崩盘弃坑
+
+各种玩不明白
+
+
+*****
+
+####  tansapple  
+##### 66#       发表于 2024-3-19 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64295866&amp;ptid=2149476" target="_blank">acgzero 发表于 2024-3-19 09:14</a>
+xcom2实在是太复杂了。。。
+
+今年开了一次坑，玩的举步维艰，最后化身计划满了崩盘弃坑
+
+各种玩不明白 ...</blockquote>
+原版wotc的话，可以先用新手难度开教程打一遍，有指引不至于不知道该干嘛，然后还可以打一些便利性功能改善mod提升游戏体验，便于看清敌人警戒范围，以及光标显示走位能打到哪些怪， 能不能触发侧击，以及显示敌人属性和技能等等，基本上能顺利通关一次就能把xcom2基础系统摸清了。之后再上难度或者挑战铁人模式，如果还觉得不过瘾就下lwotc这个大型mod给自己上强度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fallout  
+##### 67#       发表于 2024-3-19 10:02
+
+搭车问一下，现在春促大礼包6x块值得全买吗？还是挑本体9.5买就好？
+
+
+*****
+
+####  conankyo  
+##### 68#       发表于 2024-3-19 10:15
+
+xcom2最好买全套的，不带dlc的本体现在没啥玩的价值了，而且优化还不好
+
+往后来说，像是lwotc这样的大型dlc基本都是以wotc和全dlc为前提的了
+
+
+*****
+
+####  tansapple  
+##### 69#       发表于 2024-3-19 10:24
+
+最好全买，一些大型mod和功能性改良mod都会用到dlc里的参数，现在全套打包才60多相当划算了，以前原版xcom2，wotc，传承模式都是分开卖的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  林无德  
+##### 70#       发表于 2024-3-19 12:13
+
+已经贵了，1月时全系列大包才40几
+
