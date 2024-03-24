@@ -1287,3 +1287,49 @@ win10开始睡眠就是一坨屎，最可怕的是明明睡眠了放到包里还
 
 开盒盖休眠以后到不会自动唤醒了，待机耗电也正常了，但再唤醒就慢多了
 
+*****
+
+####  overflowal  
+##### 1136#       发表于 2024-3-21 13:10
+
+我有点想买个x86掌机，2024版的gpd win4，比较小，然后有物理键盘，据说屏幕也更新了，这个系列有什么坑吗？
+如果不考虑这个，还有什么产品推荐吗？（不想要那种翻盖的，因为会玩些触控类的游戏
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  举头望明月  
+##### 1137#       发表于 2024-3-21 13:19
+
+想要一个400g优质屏适合打独游和串流的7-8寸掌机，不知道市场上有没有
+
+
+*****
+
+####  xiuwf  
+##### 1138#       发表于 2024-3-21 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64321808&amp;ptid=2086469" target="_blank">overflowal 发表于 2024-3-21 13:10</a>
+
+我有点想买个x86掌机，2024版的gpd win4，比较小，然后有物理键盘，据说屏幕也更新了，这个系列有什么坑吗? ...</blockquote>
+同...之前出了rog ally~但是没有物理键盘总觉得缺了啥
+
+于是转而去看ayaneo flip kb
+
+不过最近听说4月份就要出gpd pocket 4的消息了
+
+打算再观望一下
+
+
+*****
+
+####  overflowal  
+##### 1139#       发表于 2024-3-21 13:52
+
+看了一下还有两个备选，飞行家f1和ROG Ally。飞行家比较小点，配置也可以拉的更高。
+但是ROG背后是大厂，据说优化做的不错，真是难选
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
