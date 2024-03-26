@@ -788,3 +788,170 @@ figma游戏线做得大多不错，这次林克的关节也都翻新了看得出
 
 真不错
 
+*****
+
+####  冷泉夜月  
+##### 15687#       发表于 2024-3-22 12:01
+
+<img src="https://img.saraba1st.com/forum/202403/22/115445u9e1lnhcy7nh94yc.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1711076108143d94f33122fdf34244eee69f4a012a7ae0b166eceb8688f01d985fb3fdcf7490d.jpg</strong> (614.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202403/22/115453w7wrn1r1eyzfkrre.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17110761102034d131937b0e53926e839803859851c2024c0dd626dfd5f4ab6de6c4c7e39cd85.jpg</strong> (899.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202403/22/115500tya8jjjtx46y00gj.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17110761124248ded470064c5ee50aa3fd801cc2d5744ec2c27cee8b7370edea932adc5aa9343.jpg</strong> (653.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/22/115519e6ke439le6ld4znz.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17110761177514e223964dbe4779b8561bd0a276789a99374f6a771b0e80136d02fbd0aee5f08.jpg</strong> (784.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202403/22/115527ciiw0snpkj9k84kj.jpg" referrerpolicy="no-referrer">
+
+<strong>img-171107612005087cd12d6e280b86a6af73b73b69c6a4e8bd447eec190e1e0375bacdbe37cb7b3.jpg</strong> (881.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-22 11:55 上传
+
+ND5月号有不少关于figma王泪林克新关节可动的介绍，也提到了大腿有下拉关节，滑翔帆的飘带有球关可动～ 
+
+王泪林克的提案是野炊续作预告（2019年）时就上报给老任了，其实他们一直想做英杰服林克（结果直接做成王泪了）
+
+感觉还是老任卡版权太严太慢。。。
+
+加侬多夫难道会附带那个表情？！其实在王泪pv3看到那个像加侬的人出现时他们就想做了，社内的第一版提案就是附带了表情的版本（玩过都懂的那个(
+
+ 塞尔达的身高会比林克稍高一点，还提到林克可以拿塞尔达附带的配件（不知道除了破损大师剑有没有符文大师剑）
+
+
+*****
+
+####  ladiesman802  
+##### 15688#       发表于 2024-3-22 14:21
+
+环大陆发售，老任又来这套，上次的xb2手办也是这样
+
+
+*****
+
+####  zakufa782  
+##### 15689#       发表于 2024-3-23 10:23
+
+ 本帖最后由 zakufa782 于 2024-3-23 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64290014&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-3-18 15:11</a>
+
+这价格感觉还行？（虽然以前并没有买过figma）
+
+另外大家有推荐购买的地方吗……基于对欧洲的不信任，我感觉 ...</blockquote>
+从日本买就Amiami国际站或者日本亚马逊，其实goodsmile在欧洲和美国也都有官方网店可以直接买，不太推荐国内买
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15690#       发表于 2024-3-23 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346377&amp;ptid=1997982" target="_blank">zakufa782 发表于 2024-3-23 10:23</a>
+从日本买就Amiami国际站或者日本亚马逊，其实goodsmile在欧洲和美国也都有官方网店可以直接买，不太推荐国 ...</blockquote>
+啊，感谢分享！！
+因为我常去的收集/分享这类信息的网站一直没更新过相关信息，再加上之前买塞尔达方面的小人各种受挫，我还以为这回欧洲又没官方渠道买来着，刚搜了下发现居然有，那就果断在欧洲定了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冷泉夜月  
+##### 15691#       发表于 2024-3-23 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346822&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-03-23 11:09:22</a></blockquote>那也挺好了，至少比在大陆买方便多了，老任就突出一个有钱不愿意赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zakufa782  
+##### 15692#       发表于 2024-3-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64346822&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-3-23 11:09</a>
+
+啊，感谢分享！！
+
+因为我常去的收集/分享这类信息的网站一直没更新过相关信息，再加上之前买塞尔达方面的 ...</blockquote>
+欧洲站是最近的新网站，本来的国际站被合并到日本本站了，一开始欧美那边还以为欧洲站是假网站<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hosilly  
+##### 15693#       发表于 2024-3-23 12:25
+
+姑且先在日亚定了，要是砍单只能886
+
+—— 来自 vivo V2284A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ramsenia  
+##### 15694#       发表于 2024-3-23 12:33
+
+Fami通上有王泪整场GDC演讲的图文报道了
+https://s.famitsu.com/news/202403/21337727.html
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15695#       发表于 2024-3-23 23:37
+
+雨后出门买菜，发现穷人版爱心湖<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202403/23/233722fmcso8i17sigcz58.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7090.JPG</strong> (423.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-23 23:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15696#       发表于 2024-3-24 04:41
+
+https://mynintendonews.com/2024/03/23/zelda-movie-director-says-he-wants-fulfil-peoples-greatest-desires/
+
+“I have this awesome idea. I’ve been thinking about it for a long freakin’ time, of how cool a Zelda movie would be… I want to fulfil people’s greatest desires. I know it’s important, this [Zelda] franchise, to people and I want it to be a serious movie. A real movie that can give people an escape.”
+
+Ball even points to that escapism (“I want to live in that world,” he says) as the driving force behind The Legend of Zelda movie. 
+
+“That’s the thing I want to try to create – it’s got to feel like something real. Something serious and cool, but fun and whimsical.”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
