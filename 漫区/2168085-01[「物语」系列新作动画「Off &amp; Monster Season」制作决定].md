@@ -952,3 +952,197 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 这动画如果出色的话，四舍五入就是《__神动画》
 
+*****
+
+####  Tachikoma88  
+##### 107#       发表于 2024-3-24 00:40
+
+<img src="https://img.saraba1st.com/forum/202403/24/004008ikk95g9uk4ckz0pc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (230.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-3-24 00:40 上传
+
+看起来是年内播出了
+
+
+*****
+
+####  Tachikoma88  
+##### 108#       发表于 2024-3-24 15:09
+
+这是要跳过育惨败，先做月火的吗？
+
+*****
+
+####  Piano-Forest  
+##### 109#         楼主| 发表于 2024-3-24 15:09
+
+第1話は 愚物語 ｜2024年
+
+￣￣￣￣￣￣￣￣￣￣￣
+
+中学三年生になった阿良々木月火は、
+
+今日も変わらぬ日常を過ごしていた。
+
+月火の監視を続けている斧乃木余接だったが、
+
+少しの油断から、
+
+初めて重大なミスを犯してしまう。
+
+事態を解決するべく余接が向かった先は、
+
+千石撫子の家で――。
+
+先导PV：[https://youtu.be/_3T5Dmug7c0](https://youtu.be/_3T5Dmug7c0)
+
+<img src="https://p.sda1.dev/16/2c84f632baa6e9625978024080ca78ae/20240324_150805.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狼王卢比奥  
+##### 110#       发表于 2024-3-24 15:12
+
+构成上调换顺序了，不知道怎么考量
+
+*****
+
+####  Tachikoma88  
+##### 111#       发表于 2024-3-24 15:13
+
+老仓育你好惨啊，戏外还要被迫害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  meailove  
+##### 112#       发表于 2024-3-24 15:15
+
+感觉很不错，相信沙发套<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">等一个重回巅峰
+
+
+*****
+
+####  狼王卢比奥  
+##### 113#       发表于 2024-3-24 15:19
+
+杉山延宽回总作监，神前晓负责音乐
+
+*****
+
+####  Tachikoma88  
+##### 114#       发表于 2024-3-24 15:21
+
+不会是因为育惨败是愚物语里最难改编的所以拖到后面了吧
+
+
+*****
+
+####  猫兔同笼  
+##### 115#       发表于 2024-3-24 15:25
+
+愚物语喜欢的部分就是育惨败
+“我是阿良良木派的”<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  广东侠  
+##### 116#       发表于 2024-3-24 15:29
+
+育惨败要怎么改啊，难道把所有出现的人都用汉字来抽象化表达吗？
+
+
+*****
+
+####  Lollipopstar  
+##### 117#       发表于 2024-3-24 15:37
+
+还是熟悉的味道，或者说怕你觉得不够内味儿都是各种既视感的分镜，也感受到摄影方面的发展… 再次听到这些角色说话还是挺感慨的，今年就能看到挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  751984871  
+##### 118#       发表于 2024-3-24 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉是少女与战车那样的马拉松企划了，区别只是放在TV上。
+
+（估计bangumi条目以后也要拆成多个了。）
+
+*****
+
+####  仟音一心  
+##### 119#       发表于 2024-3-24 16:00
+
+啊这，居然是月火·Undo第一个。
+
+
+*****
+
+####  歪镜  
+##### 120#       发表于 2024-3-24 16:04
+
+意料之外情理之中，月火篇是愚里趣味性最足的一篇
+
+
+*****
+
+####  oi99o  
+##### 121#       发表于 2024-3-24 16:09
+
+故事介绍是月火篇，新kv是殊杀尊者，该不会愚物语前两篇都被跳了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  歪镜  
+##### 122#       发表于 2024-3-24 16:13
+
+<blockquote>oi99o 发表于 2024-3-24 16:09
+故事介绍是月火篇，新kv是殊杀尊者，该不会愚物语前两篇都被跳了吧</blockquote>
+应该不会，先导图里还是有神原的，老仓确实不知道了
+
+*****
+
+####  Tachikoma88  
+##### 123#       发表于 2024-3-24 16:14
+
+<blockquote>oi99o 发表于 2024-3-24 16:09
+故事介绍是月火篇，新kv是殊杀尊者，该不会愚物语前两篇都被跳了吧</blockquote>
+可能是井上看到育惨败的文本量连夜跑路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 124#       发表于 2024-3-24 16:15
+
+既然还不公布具体放映形式，那我只能先奶一口必有剧场先行上映了，之后是ova发碟还是tv特番放送就再说
+
+
+*****
+
+####  Sliurus  
+##### 125#       发表于 2024-3-24 17:10
+
+愚物语我就是想看育惨败动画怎么拍的，沙发套一点挑战精神都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 126#       发表于 2024-3-24 17:27
+
+有没有可能愚人节直接放送育惨败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuki256  
+##### 127#       发表于 2024-3-24 17:28
+
+急急急
+
