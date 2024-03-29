@@ -652,3 +652,10 @@ season2は2024年1月放送開始
 
 没有相爱相杀的条件就创造条件，反正大家都死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+*****
+
+####  budong  
+##### 50#       发表于 2024-3-26 16:55
+
+完结了。捞一把
+
