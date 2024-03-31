@@ -223,3 +223,10 @@
 不过反正没钻等随缘白嫖了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 这次活动开始感觉灯光效果变强了？前几天我初打本次活动曲时，因为灯光的原因角色显得很闪亮，还以为人物模型加渲染效果了。
 
+*****
+
+####  花开安菲路  
+##### 7283#       发表于 2024-3-28 15:14
+
+抽到了海美的LNK，还好兔耳朵能够设定不显示，不然这身太微妙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
