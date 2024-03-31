@@ -288,3 +288,10 @@ CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
 
 不过有一说一，cy里面真的有管人粉吧，这联动方方面面都做全了，我都被吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kobushi  
+##### 5439#       发表于 2024-3-28 20:18
+
+V豚入坑干嘛，不给亲亲管人打钱给万南打钱来吗？小剧场漫画也亡了，今年关服还是明年关啊
+
