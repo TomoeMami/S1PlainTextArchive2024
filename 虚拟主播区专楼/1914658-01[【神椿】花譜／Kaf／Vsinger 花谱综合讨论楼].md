@@ -1705,3 +1705,14 @@ JOINT LIVE可真好看啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">要能主流出道成功，也多了一条延长职业生涯的路子吧
 
+*****
+
+####  الطائر  
+##### 134#       发表于 2024-3-28 23:25
+
+真人化 X
+
+出演《名侦探柯南》凶手 O
+
+[https://twitter.com/curling_flower/status/1772912618321105381](https://twitter.com/curling_flower/status/1772912618321105381)
+
