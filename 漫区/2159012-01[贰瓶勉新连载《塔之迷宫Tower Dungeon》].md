@@ -1248,3 +1248,59 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  ww-tsl  
+##### 74#       发表于 2024-3-29 14:40
+
+塔全高18公里，直径3公里，试图飞行闯入者会被龙群分尸。
+
+但是为啥每次进去都要出来再从头来过继续爬楼，为啥不一步一步建立基地和补给线？
+
+
+*****
+
+####  屡败屡战阿巴顿  
+##### 75#       发表于 2024-3-29 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64418000&amp;ptid=2159012" target="_blank">ww-tsl 发表于 2024-3-29 14:40</a>
+
+塔全高18公里，直径3公里，试图飞行闯入者会被龙群分尸。
+
+但是为啥每次进去都要出来再从头来过继续爬楼， ...</blockquote>
+人手不足，且塔会变动结构。这时候你需要掌握就地补给技术，没错，吃塔内生物吧！<img src="https://static.saraba1st.com/image/smiley/carton2017/169.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 76#       发表于 2024-3-29 16:50
+
+鉴于三人组发现捷径也没打算公之于众，小团队互相竞争的气氛下探险队之间根本无法协力建立前哨基地<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 77#       发表于 2024-4-1 11:37
+
+迷宫内果然有人类敌人，居然还是战团叛徒，给主角团好好上了一课，就是学费有点贵<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  popchong  
+##### 78#         楼主| 发表于 2024-4-1 11:51
+
+ 本帖最后由 popchong 于 2024-4-1 11:53 编辑 
+
+这次居然连汉字都不简化了吗。一直觉得二瓶勉世界里的简化字体是一种很高级的表现时代变迁和文明倒退的方式
+
+<img src="https://img.saraba1st.com/forum/202404/01/115047x1af722namrd4qoy.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240401115042.png</strong> (95.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-1 11:50 上传
+
