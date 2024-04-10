@@ -129,3 +129,10 @@ u1s1 你游策划是真爱触手 下个觉醒剧情要是一般人肯定会选�
 触手这次逼格狂跌啊，被碎片吞了分身连带部分魔王权能</blockquote>
 触手本身也不是本体 本来就没啥逼格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  rgauss  
+##### 979#         楼主| 发表于 2024-4-7 17:44
+
+今天韩国人跟我说迷宫的尽头跟负责触手的剧情的编剧是一个人
+
