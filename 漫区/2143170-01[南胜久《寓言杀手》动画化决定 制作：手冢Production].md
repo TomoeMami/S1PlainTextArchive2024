@@ -512,3 +512,186 @@ TVアニメ『#ザ・ファブル』
 
 事实就是青漫不赚钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 找手冢凑活凑活的了
 
+*****
+
+####  Mc凉月奏酱  
+##### 52#       发表于 2024-4-4 07:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然后手冢就会变成青漫界的P9，大家都去找他改编
+
+
+*****
+
+####  Lollipopstar  
+##### 53#       发表于 2024-4-7 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61564680&amp;ptid=2143170" target="_blank">Lollipopstar 发表于 2023-7-5 23:47</a>
+高桥良辅监督，再让杉野昭夫来画两卡（最近刚好在手冢P活动了下筋骨）.... 厚生劳动省多少得给手冢P颁个高 ...</blockquote>
+草杉野昭夫还真来了… 80岁监督配80岁原画，真佩服老爷子们的创作精力，手冢P某种意义也是个神奇的公司<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浴缸子  
+##### 54#       发表于 2024-4-7 09:16
+
+语速太慢了，男主这配音方式完全不行啊......
+
+
+*****
+
+####  山岚夜雨  
+##### 55#       发表于 2024-4-7 13:31
+
+谁指导兴津和幸这么配的？而且声线不贴吧？刻意压低反而有种装逼的感觉，原作的佐藤明是呆呆的不是装装的
+
+
+*****
+
+####  wolf1997  
+##### 56#       发表于 2024-4-7 20:54
+
+别的都能忍，男主这声音低得都要断气了，这哪是什么游刃有余的杀手啊
+
+
+*****
+
+####  smdzh2  
+##### 57#       发表于 2024-4-7 21:27
+
+pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悲剧啊啊  
+##### 58#       发表于 2024-4-8 01:00
+
+这配音有点难顶
+
+
+*****
+
+####  火红之眼  
+##### 59#       发表于 2024-4-8 03:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉就为了弄个反差故意配成这样，但也没必要啊.....就按真人版那么来配也挺自然的
+
+
+*****
+
+####  没取名啊  
+##### 60#       发表于 2024-4-8 12:38
+
+确实，太扯了这个配音<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wildarm  
+##### 61#       发表于 2024-4-8 14:50
+
+这节奏。。。这配音。。。还以为按了减速观看
+
+
+*****
+
+####  好much橘  
+##### 62#       发表于 2024-4-8 18:10
+
+1.25倍速比原速舒服
+
+
+*****
+
+####  ma05758  
+##### 63#       发表于 2024-4-8 18:51
+
+配音不能忍  这后面都会是这奇葩的说话节奏吗
+
+
+*****
+
+####  zayrq  
+##### 64#       发表于 2024-4-8 21:23
+
+这男主的声音真是遭不住，片子本身还凑合，
+
+
+*****
+
+####  山代风我  
+##### 65#       发表于 2024-4-9 00:18
+
+官方逼你开倍速系列，基本不怎么倍速看番的现在感觉良好<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ajunsama  
+##### 66#       发表于 2024-4-10 00:25
+
+就听个泽城了
+
+
+*****
+
+####  zzf111  
+##### 67#       发表于 2024-4-10 00:54
+
+好有活力的美雪配音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+但是男主不行
+
+
+*****
+
+####  k1no  
+##### 68#       发表于 2024-4-10 16:20
+
+想听美雪太太又不想听男主，好纠结啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  arcard  
+##### 69#       发表于 2024-4-10 17:29
+
+男主配的是很怪，但考虑到原作就是个怪咖人设，到没那么强烈的反感
+
+反而美雪太太配的妹妹有种念稿的味道是我的错觉么
+
+
+*****
+
+####  gs2-d2up  
+##### 70#       发表于 2024-4-10 23:32
+
+油腻腻的上色，意义不明的分镜白瞎了原作的电影感，真人版电影反而比动画好是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  琴音  
+##### 71#       发表于 2024-4-11 08:23
+
+果不其然，毁原作作品。
+
+
+*****
+
+####  pzk  
+##### 72#       发表于 2024-4-11 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">语速未免也太慢了，实际情节发展也很慢，感觉开了0.75倍速
+
+
+*****
+
+####  花礫  
+##### 73#       发表于 2024-4-11 10:49
+
+真人版的男主看得出来是呆，呆得很认真。
+
+动画莫名有种厌世、厌烦的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
