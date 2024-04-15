@@ -566,3 +566,332 @@ PV2：[https://youtu.be/jKNscVwATwI](https://youtu.be/jKNscVwATwI)
 
 ラナク：柳田淳一
 
+*****
+
+####  Mc凉月奏酱  
+##### 48#       发表于 2024-4-2 21:19
+
+建议添加搜索关键词： 无名记忆 /Unnamed Memory <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xvi黑翼公  
+##### 49#       发表于 2024-4-2 21:33
+
+快开播了，我先给动画观众打个预防针，估计动画只做第一部，看着喜欢的慎重考虑要不要往下看原作后续<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这书第一部属于珍珠奶茶，很甜很好喝，就是有点腻，能接受这个风格的观众看下去都不会太反感；
+
+但是接下来第二部就是突然给你上一杯黑咖啡，nmd太苦了，越喜欢第一部越难入口，特别喜欢第一部的甚至有可能骂街弃坑的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后续第三部收尾就像是一杯茶了，有苦涩有回甘，总体上讲还是不错的，算是能回味一段时间的结局
+
+
+*****
+
+####  yenvy  
+##### 50#       发表于 2024-4-2 22:17
+
+据说这部是24集分割？
+
+
+*****
+
+####  星火龙  
+##### 51#       发表于 2024-4-3 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64245770&amp;ptid=2109771" target="_blank">Piano-Forest 发表于 2024-3-13 23:07</a>
+
+PV2：https://youtu.be/jKNscVwATwI
+
+2024年4月9日(火)より放送・配信開始</blockquote>
+B站似乎要上了～
+
+《无名记忆》 先导PV
+[https://b23.tv/ep818684](https://b23.tv/ep818684)
+
+*****
+
+####  星火龙  
+##### 52#       发表于 2024-4-3 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64464116&amp;ptid=2109771" target="_blank">xvi黑翼公 发表于 2024-4-2 21:33</a>
+
+快开播了，我先给动画观众打个预防针，估计动画只做第一部，看着喜欢的慎重考虑要不要往下看原作后续[f:067 ...</blockquote>
+听说还有很多前传和后日谈，但不知道在哪里看……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 53#         楼主| 发表于 2024-4-3 22:12
+
+📜メインビジュアル第2弾解禁📜
+
+「子孫を残せない呪い」を持つ
+
+大国の王太子・オスカーと
+
+”青き月の魔女” ティナーシャの緊迫した様子。
+
+さらに、ルクレツィア、レオノーラ、沈黙の魔女やティナーシャと深い関わりを持つラナクの姿も！
+
+4/9(火)AT-Xほかにて放送開始🗝️
+<img src="https://p.sda1.dev/16/a2e4398e8c23a6f587c3e9e9492d9c16/20240403_221218.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ditfran  
+##### 54#       发表于 2024-4-3 23:12
+
+第一集英肉出来了，比想象中的稍微好点，战斗部分就不指望了，至少人物没崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+男主的CV感觉不太行，老气横秋+有点棒读。
+
+华哥配的缇娜夏倒是很不错，虽然刚登场时串戏到了芙莉莲，不过后面换了个声线后感觉好多了。感觉之后的集数唯一能支撑我看下去的就是华哥配的缇娜夏了
+
+
+*****
+
+####  xvi黑翼公  
+##### 55#       发表于 2024-4-4 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64476984&amp;ptid=2109771" target="_blank">Ditfran 发表于 2024-4-3 23:12</a>
+
+第一集英肉出来了，比想象中的稍微好点，战斗部分就不指望了，至少人物没崩
+
+男主的CV感觉不太行，老 ...</blockquote>
+奥斯卡配的不好很容易让人感觉霸总+油腻，毕竟调情桥段那么多，难度不低<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zayrq  
+##### 56#       发表于 2024-4-7 20:48
+
+第一集看起来海星，这个bba不比芙莉莲可爱多乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  公共汽车  
+##### 57#       发表于 2024-4-7 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求剧透，后面大概什么时候生娃，生几个？
+
+主题如此鲜明的作品，不生几个说不过去啊。
+
+
+*****
+
+####  xvi黑翼公  
+##### 58#       发表于 2024-4-7 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517450&amp;ptid=2109771" target="_blank">公共汽车 发表于 2024-4-7 20:57</a>
+
+求剧透，后面大概什么时候生娃，生几个？
+
+主题如此鲜明的作品，不生几个说不过去啊。 ...</blockquote>
+后面是命运石之门，要经历不同的世界线最后才能到达相对圆满的结局，但是仍然不算王子公主生活在一起那种，还有漫漫旅程生娃还早
+
+
+*****
+
+####  aptx8285144  
+##### 59#       发表于 2024-4-8 21:43
+
+ 本帖最后由 aptx8285144 于 2024-4-8 21:45 编辑 
+
+这魔女完全没有魔女的感觉，虽然能多少预料得到，但把挑战者们的生死全挂在心上避免任何伤亡，如果愿望是医疗治死扶伤哪怕你挑战失败了，也可以救治，就魔女而言也太善良了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+确实经费一般，不过华哥配得不错，男主一股网文大主角感觉（
+
+
+*****
+
+####  南風森愛恋  
+##### 60#       发表于 2024-4-8 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64517450&amp;ptid=2109771" target="_blank">公共汽车 发表于 2024-4-7 20:57</a>
+
+求剧透，后面大概什么时候生娃，生几个？
+
+主题如此鲜明的作品，不生几个说不过去啊。 ...</blockquote>
+我只看过web版，记得首先得穿两次世界线，探明世界真相后结婚生娃，生完娃还得死去活来整好大一出戏，最后男主转职夏亚，王位传儿子跟华哥逍遥快活去了
+
+
+*****
+
+####  好much橘  
+##### 61#       发表于 2024-4-9 17:12
+
+看两位互动感觉挺有意思的
+
+
+*****
+
+####  帆前  
+##### 62#       发表于 2024-4-10 09:32
+
+只记得漫画女主颜值超高了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">没想到是背面挑染，啊，黑直，她真好看，她真可爱
+
+Screenshot_20240410_090747_tv.danmaku.bili.jpg
+(144.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/093218pw58or9z8p8wrepo.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240410_091048_tv.danmaku.bili.jpg
+(126.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/093219hcujauzdcrufzf8u.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240410_091818_tv.danmaku.bili.jpg
+(127.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/093219b2jftlljfvzavf2f.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240410_091827_tv.danmaku.bili.jpg
+(124.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/093222drmms99rtfnrs6zg.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240410_092642_tv.danmaku.bili.jpg
+(126.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/093224ebguox8xiuguqwzq.jpg" referrerpolicy="no-referrer">
+
+Screenshot_20240410_092739_tv.danmaku.bili.jpg
+(141.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-10 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/10/093224zgtt63yjy7q00btt.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Zendless  
+##### 63#       发表于 2024-4-10 10:47
+
+b站版本有阉割吗？
+
+
+*****
+
+####  Yeaha123  
+##### 64#       发表于 2024-4-10 13:09
+
+漫画看了几话，变推理漫了？
+
+
+*****
+
+####  皆杀的田中  
+##### 65#       发表于 2024-4-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64544470&amp;ptid=2109771" target="_blank">Zendless 发表于 2024-4-10 10:47</a>
+
+b站版本有阉割吗？</blockquote>
+有至少一处，就是b站版本16分25秒，有夫之妇那句后边，女主还说了如果选中老人或小孩的情况。b站把这两句删了。
+
+
+*****
+
+####  Zendless  
+##### 66#       发表于 2024-4-10 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64550004&amp;ptid=2109771" target="_blank">皆杀的田中 发表于 2024-4-10 18:57</a>
+
+有至少一处，就是b站版本16分25秒，有夫之妇那句后边，女主还说了如果选中老人或小孩的情况。b站把这两句 ...</blockquote>
+谢谢
+
+
+*****
+
+####  macos  
+##### 67#       发表于 2024-4-10 19:29
+
+看了几分钟感觉素材很廉价
+
+
+*****
+
+####  [皆神孝介]  
+##### 68#       发表于 2024-4-10 21:09
+
+男主太成熟了
+
+魔女也太活泼了，不能留个传送坐标，白天去指定城市生活，晚上回塔睡觉嘛，在指定地点滞留总时间累计够1年就行
+
+
+*****
+
+####  xvi黑翼公  
+##### 69#       发表于 2024-4-10 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64551530&amp;ptid=2109771" target="_blank">[皆神孝介] 发表于 2024-4-10 21:09</a>
+
+男主太成熟了
+
+魔女也太活泼了，不能留个传送坐标，白天去指定城市生活，晚上回塔睡觉嘛，在指定地点滞留总 ...</blockquote>
+这位盆友你很机智，后面两个人闹分居就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2024-4-10 22:24
+
+<img src="https://p.sda1.dev/16/9d029c5ff1f337fa223cb24a4e2f6001/20240410_222151.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/miz2215th/status/1777676984434446495](https://twitter.com/miz2215th/status/1777676984434446495)
+
+今日は1話の放送日！楽しみです！
+<img src="https://p.sda1.dev/16/6656ba5130150801255b0bf91868d568/20240410_222129.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/10ab53112603ca74d15b923bf24a067c/20240410_222025.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 71#       发表于 2024-4-12 07:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ED作词：夏吉优子
+
+整点副业
+
+
+*****
+
+####  根正苗红  
+##### 72#       发表于 2024-4-13 00:08
+
+ 本帖最后由 根正苗红 于 2024-4-13 00:10 编辑 
+
+华哥的正确打开方式。
+总被塞些板着脸的老娘们儿，太暴殄天物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
