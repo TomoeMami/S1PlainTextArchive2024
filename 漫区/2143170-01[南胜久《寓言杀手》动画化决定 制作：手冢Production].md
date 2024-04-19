@@ -695,3 +695,86 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 动画莫名有种厌世、厌烦的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+*****
+
+####  [皆神孝介]  
+##### 74#       发表于 2024-4-14 13:25
+
+勉强能看，不无聊。
+
+
+*****
+
+####  frosta  
+##### 75#       发表于 2024-4-15 14:07
+
+动画拍的也太无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然本来就没啥期待吧
+
+
+*****
+
+####  suke  
+##### 76#       发表于 2024-4-15 15:12
+
+这片的P会去找高桥良辅是能理解的，况且还是手冢PRO，阿明有那么一点激励哥的气质，1集开头那段jazz就是那个味。
+
+台词的速度这个真没办法，我估计是高桥年事已高，体内的节奏时钟变慢了，+上最近动画台词速度和说明台词的量让这个问题尤其突出。
+
+现在就期待酒吧玩弄精虫上脑男和双重掰手腕假赛，1季的话估计后者做不到。
+
+
+*****
+
+####  山岚夜雨  
+##### 77#       发表于 2024-4-15 16:57
+
+意思是手冢p不仅毁原作现在还毁监督<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suke  
+##### 78#       发表于 2024-4-15 18:46
+
+你这么说也没问题，不过我指的是高桥爷爷是虫P出来人。
+
+因为有手冢这老招牌，在一些由电视台杂志社主导的企划里，经常能拿到些好白菜给自己拱
+
+
+*****
+
+####  蛋头电玩  
+##### 79#       发表于 2024-4-15 19:17
+
+连搞笑都被真人版吊打
+
+
+*****
+
+####  没取名啊  
+##### 80#       发表于 2024-4-15 19:28
+
+香菜配的这个角色后面戏份怎么样？要是还有她的话就再看几集
+
+
+*****
+
+####  山岚夜雨  
+##### 81#       发表于 2024-4-16 13:08
+
+ 本帖最后由 山岚夜雨 于 2024-4-16 13:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608149&amp;ptid=2143170" target="_blank">没取名啊 发表于 2024-4-15 19:28</a>
+
+香菜配的这个角色后面戏份怎么样？要是还有她的话就再看几集</blockquote>
+可以说是戏份仅次于“妹妹”的吧，在漫画第一部参与了大部分主线，虽然是被卷进来的
+
+
+*****
+
+####  smdzh2  
+##### 82#       发表于 2024-4-16 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608149&amp;ptid=2143170" target="_blank">没取名啊 发表于 2024-4-15 20:28</a>
+香菜配的这个角色后面戏份怎么样？要是还有她的话就再看几集</blockquote>
+漫画第一部雷打不动的女二，动画版接下来第一个大案子就是和她有关的
+
