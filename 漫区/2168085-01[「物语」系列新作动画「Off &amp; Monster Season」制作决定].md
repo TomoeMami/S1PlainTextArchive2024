@@ -1146,3 +1146,45 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 
 急急急
 
+*****
+
+####  Tachikoma88  
+##### 128#       发表于 2024-4-17 18:53
+
+都做到抚物语了？那愚物语应该已经做完了吧
+
+屏幕截图 2024-04-17 185208.png
+(51.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202404/17/185302zgcfwazzgw6iceau.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 129#       发表于 2024-4-17 19:18
+
+我怎么觉得抚物语比愚物语还难做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  广东侠  
+##### 130#       发表于 2024-4-17 19:24
+
+抚物语好做的一点是出现的角色都是你认识的，而且有大场面可以画，育惨败我是真不知道怎么改
+
+*****
+
+####  winda  
+##### 131#       发表于 2024-4-17 19:30
+
+老仓的剧情都是沾点本格推理的，没点功底改不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但相对的这样才有意思啊
+
