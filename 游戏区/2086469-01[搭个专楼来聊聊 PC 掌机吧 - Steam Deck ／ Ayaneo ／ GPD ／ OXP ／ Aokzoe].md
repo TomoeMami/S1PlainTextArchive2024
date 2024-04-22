@@ -1671,3 +1671,18 @@ Win掌机和Sd的瓶颈还不是这个内存，AMD的APU没进化就只能靠社
 
 手柄部分，win mini的摇杆比flip舒服些，有测评提到flip的摇杆缩得太往下，拨到极限位置会被周围一圈卡手指；win mini则是因为硬件问题键位布局略奇葩，没上手柄扩展的时候握着会有些别扭
 
+*****
+
+####  bypass  
+##### 1171#         楼主| 发表于 2024-4-19 09:52
+
+Aya 不知道想干啥
+
+<img src="https://img.saraba1st.com/forum/202404/19/095222x6e6888qjoue88em.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 09:52 上传
+
