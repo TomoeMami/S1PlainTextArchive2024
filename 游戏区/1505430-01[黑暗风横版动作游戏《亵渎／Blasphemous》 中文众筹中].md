@@ -1710,3 +1710,18 @@ the last door很不错，还以为这个制作组是专门做这种剧情类AVG�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+*****
+
+####  苏西踩我了  
+##### 172#       发表于 2024-4-23 01:31
+
+第三次开坑这个游戏，还是没能玩下去，错过了一大堆东西，瞬间不想玩了，不看攻略谁能打出最烂结局以外的结局，还是云一遍得了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asdfg  
+##### 173#       发表于 2024-4-23 03:37
+
+克兰莎第二阶段那台词那BGM还有那氛围感真的是绝对的神，放到所有游戏里都是排得上号的……
+
