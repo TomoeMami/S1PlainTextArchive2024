@@ -4017,3 +4017,10 @@ nowaki以前原来是嘉心糖头子
 
 —— 来自 HUAWEI LNA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+*****
+
+####  斯大林的拖拉机  
+##### 498#       发表于 2024-4-24 11:23
+
+雨，何时才会停呢
+
