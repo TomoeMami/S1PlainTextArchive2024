@@ -1327,3 +1327,197 @@ bt的这套使用模式我是真的很难坚持下来
 我乐意把我硬盘上存储的资源分享出来 但是套在BT这个协议上以后 保 ...</blockquote>
 一台主机存档放一份，一台主机做种放一份，就当多个备份。
 
+*****
+
+####  理子石  
+##### 135#       发表于 2024-4-24 22:52
+
+所以说买个20T硬盘当松鼠党才是版本答案
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hcho  
+##### 136#       发表于 2024-4-24 22:58
+
+不急着看，有些东西懒得能保种大半年，急着看的就保不了多久了
+
+*****
+
+####  奶奶扣  
+##### 137#       发表于 2024-4-24 23:03
+
+我记得之前说BT伤硬盘
+那会儿都是机械硬盘吧 现在的固态还怕么？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  剑鹰  
+##### 138#       发表于 2024-4-24 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708077&amp;ptid=2176037" target="_blank">奶奶扣 发表于 2024-4-24 23:03</a>
+
+我记得之前说BT伤硬盘
+
+那会儿都是机械硬盘吧 现在的固态还怕么？</blockquote>
+有几个人的硬盘因为bt挂掉了-_-
+
+
+*****
+
+####  我就再氪一单  
+##### 139#       发表于 2024-4-24 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707957&amp;ptid=2176037" target="_blank">理子石 发表于 2024-4-24 22:52</a>
+所以说买个20T硬盘当松鼠党才是版本答案</blockquote>
+真正的松鼠党已经买一箱硬盘组raid了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  バーチャルS1er  
+##### 140#       发表于 2024-4-25 00:11
+
+记得我这电骡很早就被运营商针对完全连不到人
+
+
+*****
+
+####  Kazuhira  
+##### 141#       发表于 2024-4-25 09:00
+
+ 本帖最后由 Kazuhira 于 2024-4-25 09:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292708&amp;ptid=2176037" target="_blank">ccc183 发表于 2024-3-18 19:57</a>
+俄国人是不是很有BT精神，从rutrack上下很多老资源虽然就个位数的种子但是居然能完整下完 ...</blockquote>
+我下了一堆素材和教程，体感欧美鬼佬比俄罗斯人更喜欢用垃圾网盘，你懂的，uploaded和rapidgator还有各种见都没见过的玩意，不掏钱的话十多个分卷是根本下不动的，他们用的网盘那么散也不可能全都掏钱开会员
+
+他们遇到这种情况得开一个代下网盘的“网盘”会员，就是中转站<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shitmanhe  
+##### 142#       发表于 2024-4-25 11:15
+
+资源圈子和分发方式是两件事。圈子是围绕资源的，或者极端一点，是围绕共享者的，不是围绕工具的。不会因为工具变化出现圈子的消亡，也不会因为发行渠道增加改变共享的需求。
+
+工具更多是服务共享者的，国外网盘好用，就用网盘呗。国内网盘在体验和效果上还做不到“杀死”BT。
+
+在线视频冲击的是院线和碟片，资源共享的需求是不受影响的。后缀改成了web-DL而已。
+
+
+*****
+
+####  Alufer  
+##### 143#       发表于 2024-4-25 11:53
+
+所以emule为啥不行了?我感觉比BT更加去中心化欸,自带索引,用kad甚至不用连tracker.每个客户端都是发布页.
+
+
+*****
+
+####  qq350295  
+##### 144#       发表于 2024-4-25 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292657&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-3-18 19:51</a>
+
+不懂为什么有人总说以前好，
+
+以前那些糊成一团的480p RMVB，还会有人看么？</blockquote>
+你总不能要求2000年代有4k的资源吧
+
+
+*****
+
+####  能代  
+##### 145#       发表于 2024-4-25 12:05
+
+我虽然..PT没能支持下去..
+
+但是SHARE 和PD...至今都是开机启动项..
+
+也快20年了
+
+
+*****
+
+####  Jet.Black  
+##### 146#       发表于 2024-4-25 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712749&amp;ptid=2176037" target="_blank">qq350295 发表于 2024-4-25 12:00</a>
+你总不能要求2000年代有4k的资源吧</blockquote>
+所以从网上资源的角度，现在比以前好很多，在这个方面完全不需要怀念过去。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qq350295  
+##### 147#       发表于 2024-4-25 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712983&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-4-25 12:20</a>
+
+所以从网上资源的角度，现在比以前好很多，在这个方面完全不需要怀念过去。
+
+ ...</blockquote>
+怀念的又不是画质音质提高，是方便与内容类型多。虽然在线光看更方便了，但版权限制小众内容找起来没那么方便了
+
+
+*****
+
+####  macos  
+##### 148#       发表于 2024-4-25 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712983&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-4-25 12:20</a>
+所以从网上资源的角度，现在比以前好很多，在这个方面完全不需要怀念过去。
+
+ ...</blockquote>
+应该说资源质量提高了，这是技术的更新，但内容不一定留了
+
+
+*****
+
+####  热风疾风  
+##### 149#       发表于 2024-4-25 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292657&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-3-18 19:51</a>
+
+不懂为什么有人总说以前好，
+
+以前那些糊成一团的480p RMVB，还会有人看么？</blockquote>
+也不用那么前，七八年前不是很好，网速也很快了
+
+
+*****
+
+####  热风疾风  
+##### 150#       发表于 2024-4-25 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293043&amp;ptid=2176037" target="_blank">我特么吹爆 发表于 2024-3-18 20:48</a>
+
+反正
+
+我还在用
+
+我会一直用</blockquote>
+反正每次下冷门种的时候看着那一两个国外ip再给我分享资源，就很感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jet.Black  
+##### 151#       发表于 2024-4-25 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713089&amp;ptid=2176037" target="_blank">macos 发表于 2024-4-25 12:31</a>
+应该说资源质量提高了，这是技术的更新，但内容不一定留了</blockquote>
+非要盯着某某特定断种的资源说事也是扯
+
+现在有更多的，以前见都没见过的东西咋不说呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
