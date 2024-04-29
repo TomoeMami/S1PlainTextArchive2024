@@ -557,3 +557,48 @@ Furyu公开《雷纳提斯》预订特典原声音轨CD的试听视频。包含�
 不联动个名气大点的游戏，为什么要联动一个暴死了的</blockquote>
 V13、真王、KH4有那个是这两年能吐出来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 57#       发表于 2024-4-26 17:26
+
+PV2：[https://youtu.be/me1V8lu5_cA](https://youtu.be/me1V8lu5_cA)
+
+*****
+
+####  医生狼多  
+##### 58#         楼主| 发表于 2024-4-26 17:28
+
+FURYU原创动作RPG《雷纳提斯》（REYNATIS）第二弹宣传片公开，本作预定登陆Switch/PS4/PS5平台，日版7月25日发售，中文版发售日未定。
+编剧：野岛一成
+音乐：下村阳子
+角色设计：鏑木康隆
+制作/监督：TAKUMI（FURYU Company）http://t.cn/A6TBxnOv ​​​
+
+
+*****
+
+####  Booorunestud  
+##### 59#       发表于 2024-4-26 17:45
+
+这画面也太
+
+
+*****
+
+####  黑酒杯  
+##### 60#       发表于 2024-4-26 17:52
+
+妈耶我怎么记得第一个pv卖相没这么差吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Booorunestud  
+##### 61#       发表于 2024-4-26 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728222&amp;ptid=2172675" target="_blank">黑酒杯 发表于 2024-4-26 17:52</a>
+妈耶我怎么记得第一个pv卖相没这么差吧</blockquote>
+直面会上的第一个pv几乎没有实机内容，全是cg
+后面几个有实机的片都比较克味
+
