@@ -126,3 +126,207 @@ ba团建了属于是
 
 我以为顶多400，没想到千舰
 
+*****
+
+####  ladiesman802  
+##### 3348#       发表于 2024-4-20 16:39
+
+现在回看一个月前的自己就像小丑，还好我都退坑了也没多伤心，138就当是最彻底的分手费了
+
+*****
+
+####  逸yi  
+##### 3349#       发表于 2024-4-20 16:41
+
+额额
+
+
+*****
+
+####  喜闻乐见  
+##### 3350#         楼主| 发表于 2024-4-22 13:22
+
+好快的八月就到了
+
+
+*****
+
+####  逸yi  
+##### 3351#       发表于 2024-4-22 14:00
+
+xs 星小子叒不长记性
+
+
+*****
+
+####  龙娘777  
+##### 3352#       发表于 2024-4-22 14:24
+
+不知道还有几人记得她分期4090 差不多每月得还1k左右吧 她们收入多少纸哥明确说过她自己交房租交社保日常吃饭开销完就不剩了 那叶子每月多出的这1k就是她活不下去的最大头
+
+嘻嘻，真牛捏，继续<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuriboh  
+##### 3353#       发表于 2024-4-22 17:55
+
+好好，早觉得绿毛模型不好看了，早早转生换下一个（或者鱼一yy）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佛皇  
+##### 3354#       发表于 2024-4-22 18:46
+
+挺好
+
+
+*****
+
+####  yib  
+##### 3355#       发表于 2024-4-22 20:48
+
+能骗两次我是没想到的
+
+
+*****
+
+####  avoidheat  
+##### 3356#       发表于 2024-4-23 00:28
+
+叶子这一退，最小丑的还得是杨姐，杨姐都进567那个houou播了半年了，因为叶子进星律动自己下定决心也退了跟着进了星律动，结果还没多久星律动就炸了，最后还是杨姐拖着叶子和卡姐到处找人谈，社团好进但是常驻3D太难，就为了叶子和某些星小子心心念念的3D，最后还是求到了567手上，结果这还没一年，叶子就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">杨姐都三十一二了吧，估计这么一搞，心气都没了
+
+
+*****
+
+####  喜闻乐见  
+##### 3357#         楼主| 发表于 2024-4-23 15:22
+
+<img src="https://img.saraba1st.com/forum/202404/23/152144yat7n3aqp93haqut.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 15:21 上传
+
+回看发现也能go
+
+
+*****
+
+####  喜闻乐见  
+##### 3358#         楼主| 发表于 2024-4-24 07:22
+
+昨晚嗦面的同时， 消不去的3d舞台
+
+<img src="https://img.saraba1st.com/forum/202404/24/072113a0iaj98vmawd95dw.jpg" referrerpolicy="no-referrer">
+
+<strong>(0CN]]@RASXNPF[WHYZ_H.jpg</strong> (159.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 07:21 上传
+
+
+*****
+
+####  ladiesman802  
+##### 3359#       发表于 2024-4-24 19:13
+
+sagi如果是家用那种3d还行吧，要搞之前那种出bug的3d大可不必，浪费钱又效果不好
+
+
+*****
+
+####  龙娘777  
+##### 3360#       发表于 2024-4-24 22:20
+
+我评价为和史上几场最虚拟直播并列的一场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  逸yi  
+##### 3361#       发表于 2024-4-24 22:29
+
+听说大规模删牌子了？
+
+
+*****
+
+####  龙娘777  
+##### 3362#       发表于 2024-4-24 23:57
+
+每月600块奶茶 1000+ 4090分期 活不下去了呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+嘻嘻 真牛捏 继续 她这性格和做事社会会继续毒打她的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  逸yi  
+##### 3363#       发表于 2024-4-25 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708756&amp;ptid=1926094" target="_blank">龙娘777 发表于 2024-4-24 23:57</a>
+每月600块奶茶 1000+ 4090分期 活不下去了呢
+
+嘻嘻 真牛捏 继续 她这性格和做事社会会继续毒打她的[ ...</blockquote>
+不是说早有富哥男友了嘛
+
+
+*****
+
+####  ladiesman802  
+##### 3364#       发表于 2024-4-25 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709035&amp;ptid=1926094" target="_blank">逸yi 发表于 2024-4-25 00:28</a>
+
+不是说早有富哥男友了嘛</blockquote>
+有富哥男友还在这里哭穷？
+
+我不如相信卡姐有富哥男友，毕竟她营收最低还心疼哥们儿的钱包
+
+
+*****
+
+####  天青月白  
+##### 3365#       发表于 2024-4-25 12:14
+
+干这个如果不是不爆火几年赚十几年的钱就肯定干不下去。要生活的，之前她们回归就预料到了，所以后面都不忍心看了，最后还是会失望。
+滤镜退却以后更难顶。比如我前几天取关了尼可儿。她不喜欢以前的工作可以理解，但是摇滚精神小妹而且总是莫名其妙要秀一秀对过往经历的鄙视和优越感真的难顶。屎再难吃当初都吃了，现在来装清高。
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  ladiesman802  
+##### 3366#       发表于 2024-4-26 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712913&amp;ptid=1926094" target="_blank">天青月白 发表于 2024-4-25 12:14</a>
+
+干这个如果不是不爆火几年赚十几年的钱就肯定干不下去。要生活的，之前她们回归就预料到了，所以后面都不忍 ...</blockquote>
+老哥终于放出来了啊
+
+
+*****
+
+####  ladiesman802  
+##### 3367#       发表于 2024-4-26 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712913&amp;ptid=1926094" target="_blank">天青月白 发表于 2024-4-25 12:14</a>
+
+干这个如果不是不爆火几年赚十几年的钱就肯定干不下去。要生活的，之前她们回归就预料到了，所以后面都不忍 ...</blockquote>
+妮可儿这个人也是个奇葩，开口闭口就是mbti，对自己家庭极度不满，爱死掉的猫胜过自己父母，恨国党，说她是精日也不全是，对过往念念不忘不能释怀，时不时对日乐yygq，看她wb就是个脑子不正常的人但为了工作勉强装作正常人
+
+
+*****
+
+####  Niyah  
+##### 3368#       发表于 2024-4-26 09:54
+
+唐九夏退的时候观感就很不舒服，后来复出也是意料之中，没继续看下去还是对的，有够乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
