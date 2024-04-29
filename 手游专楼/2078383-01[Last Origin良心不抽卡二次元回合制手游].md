@@ -1374,3 +1374,123 @@ https://lo.swaytwig.com/</blockquote>
 但说实话还是挺恼火的，日服搬点韩服已有的货糊弄一次也不是什 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老皮肤韩服好像后来都追加了语音，日服是动都不动
 
+*****
+
+####  铁火辉夜  
+##### 131#       发表于 2024-4-23 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是死是活就看明天了
+
+
+*****
+
+####  黑上シグマ  
+##### 132#       发表于 2024-4-24 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厉害了，新皮肤打折都不打了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  铁火辉夜  
+##### 133#       发表于 2024-4-24 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是你游诞生以来第一次日服有活韩服长草，arca已经喷爆了
+
+
+*****
+
+####  ace7ace  
+##### 134#       发表于 2024-4-24 19:11
+
+日服有啥活动啊。。。不就一个妇科都挂了快一个月了
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  黑上シグマ  
+##### 135#       发表于 2024-4-24 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705735&amp;ptid=2078383" target="_blank">ace7ace 发表于 2024-4-24 19:11</a>
+
+日服有啥活动啊。。。不就一个妇科都挂了快一个月了
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版  ...</blockquote>
+大概说的是30号的联动复刻
+
+
+*****
+
+####  铁火辉夜  
+##### 136#       发表于 2024-4-25 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进手游太平间了，已经结束嘞
+
+
+*****
+
+####  kofwxc  
+##### 137#       发表于 2024-4-25 18:00
+
+LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 138#       发表于 2024-4-25 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">啥情况？手游太平间是啥？
+
+*****
+
+####  zornlemma  
+##### 139#         楼主| 发表于 2024-4-25 18:33
+
+猪舍已将Last Origin的IP和开发，运营权全部转让给了valofe社。
+[https://www.bilibili.com/opus/924262118711099427](https://www.bilibili.com/opus/924262118711099427)
+
+
+*****
+
+####  katern  
+##### 140#       发表于 2024-4-25 19:25
+
+那还玩毛啊，日服才到第11章啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  铁火辉夜  
+##### 141#       发表于 2024-4-25 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">与隔壁敲锣打鼓喜迎十周年庆的舰R对比鲜明
+
+
+*****
+
+####  leina0602  
+##### 142#       发表于 2024-4-25 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">今年基本上是半弃坑状态了，看到LO要倒还是挺难受的
+
+
+*****
+
+####  lonegone  
+##### 143#       发表于 2024-4-26 08:46
+
+皮肤全入的日服玩家表示很淦
+
+
+*****
+
+####  澜沫  
+##### 144#       发表于 2024-4-26 13:00
+
+又寄一个，怎么我喜欢的色的都倒了不色的还在<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
