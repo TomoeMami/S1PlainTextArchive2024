@@ -895,3 +895,220 @@ b站版本有阉割吗？</blockquote>
 华哥的正确打开方式。
 总被塞些板着脸的老娘们儿，太暴殄天物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  k1no  
+##### 73#       发表于 2024-4-16 01:19
+
+华哥可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xvi黑翼公  
+##### 74#       发表于 2024-4-16 23:35
+
+这剧情是中了绯红之王了，不出意外动画要毁在赶进度上面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ditfran  
+##### 75#       发表于 2024-4-16 23:47
+
+3集做完第一卷的节奏，后两卷应该不会这么赶吧？
+
+
+*****
+
+####  ティグル  
+##### 76#       发表于 2024-4-16 23:53
+
+别人也就坐坐飞机，你这直接火箭升空了
+
+就这水平的系构还能对之后抱有期待纯属骗自己
+
+
+*****
+
+####  oi99o  
+##### 77#       发表于 2024-4-17 00:32
+
+还好我看完第一集之后紧急去补了小说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊克路西安  
+##### 78#       发表于 2024-4-17 08:07
+
+漫画做到小说多少卷了？
+
+
+*****
+
+####  帆前  
+##### 79#       发表于 2024-4-17 13:08
+
+这也太穷了，节奏也急，粗粗糙糙的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浴缸子  
+##### 80#       发表于 2024-4-17 22:52
+
+完全不知道在演啥，连最起码的起承转合都没有......
+
+
+*****
+
+####  实津二三  
+##### 81#       发表于 2024-4-18 07:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">这么惨啊，原作可以说是我这几年看过的最优秀的轻小说之一了。
+
+
+*****
+
+####  zayrq  
+##### 82#       发表于 2024-4-19 22:02
+
+我是看漏了啥，记得是先解决了几件事情才去那个魔湖的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yeaha123  
+##### 83#       发表于 2024-4-19 23:54
+
+乱搞的动画不看了，看原作算了
+
+
+*****
+
+####  linux40  
+##### 84#       发表于 2024-4-20 01:01
+
+动画党，光这两集还看不出来剧情有啥大问题。。。
+
+
+*****
+
+####  oi99o  
+##### 85#       发表于 2024-4-20 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64656526&amp;ptid=2109771" target="_blank">linux40 发表于 2024-4-20 01:01</a>
+
+动画党，光这两集还看不出来剧情有啥大问题。。。</blockquote>
+看不出有啥问题就好好看下去吧，反正我补了小说再回来看已经不忍直视了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  belldandy_ye  
+##### 86#       发表于 2024-4-20 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64656526&amp;ptid=2109771" target="_blank">linux40 发表于 2024-4-20 01:01</a>
+
+动画党，光这两集还看不出来剧情有啥大问题。。。</blockquote>
+光看动画剧情当然找不出大问题，因为目前为止没有什么魔改的地方，原作剧情细节和框架都很顶，问题出在动画跳了非常多的剧情，以火箭速度推进，熟悉原作的人看就很恼火了.
+
+
+*****
+
+####  feiwuwang  
+##### 87#       发表于 2024-4-21 03:18
+
+女主变了啥，头发长了？
+
+
+*****
+
+####  X(iaolw)S  
+##### 88#       发表于 2024-4-21 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64665763&amp;ptid=2109771" target="_blank">feiwuwang 发表于 2024-4-21 03:18</a>
+
+女主变了啥，头发长了？</blockquote>
+长大了啊，各方面
+
+
+*****
+
+####  X(iaolw)S  
+##### 89#       发表于 2024-4-21 23:51
+
+<blockquote>引用第77楼伊克路西安于2024-04-17 08:07发表的  :
+
+漫画做到小说多少卷了？</blockquote>
+@伊克路西安
+第二卷前五话
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  帆前  
+##### 90#       发表于 2024-4-24 09:16
+
+银梦回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迫真（
+
+做得太粗糙了
+
+
+*****
+
+####  kwin_  
+##### 91#       发表于 2024-4-24 12:12
+
+那个很菜的侍从是要非带不可吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还很吵
+
+
+*****
+
+####  ciallo  
+##### 92#       发表于 2024-4-24 19:39
+
+刚看第一集，这个图蛮合适的
+
+Screenshot_20211108_082737_tv.danmaku.bili.jpg
+(152.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 19:39 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/193917qljz1c5t3mlf44f1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 93#       发表于 2024-4-24 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700790&amp;ptid=2109771" target="_blank">kwin_ 发表于 2024-4-24 12:12</a>
+
+那个很菜的侍从是要非带不可吗还很吵</blockquote>
+人家自己跟来的，美其名曰不放心主子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kwin_  
+##### 94#       发表于 2024-4-25 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64706206&amp;ptid=2109771" target="_blank">oi99o 发表于 2024-4-24 19:48</a>
+
+人家自己跟来的，美其名曰不放心主子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PokerFaceSmile  
+##### 95#       发表于 2024-4-27 13:42
+
+下一集列为如果断在微妙的地方就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
