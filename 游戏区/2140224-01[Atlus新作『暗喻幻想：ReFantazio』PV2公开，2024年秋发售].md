@@ -2824,3 +2824,2420 @@ Steam页面：
 
 韩国评级：[https://www.grac.or.kr/Statistic ... 8e5ec12581d53453bb0](https://www.grac.or.kr/Statistics/Popup/Pop_ReasonInfo.aspx?bf995f771d407ab0db6aed449fc59900a6c813a6a053e8e5ec12581d53453bb0)
 
+*****
+
+####  Piano-Forest  
+##### 171#         楼主| 发表于 2024-4-16 09:01
+
+『#メタファー 』の最新情報をお届けする特別番組を
+
+4月23日(火)に一挙２番組配信決定！
+
+＜第１弾＞
+
+開発者が今作の魅力を全世界にお伝えする約30分の特別番組
+
+「ATLUS Exclusive『メタファー：リファンタジオ』24.04.23」
+
+4月23日(火)朝7時から放送！
+[https://www.youtube.com/live/solgLpxaMd0](https://www.youtube.com/live/solgLpxaMd0)
+<img src="https://p.sda1.dev/16/ec7707c5ff10c7d804c5d26c538ffa93/20240416_090018.jpg" referrerpolicy="no-referrer">
+
+＜第２弾＞
+
+さらに、4月23日(火)夜８時から
+
+ATLUS Exclusive公開記念特番
+
+「メタファー：ストーカー俱楽部・ファイナル」を放送！
+
+最新情報の検証、考察、妄想を繰り広げる生放送です。
+
+[https://www.youtube.com/live/qdY0m8beLbg](https://www.youtube.com/live/qdY0m8beLbg)
+
+ディレクターの橋野桂が語った #メタファー の情報を徹底分析していきます。
+<img src="https://p.sda1.dev/16/a2eb68fe3940373c47a8848ff685de14/20240416_090022.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 172#         楼主| 发表于 2024-4-16 09:08
+
+📢ATLUS新作《暗喻幻想：ReFantazio》特别节目！📢
+
+“ATLUS Exclusive《暗喻幻想：ReFantazio》”将于4月23日（周二）早6：00播出！
+
+届时《暗喻幻想：ReFantazio》的总监桥野桂将在节目中向大家介绍本作的魅力之处！敬请期待！
+[https://live.bilibili.com/h5/2293539](https://live.bilibili.com/h5/2293539)
+
+※支持简体中文字幕
+
+
+*****
+
+####  baizhi  
+##### 173#       发表于 2024-4-16 09:37
+
+主角是不是有配音了？官方有说吗？
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Piano-Forest  
+##### 174#         楼主| 发表于 2024-4-16 10:07
+
+本番組では、『メタファー：リファンタジオ』のディレクター橋野桂が皆さまへ直接『メタファー』の魅力をお伝えします。今回はこれまで公開してこなかったゲームシステムの詳細情報を開発者自らがプレイ動画とともに紹介する内容となっています。
+
+『メタファー：リファンタジオ』がどんなゲームプレイを楽しめるのか、本タイトルの魅力を約30分でしっかりとお伝えする内容となっています。ぜひ、ご覧ください。
+
+大概会详细介绍之前提到的觉醒「英雄形象（原型）」
+
+※英雄像（アーキタイプ）
+<img src="https://p.sda1.dev/16/28cc6a5581b4b1784ebb3e137a91b0d6/SaveTwitter.Net_1779305962056151040_720p_.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/579e8bd1abf02e2602ade899dc043b4f/SaveTwitter.Net_1779887553371308032_720p_.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 175#         楼主| 发表于 2024-4-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612920&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-4-16 09:37</a>
+
+主角是不是有配音了？官方有说吗？
+
+—— 来自 OPPO PGBM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没提，但楼上有坛友说主角的台词有三百页
+
+
+*****
+
+####  猫沢  
+##### 176#       发表于 2024-4-17 00:52
+
+看起来只有5个可操控角色，皮克希大概是挂件<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  AeonsTorn  
+##### 177#       发表于 2024-4-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64622467&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-4-17 00:52</a>
+
+看起来只有5个可操控角色，皮克希大概是挂件放低预期了，等加强版加一个妹子比较合适
+
+论坛 ...</blockquote>
+pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧
+
+
+*****
+
+####  user_3399  
+##### 178#       发表于 2024-4-17 11:54
+
+这代皮克希真可爱
+
+
+*****
+
+####  猫沢  
+##### 179#       发表于 2024-4-17 17:34
+
+<blockquote>AeonsTorn 发表于 2024-4-17 01:22
+pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote>
+感觉不是，女神异闻录历来能操控的角色都画封面上的，官网character也就这五个，你说的那些是band。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  AeonsTorn  
+##### 180#       发表于 2024-4-17 17:50
+
+ 本帖最后由 AeonsTorn 于 2024-4-17 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630118&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-4-17 17:34</a>
+感觉不是，女神异闻录历来能操控的角色都画封面上的，官网character也就这五个，你说的那些是band。
+
+论 ...</blockquote>
+大眼妹台词直接说了自己觉醒了archetype啊，而且官网那个人物合照左右分布十分不对称，右边明显是留了空位等之后慢慢放出角色的
+<img src="https://p.sda1.dev/17/82e81188ecfb3b7a431d2d304d62fa9d/CMP_20240417175158425.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  baizhi  
+##### 181#       发表于 2024-4-17 20:18
+
+我一直想说了，这宣传里的动画播片是不是有点便宜啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是连滤镜都没加？
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  抽烟的猴  
+##### 182#       发表于 2024-4-17 21:44
+
+不止播片，上面的对话截图也有种二十年前rpg的风味<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星野航  
+##### 183#       发表于 2024-4-17 23:35
+
+本来就是“经典”rpg吧，当年出来吹的也是“重振真rpg”么，老味估计是最后的倔强了
+
+
+*****
+
+####  weison0420  
+##### 184#       发表于 2024-4-18 09:19
+
+说实话，这IP过于普通，也就是P系列那种战斗系统，在游戏类别上没有突破，一直啃老本，这玩意再好也好不到哪，毕竟边界已经存在了
+
+
+*****
+
+####  Piano-Forest  
+##### 185#         楼主| 发表于 2024-4-19 12:39
+
+<img src="https://p.sda1.dev/17/f419be15c372e210b528bc0c4a714dd3/SaveTwitter.Net_1781149122268889088_720p_ _1_.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CswStar  
+##### 186#       发表于 2024-4-19 16:32
+
+今年的游戏都让我提不起兴致啊，信一波atlus吧
+
+
+*****
+
+####  抽烟的猴  
+##### 187#       发表于 2024-4-19 17:34
+
+舅舅表示本作会是年度最佳游戏
+
+香槟开起来？
+
+0B8146758B10BBA1E49F5321ABDF8663_edit_166637727614151.jpg
+(181.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 17:33 上传
+
+<img src="https://img.saraba1st.com/forum/202404/19/173344mo7zaomumnv6uevm.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 188#       发表于 2024-4-19 19:10
+
+这也能年度最佳那以后阿特拉斯出一个我买一个
+
+
+*****
+
+####  baizhi  
+##### 189#       发表于 2024-4-19 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是欺负年初发售的那几作拉裤了才敢开香槟啊？
+
+
+*****
+
+####  はちたや  
+##### 190#       发表于 2024-4-19 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">对白皮weeb特攻罢了，说不定游戏性上还没smt5v新增的内容好玩
+
+
+*****
+
+####  walfeds  
+##### 191#       发表于 2024-4-19 19:45
+
+半场香槟吗，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">我还是信桥野哥哥的
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  纱布光环  
+##### 192#       发表于 2024-4-19 20:26
+
+不要提前开香槟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">教训还不够吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  AeonsTorn  
+##### 193#       发表于 2024-4-19 20:27
+
+还是先放低期待吧，期望越小失望越小啊
+
+
+*****
+
+####  塔尔洛斯  
+##### 194#       发表于 2024-4-19 20:34
+
+估计就是看了社内文本和测试就开始吹吧。这个点master up肯定都没结束，摸完debug版的人更是屈指可数。
+
+这游戏还有半年才发售呢w
+
+
+*****
+
+####  空气先生  
+##### 195#       发表于 2024-4-20 10:15
+
+2024 TGA年度游戏候选：
+
+女神异闻录3 RELOAD
+
+真女神转生5 复仇
+
+暗喻幻想
+
+如龙8
+
+圣兽之王
+
+
+*****
+
+####  neokirin  
+##### 196#       发表于 2024-4-20 10:34
+
+segay青收收味
+
+
+*****
+
+####  TriSPD  
+##### 197#       发表于 2024-4-20 10:50
+
+怪物是从绯红结系共享的员工吧
+
+
+*****
+
+####  thez  
+##### 198#       发表于 2024-4-20 17:57
+
+真的吗？我不信
+
+
+*****
+
+####  Squall25  
+##### 199#       发表于 2024-4-20 18:16
+
+这舅舅不就是世嘉小号<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">哪有员工敢用工作号说坏话的
+
+
+*****
+
+####  Piano-Forest  
+##### 200#         楼主| 发表于 2024-4-21 10:19
+
+<img src="https://p.sda1.dev/17/fa65b8fa66ab2231982b424cf4cd6df8/IMG_20240421_100358.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ee23b44f718119bc350784f0c522dbab/IMG_20240421_100416.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新世界的派蒙  
+##### 201#       发表于 2024-4-21 11:52
+
+羊引擎还不错了，靠风格化堆画面，3r的特效就有些傻亮
+
+*****
+
+####  AeonsTorn  
+##### 202#       发表于 2024-4-21 11:57
+
+pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rainsheep  
+##### 203#       发表于 2024-4-21 12:28
+
+这个dlc是指服装那类，还是剧情流程的？别又整加强版单卖吧。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Farlight  
+##### 204#       发表于 2024-4-22 10:43
+
+有没有gal环节？
+
+
+*****
+
+####  CALPISSODA  
+##### 205#       发表于 2024-4-22 12:25
+
+<blockquote>rainsheep 发表于 2024-4-21 12:28
+这个dlc是指服装那类，还是剧情流程的？别又整加强版单卖吧。
+
+—— 来自 vivo V2241A, Android 14上的 S1N ...</blockquote>
+不用怀疑，肯定的，2年后公布完全加强版，含故事DLC再给你加个新女主角。
+
+
+*****
+
+####  抽烟的猴  
+##### 206#       发表于 2024-4-22 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64675126&amp;ptid=2140224" target="_blank">Farlight 发表于 2024-4-22 10:43</a>
+
+有没有gal环节？</blockquote>
+当然有，系统已经说了复刻p5了
+
+
+*****
+
+####  kaildo  
+##### 207#       发表于 2024-4-23 05:36
+
+还有半小时直面会，难熬
+
+
+*****
+
+####  Piano-Forest  
+##### 208#         楼主| 发表于 2024-4-23 06:02
+
+现已开始
+
+简中字幕：[https://live.bilibili.com/2293539](https://live.bilibili.com/2293539) 
+
+繁中字幕：[https://www.youtube.com/live/UQ23HzUkgng](https://www.youtube.com/live/UQ23HzUkgng)
+
+
+*****
+
+####  Piano-Forest  
+##### 209#         楼主| 发表于 2024-4-23 06:04
+
+10月11日发售
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黄泉川此方| + 1||
+
+查看全部评分
+
+
+*****
+
+####  Piano-Forest  
+##### 210#         楼主| 发表于 2024-4-23 06:29
+
+新PV「The King's Trial」：[https://youtu.be/0MzP47nijsU](https://youtu.be/0MzP47nijsU)
+
+*****
+
+####  猫沢  
+##### 211#       发表于 2024-4-23 06:31
+
+预购开了可以冲了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  鳴上悠  
+##### 212#       发表于 2024-4-23 06:42
+
+メタファー：リファンタジオ 「ペルソナ４ ザ・ゴールデン」八十神高校制服&amp;バトルBGM＆バトルジングル セット
+
+啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  h122h  
+##### 213#       发表于 2024-4-23 06:46
+
+＜収録予定ダウンロードコード＞
+
+・メタファー：リファンタジオ 「ペルソナ５」秀尽学園高校制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「ペルソナ４ ザ・ゴールデン」八十神高校制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「ペルソナ３」月光館学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「ペルソナ２」七姉妹学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「Persona」聖エルミン学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「真・女神転生V」縄印学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「真・女神転生IV」サムライ衆衣装&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「世界樹の迷宮シリーズ」職業コスチューム＆バトルBGM セット
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 214#         楼主| 发表于 2024-4-23 06:48
+
+<img src="https://p.sda1.dev/17/c08369ea114d280895213a8fc11c7a14/008CrTd6ly1hp0d81nqotj30yl0jeqev.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ba56b2942418392d48e7cdc51652d32c/008CrTd6ly1hp0d81nqlij30yl0jeaml.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0edd8ad330ee1ad762db639444e441cf/008CrTd6ly1hp0d81lx1mj30yl0jedpg.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/6bdb5ccff9162babec5ac39a11bd6f95/20240423_063955.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e97400762d704d24d7fad4d605e86cc3/20240423_064252.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ec7406b5b6fdbd0bb4c7849dba2503a2/20240423_064000.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lynn冰翎  
+##### 215#       发表于 2024-4-23 06:53
+
+战斗的搭配看起来非常非常多，应该会好玩吧；
+
+故事没有期待了，第三个片的台词味道有点过于冲，不是能接受的水平。
+
+
+*****
+
+####  h122h  
+##### 216#       发表于 2024-4-23 07:08
+
+sega官方视频出了
+
+
+*****
+
+####  青眼虎李云  
+##### 217#       发表于 2024-4-23 07:10
+
+就这？根本没有购买的兴趣
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  hkguty  
+##### 218#       发表于 2024-4-23 07:18
+
+实体豪华版送的都是那么点破东西，还是数字版走起吧
+
+*****
+
+####  喇叭  
+##### 219#       发表于 2024-4-23 07:18
+
+战斗看笑了…
+
+地图上又砍又闪，一通辗转腾挪，最后就换个类似p5开幕枪击的效果…这味有点熟悉，来自星尘？人回合里插即时，这即时里插回合，妙啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ultraseven  
+##### 220#       发表于 2024-4-23 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685144&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-4-23 07:18</a>
+
+实体豪华版送的都是那么点破东西，还是数字版走起吧</blockquote>
+美版挺不错啊
+
+<img src="https://pbs.twimg.com/media/GLzYn5cbIAAKgbA?format=jpg&amp;name=4096x4096" height="450" id="aimg_RunA5" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+*****
+
+####  陈词与芍药  
+##### 221#       发表于 2024-4-23 07:28
+
+什么都好，就是这个故事……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Arians  
+##### 222#       发表于 2024-4-23 07:45
+
+没有好看的女角色吗，会玩但还是不考虑首发了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  S1阿彬  
+##### 223#       发表于 2024-4-23 07:47
+
+难道近藤季洋真是天才？
+
+*****
+
+####  卡拉德利姆  
+##### 224#       发表于 2024-4-23 07:47
+
+没错，近藤季洋的确是天才
+
+
+*****
+
+####  Lynn冰翎  
+##### 225#       发表于 2024-4-23 08:03
+
+我仔细想想有点不对劲
+
+以前如果我想实现一个功能，主角带个洗过技能的面具就行了，
+
+现在虽然有40种左右的面具，而且队友也可以随便用不同面具，但每种面具似乎是不能定制的。
+
+那我要实现同样的功能被打散在几种面具里，我岂不是要为一种功能去凑一个队？
+
+这样下来限制反而更多了，但放开定制archetype又会显得这个职业区分没啥意义，不知道实际玩起来怎么样。
+
+*****
+
+####  whzfjd  
+##### 226#       发表于 2024-4-23 08:05
+
+即时转回合更早的不是xb吗？
+
+*****
+
+####  头发头发  
+##### 227#       发表于 2024-4-23 08:08
+
+为啥要藏角色不公布啊，战车的圆桌明显还有三个空位没人的来着，又不是有啥震惊业界美少女要藏，现在预告片的剧情里都是只有已公布的几人组，后入队的角色不会又要和p5大小姐一样了吧
+
+
+*****
+
+####  变老的大二  
+##### 228#       发表于 2024-4-23 08:13
+
+这不就是p5s吗？
+
+*****
+
+####  星野航  
+##### 229#       发表于 2024-4-23 08:16
+
+希望迷宫能做得好点，而且目前关于现代的部分一点都没露，还在藏，也太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Piano-Forest  
+##### 230#         楼主| 发表于 2024-4-23 08:21
+
+新角色应该还有尚未公开的（新封面图主角身边）
+
+看今晚直播是否有进一步的消息或是得等到6月份了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+“关于本作独有的故事情节和角色的内容，也希望大家能期待后续消息。另外我们还计划从6月开始在世界各地举行试玩活动”
+
+
+*****
+
+####  真空管  
+##### 231#       发表于 2024-4-23 08:22
+
+这所谓现代就是指我们的现实世界吧，上手又让你填你自己的名字而不是主角的，摆明了最后要玩打破第四面墙的花活
+
+*****
+
+####  walfeds  
+##### 232#       发表于 2024-4-23 08:27
+
+实体版额外的东西不是很吸引人，有点迟疑要不要直接上数字版算了
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑修士  
+##### 233#       发表于 2024-4-23 08:31
+
+新预告音画的卖相不错啊，希望能讲个好故事
+
+*****
+
+####  walfeds  
+##### 234#       发表于 2024-4-23 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685363&amp;ptid=2140224" target="_blank">头发头发 发表于 2024-4-23 08:08</a>
+为啥要藏角色不公布啊，战车的圆桌明显还有三个空位没人的来着，又不是有啥震惊业界美少女要藏，现在预告片 ...</blockquote>
+也没全藏吧，开头pv后几个过场场景已经看得出来黑白披风妹和金发大额头是队友了
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑上シグマ  
+##### 235#       发表于 2024-4-23 08:33
+
+<blockquote>引用第229楼Piano-Forest于2024-04-23 08:21发表的  :
+
+新角色应该还有尚未公开的（新封面图主角身边）看今晚直播是否有进一步的消息或是得等到6月份了 “关于本......</blockquote>
+今晚是イソッチ和光头的扯淡节目，不会有新情报的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Kojimaru  
+##### 236#       发表于 2024-4-23 08:35
+
+dlc只卖个皮肤？说实话还行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 237#       发表于 2024-4-23 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有种隐隐的预感P5这套UI要被阿特拉斯薅到死了
+
+
+*****
+
+####  爱丽丝梦游我家  
+##### 238#       发表于 2024-4-23 08:38
+
+感觉挺好的，味很正啊。
+
+*****
+
+####  光与暗的转生  
+##### 239#       发表于 2024-4-23 08:41
+
+致敬传奇rpg黎之轨迹
+
+
+*****
+
+####  星野航  
+##### 240#       发表于 2024-4-23 08:47
+
+ 本帖最后由 星野航 于 2024-4-23 09:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685549&amp;ptid=2140224" target="_blank">黑上シグマ 发表于 2024-4-23 09:33</a>
+今晚是イソッチ和光头的扯淡节目，不会有新情报的
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+感觉这俩人也没啥好聊，看错 桥野桂不来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  斯托雷加  
+##### 241#       发表于 2024-4-23 08:50
+
+期待！但是我想知道南条爱乃到底是哪个角色！好久都没看到南酱的作品了
+
+
+*****
+
+####  菟原手兒奈  
+##### 242#       发表于 2024-4-23 08:56
+
+好像没太多吸引力啊，今年除了SMT5V外还有什么值得期待的jrpg吗？
+
+*****
+
+####  57042711  
+##### 243#       发表于 2024-4-23 08:57
+
+主角的目标居然是众生平等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  takayama  
+##### 244#       发表于 2024-4-23 09:10
+
+总觉得这些角色中肯定有个阿饼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有就是也差不多可以公布南条的角色了吧
+
+—— 来自 HUAWEI JER-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nancygreenlife  
+##### 245#       发表于 2024-4-23 09:11
+
+即时战斗做不到那么精致了，看起来打击感啥的都很一般
+
+*****
+
+####  nage560  
+##### 246#       发表于 2024-4-23 09:11
+
+加台萝卜感觉就是丹拜恩的RPG版那味了，一直蛮期待能来个丹拜恩那种世界观的rpg，这次请元千岁来唱歌了吗？还有提P5S的，还有暗荣能设计出这么时髦的设定和世界观？卖相就差了十万八千里了。本来前2个PV无什么欲望买的，这卖相这下真有点想玩了。
+
+
+*****
+
+####  ff2077  
+##### 247#       发表于 2024-4-23 09:14
+
+这系统是不是能说句法老控遥遥领先了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 248#       发表于 2024-4-23 09:15
+
+这么早就出啊还以为要到十一月之类的  
+
+*****
+
+####  Redimercia  
+##### 249#       发表于 2024-4-23 09:17
+
+就这个讲解的内容怎么感觉还没真v好玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  抹茶瓜  
+##### 250#       发表于 2024-4-23 09:19
+
+索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  会长辅佐  
+##### 251#       发表于 2024-4-23 09:19
+
+感觉不如东京迷城
+
+*****
+
+####  会长辅佐  
+##### 252#       发表于 2024-4-23 09:20
+
+顺便这建模也太拉了
+
+
+*****
+
+####  jockeyjoestar  
+##### 253#       发表于 2024-4-23 09:29
+
+ 本帖最后由 jockeyjoestar 于 2024-4-23 09:31 编辑 
+
+消除人与人与人的斗争。。。味太冲了  一上来就给了一个宏大 空洞又不切实际的目标 
+
+P系列卖得好 就是因为他格局够小 更接地气 
+
+*****
+
+####  ranapocket  
+##### 254#       发表于 2024-4-23 09:30
+
+剧情感觉会雷。
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  抽烟的猴  
+##### 255#       发表于 2024-4-23 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686033&amp;ptid=2140224" target="_blank">会长辅佐 发表于 2024-4-23 09:20</a>
+
+顺便这建模也太拉了</blockquote>
+比p5强一点，不如p3r
+
+*****
+
+####  汪达  
+##### 256#       发表于 2024-4-23 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685964&amp;ptid=2140224" target="_blank">ff2077 发表于 2024-4-23 09:14</a>
+
+这系统是不是能说句法老控遥遥领先了</blockquote>
+不就是P系列打一下怪进战斗那个系统改得酷炫了些，变成了一套连招进战斗，倒反天罡了
+
+
+*****
+
+####  Piano-Forest  
+##### 257#         楼主| 发表于 2024-4-23 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685447&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 08:21</a>
+
+新角色应该还有尚未公开的（新封面图主角身边）
+
+看今晚直播是否有进一步的消息或是得等到6月份了 </blockquote>
+<img src="https://p.sda1.dev/17/83332a3a03c03fa76eb0aeda2a3055be/19551317138364712.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 258#       发表于 2024-4-23 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686335&amp;ptid=2140224" target="_blank">汪达 发表于 2024-4-23 09:43</a>
+
+不就是P系列打一下怪进战斗那个系统改得酷炫了些，变成了一套连招进战斗，倒反天罡了 ...</blockquote>
+明明演示里有即时模式下翻滚躲避敌人攻击，跟何况打一下怪进战斗的系统也是轨迹早啊
+
+*****
+
+####  cowgp01  
+##### 259#       发表于 2024-4-23 09:52
+
+好x闷，再来个皆杀线吧
+
+*****
+
+####  汪达  
+##### 260#       发表于 2024-4-23 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686447&amp;ptid=2140224" target="_blank">电磁炮233 发表于 2024-4-23 09:52</a>
+
+明明演示里有即时模式下翻滚躲避敌人攻击，跟何况打一下怪进战斗的系统也是轨迹早啊 ...</blockquote>
+空轨有这个系统吗？没印象了
+
+
+*****
+
+####  卡拉德利姆  
+##### 261#       发表于 2024-4-23 09:58
+
+空轨的先攻就是靠地图攻击打背啊
+
+
+*****
+
+####  SuNR1sE364  
+##### 262#       发表于 2024-4-23 10:05
+
+窝法伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuNR1sE364  
+##### 263#       发表于 2024-4-23 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686511&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-4-23 09:58</a>
+空轨的先攻就是靠地图攻击打背啊</blockquote>
+空轨原版没有，这个系统是从零轨加进来的，反哺回了空EVO
+
+*****
+
+####  walfeds  
+##### 264#       发表于 2024-4-23 10:08
+
+法老控粉丝打进来了，撤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  无色辉火  
+##### 265#       发表于 2024-4-23 10:17
+
+总感觉新作的评分会不如5V<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  汪达  
+##### 266#       发表于 2024-4-23 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686622&amp;ptid=2140224" target="_blank">SuNR1sE364 发表于 2024-4-23 10:06</a>
+
+空轨原版没有，这个系统是从零轨加进来的，反哺回了空EVO</blockquote>
+原来是这样，我说怎么好像自己失忆了，也不记得空轨有地图攻击啊
+
+*****
+
+####  洛亚替身  
+##### 267#       发表于 2024-4-23 10:18
+
+看上眼的居然只有皮克希小姐和金毛有角帅哥.......但愿皮克希有恋爱线，虽然那大小只能柏拉图（男性恋爱线估计没可能）
+
+除了建模差点卖相其实还行，应该是磨洋工久了建模没跟上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新世界的派蒙  
+##### 268#       发表于 2024-4-23 10:20
+
+战斗学黎轨么啥坏处，只是这个战斗动画全靠背后灵也太偷懒了，想象一下异度之刃2你全带抽的大众脸战斗的代入感.....
+
+*****
+
+####  变老的大二  
+##### 269#       发表于 2024-4-23 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686641&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-4-23 10:08</a>
+
+法老控粉丝打进来了，撤
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+坚定守住，就有办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 270#       发表于 2024-4-23 10:23
+
+这么做应该是为了带入感吧，狼群这种集群氛围怪还是适合无双（顺便滑板把皮克希小姐甩飞好有趣的小细节，感觉阿特拉斯做这种细节会越来越多）
+
+*****
+
+####  变老的大二  
+##### 271#       发表于 2024-4-23 10:24
+
+而且按照P组尿性，预告片能给你看的怕都是前期内容，剧情后半绝对藏起来了。
+
+
+*****
+
+####  AeonsTorn  
+##### 272#       发表于 2024-4-23 10:31
+
+普通版也要9878円<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依存香炉  
+##### 273#       发表于 2024-4-23 10:34
+
+中的要来了
+
+
+*****
+
+####  はちたや  
+##### 274#       发表于 2024-4-23 10:37
+
+这次封面图好丑啊.... 是分辨率的问题吗
+
+
+*****
+
+####  BadYanL  
+##### 275#       发表于 2024-4-23 10:38
+
+建模，脏乱贴图，文艺复兴风都能接受，但是这色调真的看萎了。
+
+战斗和故事什么的随意吧，Atlus主要是玩角色羁绊。
+
+*****
+
+####  Ashice  
+##### 276#       发表于 2024-4-23 10:42
+
+等强化版<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Khellendros  
+##### 277#       发表于 2024-4-23 10:43
+
+画面感觉脏兮兮的，坐车路上那个远景更是一坨……迷宫感觉也不像手搓的，ui和音乐倒是挺对味
+
+*****
+
+####  hkguty  
+##### 278#       发表于 2024-4-23 10:44
+
+进回合制红发妹子对着空气虚空打几下远处的怪莫名就中招了有点搞笑，这作表现力到底行不行
+
+
+*****
+
+####  取名真是难  
+##### 279#       发表于 2024-4-23 10:53
+
+看完pv感觉剧情不用怎么期待，自由规划流程还是不错的，到时候狠狠研究一下怎么快速逃课开发imba流派
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 280#       发表于 2024-4-23 11:02
+
+阿特拉斯是不是觉得自己成功的关键是瞎狗眼的高对比度大色块？
+
+这颜色眼都要瞎了。
+
+
+*****
+
+####  手铐君  
+##### 281#       发表于 2024-4-23 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">单看pv，主角在那闪避，一顿砍，我还以为变成ff7rb/16的那种战斗了，没想到看了完整版，砍完居然是进回合制
+
+
+*****
+
+####  Squall25  
+##### 282#       发表于 2024-4-23 11:08
+
+这玩意跟黎轨明显不一样，不知道怎么天天有人瞎扯。暗喻幻想这个攻击键看ui只有一个，就是一个酷炫版地图攻击，你甚至不如说跟零碧闪一样，就多个闪避。比如最主要的区别，黎轨是无缝进出战斗的，暗喻幻想还是老样子传异空间。
+而且说了多少次，真要论祖宗，近藤自己都说黎轨灵感是7re来的，轨迹侠天天想说自己多领先，想当人家祖宗能不能把自己祖宗先找对<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フカミ  
+##### 283#       发表于 2024-4-23 11:09
+
+实体封面不是很好看，还是数字版好了<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 284#       发表于 2024-4-23 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687104&amp;ptid=2140224" target="_blank">BadYanL 发表于 2024-4-23 10:38</a>
+建模，脏乱贴图，文艺复兴风都能接受，但是这色调真的看萎了。
+
+战斗和故事什么的随意吧，Atlus主要是玩角色 ...</blockquote>
+前面那色调确实不太讨喜，不过看到后面有几个场景色调看着就很漂亮很舒服希望不是背景板而是能实际跑图的吧
+
+
+*****
+
+####  黑修士  
+##### 285#       发表于 2024-4-23 11:23
+
+看完实机解说再回看第一段预告，感觉被官方剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 286#       发表于 2024-4-23 11:26
+
+剧情看着是那种大逃杀类型的，很适合当前环境就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Piano-Forest  
+##### 287#         楼主| 发表于 2024-4-23 11:30
+
+“Atlus Fest”将于6月8日、6月9日在秋叶原举行
+
+有《暗喻幻想：ReFantazio》和《真·女神转生Ⅴ Vengeance》的试玩活动
+
+この度、株式会社アトラスはブランド35周年を記念した入場無料のアトラス初の大型ユーザーイベント「アトラスフェス」を2024年６月８日(土)、６月９日(日)の２日間にわたり、東京・秋葉原で開催することを決定いたしました！
+
+本イベントでは、発売日が2024年10月11日（金）に決定した『メタファー：リファンタジオ』に加え、2024年6月14日(金)に発売が迫る『真・女神転生Ｖ Vengeance』をご試遊いただけます。
+
+ほかにも、会場ではグッズの販売をはじめ、展示やステージ企画などを準備しておりますので、続報をお待ちください！
+
+情報公開第１弾！
+
+世界最速試遊の『メタファー：リファンタジオ』、
+
+そして発売迫る『真・女神転生Ⅴ Vengeance』の試遊が決定！
+
+
+*****
+
+####  黑修士  
+##### 288#       发表于 2024-4-23 11:35
+
+[https://www.bilibili.com/video/BV1Cj411Q7Zs](https://www.bilibili.com/video/BV1Cj411Q7Zs)
+
+现代社会、理想乡、恐惧与不安、小说、梦幻泡影、“人类”和真相......
+
+似乎能脑补出不少有趣的发展<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电磁炮233  
+##### 289#       发表于 2024-4-23 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687535&amp;ptid=2140224" target="_blank">Squall25 发表于 2024-4-23 11:08</a>
+
+这玩意跟黎轨明显不一样，不知道怎么天天有人瞎扯。暗喻幻想这个攻击键看ui只有一个，就是一个酷炫版地图攻 ...</blockquote>
+即时+回合的系统就那么几个有，拿来对比无可厚非，不知道有什么可敏感的，7re和李鬼暗喻差的更多了
+
+*****
+
+####  Soyo  
+##### 290#       发表于 2024-4-23 11:46
+
+有coop吗
+
+
+*****
+
+####  Squall25  
+##### 291#       发表于 2024-4-23 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64688037&amp;ptid=2140224" target="_blank">电磁炮233 发表于 2024-4-23 11:42</a>
+即时+回合的系统就那么几个有，拿来对比无可厚非，不知道有什么可敏感的，7re和李鬼暗喻差的更多了 ...</blockquote>
+我只是笑某些人喜欢当人家祖宗的心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于7re灵感这个近藤自己说的，又不是我们说像不像的问题，当然近藤还扯过伊苏x想学习魂这类鬼话。
+相对来说黎轨和7re还是可以理解。7re第一部动作要素不像7rb，本质是回合制，那近藤说灵感应该是指黎轨无缝这套跟7re接近，反而地图攻击这块其实没啥意义，黎轨的地图攻击做的问题有点太大了，暗喻幻想不是无缝反而让我觉得有点落后了，尤其是如果不能自由进入战斗的话。而地图攻击怎么改其实都那样。
+
+*****
+
+####  黑酒杯  
+##### 292#       发表于 2024-4-23 11:55
+
+还是没啥看对眼的女角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Soap  
+##### 293#       发表于 2024-4-23 12:18
+
+战斗還是真三那套
+
+*****
+
+####  Rainwedell  
+##### 294#       发表于 2024-4-23 12:21
+
+pv3感觉有点乱，没前两个pv好
+
+
+*****
+
+####  牙狼GARO  
+##### 295#       发表于 2024-4-23 12:56
+
+现在只有ps5版么，后面还是会上pc吧？888hk可太贵了，以后加强版肯定还会有
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  AeonsTorn  
+##### 296#       发表于 2024-4-23 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689073&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-4-23 12:56</a>
+
+现在只有ps5版么，后面还是会上pc吧？888hk可太贵了，以后加强版肯定还会有
+
+—— 来自 OnePlus LE2100, An ...</blockquote>
+steam已经有了啊
+
+
+*****
+
+####  operatbig  
+##### 297#       发表于 2024-4-23 13:05
+
+女队友太少了吧...
+
+
+*****
+
+####  被击坠王  
+##### 298#       发表于 2024-4-23 13:12
+
+ 本帖最后由 被击坠王 于 2024-4-23 13:14 编辑 
+
+越宣传越回去，你成立新部门花费7年就做出来这种东西？
+
+*****
+
+####  牙狼GARO  
+##### 299#       发表于 2024-4-23 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689106&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-4-23 12:59</a>
+steam已经有了啊</blockquote>
+谢谢，看到了，先加入心愿单<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DET  
+##### 300#       发表于 2024-4-23 13:15
+
+阿特拉斯一年三产能不爆雷就有鬼了，还是先观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 301#       发表于 2024-4-23 13:19
+
+没有好康的妹子，决定观望了
+
+
+*****
+
+####  抽烟的猴  
+##### 302#       发表于 2024-4-23 13:23
+
+ 本帖最后由 抽烟的猴 于 2024-4-23 13:24 编辑 
+
+看了这么多宣传后，感觉最大的问题还是“游戏卖点为p5制作组”
+
+剧情，美术，玩法和系统上，始终没有让人眼前一亮的东西
+
+也就是说它最大的受众是桥野桂目黑等人的粉丝，铁三角出的作品无脑买买买那种
+
+*****
+
+####  misya  
+##### 303#       发表于 2024-4-23 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P系列没兴趣，但这个感兴趣
+
+
+*****
+
+####  wyy123  
+##### 304#       发表于 2024-4-23 13:30
+
+这次要预定豪华版，p3r当时没预定高价吃了现货。
+
+
+*****
+
+####  AeonsTorn  
+##### 305#       发表于 2024-4-23 13:34
+
+这企划，从17年开始期待的人和从23年开始期待的人现在的感受肯定是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  starwarszjm  
+##### 306#       发表于 2024-4-23 14:03
+
+有目黑其实就足够我下单了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sopp  
+##### 307#       发表于 2024-4-23 14:05
+
+UI设计又是一次大进步
+
+
+*****
+
+####  Swss  
+##### 308#       发表于 2024-4-23 14:07
+
+总感觉，看到了格里菲斯？<img src="https://static.saraba1st.com/image/smiley/carton2017/363.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zet  
+##### 309#       发表于 2024-4-23 14:14
+
+看完就准备预购豪华版了
+
+奔着红毛早见去的，看PV里躺了，不会真的挂了吧？
+
+
+*****
+
+####  石中剑二  
+##### 310#       发表于 2024-4-23 15:13
+
+玩肯定是要玩的，不过玩完真5甚至P3再玩这个会不会有既视感太强的疲劳感？
+
+
+*****
+
+####  walfeds  
+##### 311#       发表于 2024-4-23 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说系统面的话这游戏有桥野哥哥全家桶的既视感，真3p345乃至dds葛叶
+
+
+*****
+
+####  walfeds  
+##### 312#       发表于 2024-4-23 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689879&amp;ptid=2140224" target="_blank">zet 发表于 2024-4-23 14:14</a>
+
+看完就准备预购豪华版了
+
+奔着红毛早见去的，看PV里躺了，不会真的挂了吧？ ...</blockquote>
+这次pv一股be味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主角关键道具书都落入唯一指定大反派？手里了
+
+
+*****
+
+####  依存香炉  
+##### 313#       发表于 2024-4-23 15:40
+
+玩了p5t和灵魂骇客2 感觉atlus这公司有时候完全不是人
+
+
+*****
+
+####  528599244  
+##### 314#       发表于 2024-4-23 15:46
+
+系统层面有点落伍了，不过谁让近些年JRPG目前都很难拿出一个能一锤定音的作品呢
+
+
+*****
+
+####  anikom  
+##### 315#       发表于 2024-4-23 15:54
+
+豪华版的cd让我有种磕错cp的绝望感（并不）
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 316#       发表于 2024-4-23 18:00
+
+这即时战斗的部分感觉还不如黎轨啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灼热的小市民  
+##### 317#       发表于 2024-4-23 18:07
+
+不看好，我觉得外国市场对p系列评价高是喜欢扮演高中生那套。换皮还没多大创新的话不看好能爆。
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 318#       发表于 2024-4-23 18:37
+
+上来就是种族平等了吗？P组居然能做这么烂俗的题材吗？
+
+
+*****
+
+####  528599244  
+##### 319#       发表于 2024-4-23 19:09
+
+感觉可能会像星空那样部分人很喜欢，不过大众层面或许不会特别受欢迎，毕竟跟P系列那种让人精致舒适的差挺多
+
+不过既然是新IP的第一作只要能拿出不熟P3R的质量就成功了，说实话P那套框架真的玩腻了，预告感觉继承了很多，希望到时没腻吧
+
+这也算是老家伙们逐渐退居幕后的一作？不知道游戏节奏如何，FF7RB主线和调查员那种世纪初设计真的是感慨老家伙们已经脱节了，而SE还恰恰是JRPG技术力最强社，真是讽刺（当然我个人是很喜欢P5的节奏，就是有些时候可以加一下即时保存的机制，像对话过程时）
+
+
+*****
+
+####  戏言学者  
+##### 320#       发表于 2024-4-23 19:59
+
+怎么看都不可能比p3r差吧<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 321#         楼主| 发表于 2024-4-23 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685073&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 06:48</a>
+
+https://ebten.jp/atlus/p/7015024101101
+
+三枚胸针
+
+「ユークロニア連合王国国旗」「幻想小説 ...</blockquote>
+详情
+<img src="https://p.sda1.dev/17/63ba083c22e8e24ff2c62681f494d7e3/IMG_20240423_194410.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9eb07c51abf31e769c5f6b6f909bd7c6/product_pkg_special_thumb_7c87849b80b5d7a56e77e8fd8f4edd00.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/c98c1af811981e15a51e0481d50551e1/IMG_20240423_194433.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/a80a36a9a5982fc0bffb3b38e77cab9b/IMG_20240423_194452.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/2f5b38796ecbe8ae5503a841f59074a1/IMG_20240423_194517.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 322#         楼主| 发表于 2024-4-23 20:37
+
+[https://weibo.com/7897210512/5026421357676732](https://weibo.com/7897210512/5026421357676732)
+
+ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部”节目中回答玩家提问时明言：
+
+本作虽然有类似于《女神异闻录3》《女神异闻录4》COMMU、《女神异闻录5》COOP的系统，即今早PV中展示的与“支持者”的交流，但主角与各位支持者角色并不会发展为恋爱关系。不过随着与支持者感情加深，会解锁各种支线剧情从而加深对整个游戏故事的了解。
+
+
+*****
+
+####  alviaze  
+##### 323#       发表于 2024-4-23 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那我缺的纸片人老婆从哪里补啊
+
+
+*****
+
+####  siansian  
+##### 324#       发表于 2024-4-23 20:48
+
+我对成品质量其实并不是太过悲观，毕竟现在的atlus要是连游戏都做不好那确实没有存在的必要了
+
+
+*****
+
+####  Piano-Forest  
+##### 325#         楼主| 发表于 2024-4-23 21:00
+
+人际关系更偏向于传统RPG
+
+可以约会 ，但跟P系列有区别
+
+Relationships with party members is slightly different from Persona. There are more traditional RPG elements in some character interactions.
+<img src="https://p.sda1.dev/17/f8da61cd5963ee2cf99525c42e624705/IMG_20240423_205417.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  topia  
+##### 326#       发表于 2024-4-23 21:10
+
+音乐还不错的啦，到时候看看吧
+
+*****
+
+####  Piano-Forest  
+##### 327#         楼主| 发表于 2024-4-23 21:11
+
+本周Fami通刊登的部分访谈内容
+
+――ついに本作の発売日が決まりました。これまでに相当なこだわりを重ねてきたのではと思いますが、振り返るといかがでしょうか？
+
+橋野　構想を練り始めた最初の数年は、『キャサリン・フルボディ』（2019年発売）を作りながらの準備期間でしたので、開発が本格化したのはその後ですね。ある意味、いちばん苦労したのはリモートワークを余儀なくされた時期の開発でしたが、現在はマルチプラットフォーム対応や全世界同時発売に向けた準備もほぼ完了しています。満を持して、ここまで辿り着きました。
+
+――構想段階のころに取材させていただいたインタビューを読み返すと、「これまでは現実を舞台にしていたがゆえに踏み込んでいなかった根源的なところまで、ゲームとして描きたい。この世界でなぜ人は争うのか、といったさまざまな思いの交錯を、その幻想世界で生きてきた住人のひとりになったつもりで見つめ、自分なりに腑に落として、何かしらの思いを現実に持ち帰ってほしい」と、橋野さんは話していました。本作はまさに、初志貫徹のようで……！
+
+橋野　もちろん、最初から完成形が見えていたわけではありませんから、システムの構築などでトライ＆エラーは重ねました。作品のイメージを醸成するUIも、デザインが固まるまでに何度か大きく作り変えています。でき上がってきたゲームをご覧いただくと、思っていたよりも正統派のファンタジーではなさそうな印象を受けるかもしれませんが（笑）、アトラスらしさを目指すとこうなるよね、という手応えを感じながら作り続けることができたように思います。
+
+　もともと僕たちが現代劇を好きな理由は、自分が生きている現実にも通じるような、何らかの気付きが得られるようなテーマを描きたかったから。この根源的な思いがブレないかぎりは、たとえファンタジーの王道から外れるような要素であっても迷うことなく入れていきました。
+
+――副島さんによる描き下ろしのパッケージビジュアルも、壮観ですね。
+
+橋野　まずはビジュアルの中央に置いているタイトルロゴについて補足しますと、これは王都の大通りがモチーフで、劇中の大聖堂をイメージした真ん中の“A”の文字に向かってパースを効かせています。ロゴの下側には主人公たちが民衆を率いている様子を、そして彼らが立ち向かうことになる相手を上側に描いています。
+
+──ゲームの中身はほぼ完成しているようにお見受けしますが、いまの手応えはいかがでしょう。
+
+橋野　やれるだけのことはやった、という気持ちに尽きます。ただただ真面目に作り続けてきましたので、たくさんの方に楽しんでいただけることを願うばかりです。本作の公式サイトでは、作品の雰囲気をお見せしてきた従来のPVからもう一歩踏み込んで、実際の手触りをお伝えする解説映像も公開していますので、そちらもぜひご覧いただければと思います。今後のさらなる続報にも、どうぞご期待ください。
+
+
+*****
+
+####  guiminan  
+##### 328#       发表于 2024-4-23 21:28
+
+为啥把archetype翻译成阿基态<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  HATENA  
+##### 329#       发表于 2024-4-23 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694737&amp;ptid=2140224" target="_blank">alviaze 发表于 2024-4-23 20:44</a>
+
+那我缺的纸片人老婆从哪里补啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从皇家版补
+
+*****
+
+####  被击坠王  
+##### 330#       发表于 2024-4-23 21:40
+
+连整天cool来cool去的老外都在骂这UI过度设计像鬼画符一样看瞎眼
+
+
+*****
+
+####  洛亚替身  
+##### 331#       发表于 2024-4-23 21:48
+
+ 本帖最后由 洛亚替身 于 2024-4-23 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695213&amp;ptid=2140224" target="_blank">被击坠王 发表于 2024-4-23 21:40</a>
+
+连整天cool来cool去的老外都在骂这UI过度设计像鬼画符一样看瞎眼</blockquote>
+这UI好像不是须藤正喜的，但我认为这UI在画面规格强的游戏还挺搭的......现在这样就可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  528599244  
+##### 332#       发表于 2024-4-23 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694645&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 20:37</a>
+
+https://weibo.com/7897210512/5026421357676732
+
+ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</blockquote>
+没有恋爱要素推进的动力少一半啊，Atlus这次想怎么爆种
+
+*****
+
+####  影山银  
+##### 333#       发表于 2024-4-23 22:03
+
+大概是P系列看多了，这色调看起来有点土啊
+
+
+*****
+
+####  Philister  
+##### 334#       发表于 2024-4-23 22:10
+
+画面真的好脏，有种碰一下就能沾一手颜料的感觉，UI还一直蠕动<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  528599244  
+##### 335#       发表于 2024-4-23 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695479&amp;ptid=2140224" target="_blank">Philister 发表于 2024-4-23 22:10</a>
+
+画面真的好脏，有种碰一下就能沾一手颜料的感觉，UI还一直蠕动</blockquote>
+高情商：画面有种重力少女的美（我个人其实还算喜欢，就是城镇里全是这样的房子太难蚌了）
+
+
+*****
+
+####  洛亚替身  
+##### 336#       发表于 2024-4-23 22:15
+
+脏兮兮的蒸汽和工业革命风果然只适合俯视角crpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  z692689995  
+##### 337#       发表于 2024-4-23 22:27
+
+这是不是说明阿特拉斯现在唯一能看的只有smt组了
+
+*****
+
+####  星野航  
+##### 338#       发表于 2024-4-23 22:30
+
+刚看了个宣传片就开始阿特拉斯只有smt能看么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 339#       发表于 2024-4-23 22:30
+
+画面里到处在飘的那些东西是什么啊也没说，本来就够杂乱了还搞一堆这种没用的设计
+
+
+*****
+
+####  抽烟的猴  
+##### 340#       发表于 2024-4-23 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64693393&amp;ptid=2140224" target="_blank">一夜秋风袭锦城 发表于 2024-4-23 18:37</a>
+
+上来就是种族平等了吗？P组居然能做这么烂俗的题材吗？</blockquote>
+烂俗的不是p系列高中生劈腿泡妞吗，但是人民群众就喜欢这个
+
+种族平等太不接地气了，不看好
+
+*****
+
+####  抽烟的猴  
+##### 341#       发表于 2024-4-23 22:41
+
+不过感觉建模问题更大点
+
+高情商：三十年前的复古感
+
+0f77521fd2e49192b0f19dbbfe32fd15.jpg
+(265.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 22:40 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/224056dcc111x1qpx1c31x.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寂长无星夜  
+##### 342#       发表于 2024-4-23 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">国区不会也478吧
+
+*****
+
+####  卡拉德利姆  
+##### 343#       发表于 2024-4-23 22:43
+
+我只是想知道当年那个红发精灵女剑士的概念图是怎么变成现在这屌样的
+
+*****
+
+####  AeonsTorn  
+##### 344#       发表于 2024-4-23 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695825&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-4-23 22:43</a>
+
+我只是想知道当年那个红发精灵女剑士的概念图是怎么变成现在这屌样的</blockquote>
+按舅舅的说法19年开始正式开发的话，那从17年公布开始算的那两年工作全都推翻了呗
+
+
+*****
+
+####  baizhi  
+##### 345#       发表于 2024-4-23 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这合理吗？是不是风格不同的原因，怎么感觉比P3重置差多了。。。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AeonsTorn  
+##### 346#       发表于 2024-4-23 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696264&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-4-23 23:25</a>
+
+这合理吗？是不是风格不同的原因，怎么感觉比P3重置差多了。。。
+
+—— 来自 OPPO PGBM10, Android  ...</blockquote>
+毕竟p3r上了新引擎，能期待之后的加强版变成用新引擎的hd版吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新世界的派蒙  
+##### 347#       发表于 2024-4-23 23:32
+
+感觉人设不得劲阿副岛，隔壁多种族圣兽之王那批发XP，这边反而没什么喜闻乐见的要素
+
+
+*****
+
+####  moonblackwh  
+##### 348#       发表于 2024-4-23 23:41
+
+ 本帖最后由 moonblackwh 于 2024-4-23 23:42 编辑 
+
+对话框菜单光标全在不停蠕动，ui颜色各种大红大紫，但整个场景色调灰蒙蒙的，看久了真的瞎眼吧。
+
+从smt5的阴间地图色调到p3r的瞎眼楼层主题，阿特拉斯是真的跟玩家的眼睛过不去啊。
+
+*****
+
+####  安心院紫苑  
+##### 349#       发表于 2024-4-23 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看吹了半天美术就感觉ui和地图美术完全不搭，菜单ui还好。
+
+外加特效经常是一大片停留时间不断地色块，和色调偏暗的贴图以及ui糊在一起。尤其是指令战斗时到队友顺序变身阿基态是大半屏暗红色特效和指令ui糊在一起…口胡。
+
+整个节目看下来印象最好的是音乐，有点担心这作啊。
+
+
+*****
+
+####  superlink  
+##### 350#       发表于 2024-4-23 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">人设被p345暴打吧
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nancygreenlife  
+##### 351#       发表于 2024-4-23 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696458&amp;ptid=2140224" target="_blank">安心院紫苑 发表于 2024-4-23 23:43</a>
+
+看吹了半天美术就感觉ui和地图美术完全不搭，菜单ui还好。
+
+外加特效经常是一大片停留时间不断地色 ...</blockquote>
+玩P5的时候就感觉滥用特效了，攻克殿堂的时候总有各种边框特效压迫游玩视野
+
+
+*****
+
+####  Khellendros  
+##### 352#       发表于 2024-4-24 00:00
+
+<blockquote>抽烟的猴 发表于 2024-4-23 22:41
+不过感觉建模问题更大点。高情商：三十年前的复古感
+
+搭配过场更喜感</blockquote>
+女主正脸感觉像个回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 353#       发表于 2024-4-24 00:03
+
+p3re那是新引擎，这作是老引擎磨洋工（游戏晚发售两年就容易跟不上时代，UI看起来也不是御用须藤）出来的游戏
+
+
+*****
+
+####  Piano-Forest  
+##### 354#         楼主| 发表于 2024-4-24 00:48
+
+“Battle Theme”试听：[https://youtu.be/n3m-imqEmWE](https://youtu.be/n3m-imqEmWE)
+
+
+*****
+
+####  topia  
+##### 355#       发表于 2024-4-24 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要红发女精灵可以去玩世界树x
+
+
+*****
+
+####  bwsusaga  
+##### 356#       发表于 2024-4-24 01:23
+
+音乐有一小段实在太像三房主题曲了。
+
+
+*****
+
+####  Farlight  
+##### 357#       发表于 2024-4-24 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694645&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 20:37</a>
+https://weibo.com/7897210512/5026421357676732
+
+ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</blockquote>
+啊？那我缺的gal这块
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 358#       发表于 2024-4-24 10:31
+
+A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗用boss战规格的bgm有点用力过猛
+
+
+*****
+
+####  Squall25  
+##### 359#       发表于 2024-4-24 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696317&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-4-23 23:30</a>
+毕竟p3r上了新引擎，能期待之后的加强版变成用新引擎的hd版吗</blockquote>
+P3r是做的时候就用虚幻啊，暗喻幻想就算有加强版，直接换引擎这种操作真的有可能吗？怕是屎山根本不好弄
+
+
+*****
+
+####  heseran  
+##### 360#       发表于 2024-4-24 10:55
+
+什么？不能发展为恋爱关系？<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 361#       发表于 2024-4-24 11:06
+
+感觉这次曲风和以往p系列差别很大，还是有点担心目黑能不能驾驭得好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ouyang菌  
+##### 362#       发表于 2024-4-24 11:10
+
+目黑区分多变的很，sj的交响乐和smt3不少曲子不都是他作的
+非要把人家绑死在p系列的流行乐身上才是浪费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  黑修士  
+##### 363#       发表于 2024-4-24 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699305&amp;ptid=2140224" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-4-24 10:31</a>
+
+A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗用boss战规格的bgm有点用力过猛 ...</blockquote>
+[https://www.bilibili.com/video/BV1Dm421W7FE](https://www.bilibili.com/video/BV1Dm421W7FE)
+
+可能是BOSS战的配乐吧，通常战用这种确实有些过猛了
+
+感觉目黑这次在编曲上融合了不少东西方的宗教元素
+
+有经文唱诵、圣歌和声，PV里还有邦乐风格的女声吟唱
+
+
+*****
+
+####  topia  
+##### 364#       发表于 2024-4-24 11:50
+
+反正a社音乐倒是一直是最不怎么需要担心的
+
+
+*****
+
+####  封面杀手  
+##### 365#       发表于 2024-4-24 12:45
+
+这从角色到原型再到敌人真是只能用乏来形容，不说隔壁土居，换真4那帮特摄来设计都比这行
+
+
+*****
+
+####  bwsusaga  
+##### 366#       发表于 2024-4-24 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700129&amp;ptid=2140224" target="_blank">黑修士 发表于 2024-4-24 11:25</a>
+
+https://www.bilibili.com/video/BV1Dm421W7FE
+
+可能是BOSS战的配乐吧，通常战用这种确实有些过猛了</blockquote>
+[https://music.163.com/#/song?id=1380869131&amp;dlt=0846](https://music.163.com/#/song?id=1380869131&amp;dlt=0846)
+
+風花雪月 メインテーマ 三房的主题战场曲
+
+1：00开始的副曲部分
+
+和暗喻这首2：20开始的副歌部分 
+
+旋律非常接近，也不是说抄，就是听感上一下子就窜到风花雪月去了。
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 367#       发表于 2024-4-24 17:27
+
+<blockquote>抽烟的猴 发表于 2024-4-23 22:37
+烂俗的不是p系列高中生劈腿泡妞吗，但是人民群众就喜欢这个
+
+种族平等太不接地气了，不看好 ...</blockquote>
+又是王又是种族又是大逃杀啥的，烂作雷达已经在响了好吧
+
+
+*****
+
+####  桧山修之  
+##### 368#       发表于 2024-4-24 19:31
+
+目黑果真不用担心，水平稳得不行，看完预告之后最担心的是故事和玩法，老实说人设我还现在都还没看顺眼
+
+*****
+
+####  Piano-Forest  
+##### 369#         楼主| 发表于 2024-4-24 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694976&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 21:11</a>
+
+本周Fami通刊登的部分访谈内容
+
+――ついに本作の発売日が決まりました。これまでに相当なこだわりを重ねて ...</blockquote>
+・本作の主人公には明確な使命がありそのために王になることを目指す展開が待っている
+
+・そのために戦略を巡らして王の座を狙うのではなく生まれながらに英雄性を秘めた無自覚のカリスマみたいな青年がやがて人々から支持を集めていく
+
+・パーティメンバーは物語を進めると7人まで増えバトルは最大4人で挑む
+
+・同じ敵やダンジョンに挑むときプレイヤー次第で編成は変わる。お好みのプレイスタイルを反映できる
+
+・格下の敵なら一瞬で倒せるファスト＆スクワッドでテンポアップや思考のリズムとゲームのテンポを合わせたかった
+
+・現在はマルチプラットフォーム対応や全世界同時発売にむけたじゅんびはほぼ完了している
+
+
+*****
+
+####  Soap  
+##### 370#       发表于 2024-4-24 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699305&amp;ptid=2140224" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-4-24 10:31</a>
+
+A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗用boss战规格的bgm有点用力过猛 ...</blockquote>
+SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快死了
+
+
+*****
+
+####  Piano-Forest  
+##### 371#         楼主| 发表于 2024-4-24 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705996&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-24 19:32</a>
+
+・本作の主人公には明確な使命がありそのために王になることを目指す展開が待っている
+
+・そのために戦略 ...</blockquote>
+桥野桂访谈
+[https://weibo.com/7897210512/5026772578469315](https://weibo.com/7897210512/5026772578469315)
+
+・主角有明确的使命，为了这一使命而成为王。但主角并不会为了成为王而使用各种计略，在他身上潜藏着一种他与生俱来的领导气质，虽然他自己对此没有自觉，但这将为他带来人们的支持
+
+・队伍最终有7名角色，一次性编队最多4人。在挑战同样的敌人与迷宫时玩家可以自由编组，可以反映出玩家的游戏风格
+
+・对低等级的敌人可以瞬杀，以此来优化游戏节奏。开发者希望玩家在进行游戏时，思考的节奏能够和游戏的节奏对上频率
+
+・目前已经做好了全球多平台同步发售的工作
+
+
+*****
+
+####  猫沢  
+##### 372#       发表于 2024-4-24 21:40
+
+7名角色，真藏了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可以放心预购了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  septer  
+##### 373#       发表于 2024-4-24 21:40
+
+看了最近的一些片子，感觉至少音乐不会让人失望
+
+
+*****
+
+####  卡拉德利姆  
+##### 374#       发表于 2024-4-24 21:45
+
+算上黑白披风那个也就一个没露面吧
+
+
+*****
+
+####  potwater  
+##### 375#       发表于 2024-4-24 22:52
+
+黑白披风是PV1的这位吗
+
+<img src="https://img.saraba1st.com/forum/202404/24/225235bdtnucpdrdnal1p2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/225238j7mdw7hndfwdfhm9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 22:52 上传
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 376#       发表于 2024-4-24 22:54
+
+这披风太“高级”了，欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AeonsTorn  
+##### 377#       发表于 2024-4-24 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707950&amp;ptid=2140224" target="_blank">potwater 发表于 2024-4-24 22:52</a>
+
+黑白披风是PV1的这位吗</blockquote>
+这么一看还有一个大概是右上角那个西装人，大概是细谷佳正配的那个？
+
+*****
+
+####  Arians  
+##### 378#       发表于 2024-4-24 23:59
+
+这队友人设完全没有购入的欲望阿
+
+
+*****
+
+####  Piano-Forest  
+##### 379#         楼主| 发表于 2024-4-25 00:12
+
+<img src="https://p.sda1.dev/17/908bd030e5bef820e4c8fe6d9f43df1a/82bd2e98gy1hp2bh5w1fyj22yo1o0kjr _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/eabab982836bbfeb02bb1addc6d2ebff/82bd2e98gy1hp2bh69t0tj22yo1o0u13 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0c6fabac253aa0d679a6b7c7fac544a8/82bd2e98gy1hp2bh7ncixj22yo1o0npj _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/d29fc639dc2a235e89408724ab446d81/82bd2e98gy1hp2bh6i0j9j22yo1o0b2g _1_.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秦南心  
+##### 380#       发表于 2024-4-25 00:25
+
+好顶级的游戏介绍，越看到后面越兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suzakushi  
+##### 381#       发表于 2024-4-25 00:31
+
+人设是真的土，还没GAL，开始提前盼P6了。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  LuciferMustDie  
+##### 382#       发表于 2024-4-25 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695120&amp;ptid=2140224" target="_blank">guiminan 发表于 2024-4-23 21:28</a>
+
+为啥把archetype翻译成阿基态
+
+—— 来自 vivo V2329A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一个普通名词，非要硬扭成个生造词，就是装逼装成low逼中学生了
+
+想要装逼就译成<strong>原典</strong>也好啊
+
+
+*****
+
+####  baizhi  
+##### 383#       发表于 2024-4-25 05:59
+
+西装男长这样，怎么说？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/25/055835vv4qv7kvjlvk4crq.png" referrerpolicy="no-referrer">
+
+<strong>捕获.PNG</strong> (256.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 05:58 上传
+
+
+*****
+
+####  洛亚替身  
+##### 384#       发表于 2024-4-25 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709055&amp;ptid=2140224" target="_blank">suzakushi 发表于 2024-4-25 00:31</a>
+
+人设是真的土，还没GAL，开始提前盼P6了。
+
+—— 来自 Sony XQ-AT52, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+队友人设就这样了，没gal也无所谓吧......暗喻人设感觉是让你专注主线而设计的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P6也不远了，最多两年不到就能看见
+
+
+*****
+
+####  bm7号  
+##### 385#       发表于 2024-4-25 15:16
+
+之前我老觉得本作3d美术看着一般，今天才发现是19世纪风格根本幻想不起来。
+
+
+*****
+
+####  kuarwbwe  
+##### 386#       发表于 2024-4-25 15:22
+
+没法恋爱+种族问题是吧。那剧情基本完蛋了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计就是喊两句白左口号然后加上尬演。还没有泡女人兜底。想想都灾难。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windtrack_qh  
+##### 387#       发表于 2024-4-25 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏最开始公布的那个红发女主彻底没了是吧
+
+*****
+
+####  QYMtutututu  
+##### 388#       发表于 2024-4-25 15:39
+
+<img src="https://img.saraba1st.com/forum/202404/25/153818cu8udwnsann803un.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 15:38 上传
+
+入了，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+赌一把超神<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕容断月  
+##### 389#       发表于 2024-4-25 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685145&amp;ptid=2140224" target="_blank">喇叭 发表于 2024-4-23 07:18</a>
+战斗看笑了…
+
+地图上又砍又闪，一通辗转腾挪，最后就换个类似p5开幕枪击的效果…这味有点熟悉，来自星尘？ ...</blockquote>
+这玩意儿不是零之轨迹嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 390#       发表于 2024-4-25 16:07
+
+这作队友看着和p系列的路人一个等级<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  plok201  
+##### 391#       发表于 2024-4-25 16:26
+
+这世界观加PV那些台词，安全落地都谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suzakushi  
+##### 392#       发表于 2024-4-25 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713323&amp;ptid=2140224" target="_blank">洛亚替身 发表于 2024-4-25 12:55</a>
+
+队友人设就这样了，没gal也无所谓吧......暗喻人设感觉是让你专注主线而设计的P6也不远了，最多两 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题这剧情感觉也不见得会好到哪去，玩法又是一眼望到头的东西。到时也就买来看看潮出水的UI听听BGM了，我是真不理解当年刚公布时那么好看的红毛妹怎么最后被改成了这副德行。
+
+
+*****
+
+####  CALPISSODA  
+##### 393#       发表于 2024-4-25 17:10
+
+<blockquote>kuarwbwe 发表于 2024-4-25 15:22
+没法恋爱+种族问题是吧。那剧情基本完蛋了。
+
+估计就是喊两句白左口号然后加上尬演。还没有泡女人兜 ...</blockquote>
+没事，2年后加强版解锁恋爱系统增加新女主角，追加新主线跳出种族问题，战斗系统全面完善，骂完记得买。
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 394#       发表于 2024-4-25 17:53
+
+烂作雷达已经在蜂鸣了好吧
+
+*****
+
+####  Rainwedell  
+##### 395#       发表于 2024-4-25 17:57
+
+楼里充分证明了大家都是来玩gal的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，普通coop不能泡队友也不安个固定CP吗？
+
+
+*****
+
+####  c0x9z8  
+##### 396#       发表于 2024-4-25 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64715088&amp;ptid=2140224" target="_blank">QYMtutututu 发表于 2024-4-25 15:39</a>
+
+入了，
+
+赌一把超神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">求私信个地址，哪里买的
+
+
+*****
+
+####  Piano-Forest  
+##### 397#         楼主| 发表于 2024-4-25 18:53
+
+《暗喻幻想：ReFantazio》及《真·女神转生Ⅴ Vengeance》将于4月26日携独家内容亮相Bilibili高能电玩节2024线上直播活动，为本次活动特别制作的简体中文实机宣传片首次公开，向各位玩家展示两部作品的精彩游戏内容！
+
+直播间：[https://live.bilibili.com/905563](https://live.bilibili.com/905563)
+
+明天7点，不见不散！
+
+
+*****
+
+####  QYMtutututu  
+##### 398#       发表于 2024-4-25 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716942&amp;ptid=2140224" target="_blank">c0x9z8 发表于 2024-4-25 18:09</a>
+
+求私信个地址，哪里买的</blockquote>
+2000fun官网
+
+不过现在35周年纪念版没货了
+
+
+*****
+
+####  Piano-Forest  
+##### 399#         楼主| 发表于 2024-4-25 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696970&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-24 00:48</a>
+
+“Battle Theme”试听：https://youtu.be/n3m-imqEmWE</blockquote>
+“Story BGM”试听：[https://b23.tv/x2T0xeP](https://b23.tv/x2T0xeP)
+
+
+*****
+
+####  Piano-Forest  
+##### 400#         楼主| 发表于 2024-4-26 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64717404&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-25 18:53</a>
+
+《暗喻幻想：ReFantazio》及《真·女神转生Ⅴ Vengeance》将于4月26日携独家内容亮相Bilibili高能电玩节202 ...</blockquote>
+PV3 简中系统演示版（简中版游戏画面）
+
+
+*****
+
+####  Piano-Forest  
+##### 401#         楼主| 发表于 2024-4-26 20:06
+
+PV3 简中系统演示版（简中版游戏画面）
+
+《暗喻幻想：ReFantazio》简体中文实机画面首发：
+[https://b23.tv/lkU2gKZ](https://b23.tv/lkU2gKZ)
+
+
+*****
+
+####  Piano-Forest  
+##### 402#         楼主| 发表于 2024-4-26 21:28
+
+<img src="https://p.sda1.dev/17/2e27e9d4dc580102360c88fba88ecca2/7831017141361652.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/15438fce85fcb7e72a5c4aa0da8aad2f/7884617141362302.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/607ebf2af0598318347b968512face66/7944617141362392.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/7f40d04fa7dcdedfcac1082c85680e60/8824317141362672.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ccaeb9c557e3911639767fe30a1497c3/8870717141362872.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e5889960d3a0b7e43e81fec31f668539/8930717141362962.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0b5a724961f44d4ac2db79df218c94fd/8990717141363022.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/97ced58e368c8131ae0818a7b96fd366/4421117141360812.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/6b898094d4311f39d8b0aed7faacdf9b/12175317141363482.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 403#         楼主| 发表于 2024-4-28 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708905&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-25 00:12</a></blockquote>
+《暗喻幻想：ReFantazio》导演专访：人事已尽，静候佳音
+[https://gouhuo.qq.com/mainpage/d ... 424161535_tLv8QZfoT](https://gouhuo.qq.com/mainpage/detail?storyid=0_20240424161535_tLv8QZfoT)
+
+最新一期《Fami 通》杂志特别刊载了一则对本作导演桥野桂的专访内容，问了问他此时此刻的感想以及开发过程中都付出了哪些努力
+
+Atlus 导演桥野桂（下文简称为桥野）
+
+<strong>—— 本作的发售日终于正式敲定了。相信你们走到这一步肯定很不容易，能请您简单回顾一下迄今为止的历程吗？</strong>
+
+桥野：最初几年我们是一边开发《凯瑟琳：浓郁口感》（2019 年发售）一边进行的初期构思，因此本作正式投入开发应该是在这之后。从某种程度上来说，开发最艰难的阶段应该是全面采用远程办公的时期，好在目前本作针对多平台的适配以及为全球同步发售所做的准备都已经差不多完成了。我们是做好了万全的准备，才最终决定迈出这一步。
+
+<strong>—— 在早期构思阶段的采访中，您曾经提到「希望用游戏的方式来展现此前现代背景下没能深入阐释的内核，让玩家能够化身为奇幻世界的一员，用心去感受这个世界里的人们究竟为何而争斗以及他们彼此之间思想的交锋，然后再将自己的所思所想带回到现实生活当中」。现在看来，本作真是不忘初心呀……</strong>
+
+桥野：我们当然不是从一开始就料到了最后的完成品会是什么样，游戏不仅在系统构建等方面经历了反复试错，视觉风格的重要组成要素 UI 界面的设计也有过多次重大改动。尽管目前的游戏成品看起来可能会比大家想象中的更加不像传统奇幻游戏，但我们在制作过程中一直都秉承着要展现 Atlus 特色的理念。我们想要刻画的主题，是与玩家所处的现实世界相通的某种感触和情感，因此只要不偏离这一核心概念，即便是与经典奇幻题材格格不入的要素我们也会毫不犹豫地将其加入到游戏当中。
+
+<strong>—— 副岛先生所绘制的实体版封面图也相当恢弘壮观啊。</strong>
+
+桥野：如果将封面图中央标题 Logo 的部分补全，可以看到这幅图是以王都的中央大街为背景的，而最中心字母「A」的造型则是利用透视关系来模拟游戏中大教堂的形状。Logo 下方描绘的是主人公一行人率领着民众们的身姿，上方则是他们需要直面挑战的对象。
+<img src="https://p.sda1.dev/17/977c24f537f27d295eb7a54e5c1d533f/013.jpg" referrerpolicy="no-referrer">
+
+<strong>—— 在过去的访谈中，副岛先生曾就主人公的设计表示过「玩家扮演的虽然是主角，但主角并不是无色透明的，而是被设计成一个目光如炬的年轻人，他周身散发着中立和温和的气场，同时也好像隐藏着什么秘密」。从本次公开的视觉图中也确实可以感觉到他的气场与《女神异闻录》系列的主人公截然不同。</strong>
+
+桥野：本作的主人公肩负着明确的使命，并因此必须得踏上一段成王之路。话虽如此，但他并不是「积极制定各种策略，想尽办法夺取王座」这种类型的角色，更像是一位有着与生俱来的英雄属性，在无意识之间散发着超凡的人格魅力，并以此吸引各式各样的人们投奔其麾下的青年。在主人公身上，你能够看到某种足以改变世界的，脱胎于其纯洁本性的特质。
+
+<strong>—— 所谓的英雄属性，在主人公一行人觉醒的原型（Archetype）身上也有所体现吧？</strong>
+
+桥野：（原型）本是沉睡在每个人内心中的东西，当直面自身的不安和恐惧时就会觉醒……这便是在本作的世界中被称作原型的秘法。在现实世界里，我们有时会从他人身上获得力量，或是通过交流发现认识事物的全新方式。主人公也是一样，他会在旅途中邂逅各式各样的角色，从他们身上获得无可代替的力量。与此同时，这样的「牵绊」也会非常自然地融入到游戏对于「旅程」的刻画当中。
+
+<strong>—— 不仅仅是主人公，队伍的其他成员也可以自由更换原型，这一点与《女神异闻录》系列的人格面具截然不同，很可能会带来策略层面上的显著差异。</strong>
+
+桥野：推着故事的推进，队伍成员最多可以增加到 7 名，而每场战斗可以登场的角色则是 4 名。虽然原型的设计初衷与提高自由度完全无关，但从结果而言的确能够让每名玩家在挑战相同敌人或地牢时都采用独一无二的队伍配置，玩出自己的风格。在邀请公司内其他开发团队的成员前来进行测试时，我也观察到他们每个人的队伍构成、战斗风格以及推进日常的方式都各不相同。
+
+<strong>—— 并不是询问他们的感想，而是直接通过观察发现的啊。</strong>
+
+桥野：除了组织成语言的试玩感想外，观察他们在游玩过程中呈现的状态也给我们提供了大量有效的反馈。本作在开发过程中得到了相当多其他开发团队成员的长期支援，因此许多要素的优化和调整也都离不开他们提供的反馈。
+
+<strong>—— 能够瞬间打倒低等级敌人的「Fast&amp;Squad」系统是基于什么样的考虑引入的呢？</strong>
+
+桥野：一方面当然是为了加快游戏的节奏，但更重要的是我们想要让玩家思考的频率与游戏的推进节奏尽可能地保持同步。举个例子，滔滔不绝、出口成章的情况与需要慎重选择表达方式，谨慎发言的情况在现实世界的对话中都会出现。战斗也是一样，对付弱小的敌人就三下五除二地随意干掉，遇到看起来不好对付的强敌就先拉开距离，制定好具体的对策……在游玩时玩家需要在脑海中频繁地切换这两种思维模式。在行为主义心理学领域，有一本名为《思考，快与慢》的著作，「Fast&amp;Squad」这个名字就是以此为灵感确定下来的。
+
+<strong>—— 原来是取自一个专业性的术语啊（笑）。目前游戏的主体内容已经基本开发完成，请问您现在的心情如何呢？</strong>
+
+桥野：我的最大感想就是「能做的事都做了」。一直以来我们都是全神贯注地在制作游戏，希望能让更多玩家对本作抱有期待。目前官网上已经公开了比上一则概念宣传片更加细致的实机游玩解说视频，还请各位不要错过，敬请期待我们后续更新和放出的更多情报。
+
