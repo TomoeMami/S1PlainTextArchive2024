@@ -93,3 +93,188 @@ lol账号动了，会播吗<img src="https://static.saraba1st.com/image/smiley/f
 
 原来您还记得饭盒啊
 
+*****
+
+####  zpy393  
+##### 9717#       发表于 2024-4-26 11:05
+
+等了几年居然真的要播法环了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 9718#       发表于 2024-4-26 11:06
+
+环批登场
+
+<img src="https://img.saraba1st.com/forum/202404/26/110624nuoancj1j1twjeju.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9231.jpeg</strong> (474.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:06 上传
+
+
+*****
+
+####  旧时代的扎比  
+##### 9719#       发表于 2024-4-26 12:29
+
+哇哦
+
+
+*****
+
+####  ylssb10438  
+##### 9720#       发表于 2024-4-26 23:35
+
+初见？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 9721#       发表于 2024-4-27 00:27
+
+终于播老头环了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悪魔のZ  
+##### 9722#       发表于 2024-4-27 00:33
+
+打卡
+
+
+*****
+
+####  Wondering  
+##### 9723#       发表于 2024-4-27 10:20
+
+终于可以捡起法环了，档都不知道丢哪里去了，这次开新档和夸一起重新打一遍
+
+
+*****
+
+####  梅斯之围  
+##### 9724#       发表于 2024-4-27 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要来了吗，大叔守卫耐久
+
+
+*****
+
+####  离魂仙  
+##### 9725#       发表于 2024-4-27 11:49
+
+不是，就硬凹初见？不搞自限的话播着也妹挑战性啊
+
+还是说一开始就奔着双太刀去cos桐人了，那力敏菜刀流也算是受点苦
+
+
+*****
+
+####  离魂仙  
+##### 9726#       发表于 2024-4-27 12:42
+
+丝血斩杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">似曾相识的一幕
+
+打个大树1个小时出头，比预想中的慢了些，明显可以很快拿捏的，心态毛躁了
+
+
+*****
+
+####  zpy393  
+##### 9727#       发表于 2024-4-27 18:33
+
+昏了，一播播的也太长了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 9728#       发表于 2024-4-27 18:43
+
+还是一如既往的头铁，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9729#       发表于 2024-4-30 14:40
+
+唉 りんちゃん
+
+
+*****
+
+####  旧时代的扎比  
+##### 9730#       发表于 2024-4-30 22:17
+
+狗道还挺有意思的
+
+
+*****
+
+####  zpy393  
+##### 9731#       发表于 2024-5-1 12:57
+
+连播5天，最近勤奋的像被夺舍了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 9732#       发表于 2024-5-1 13:11
+
+200万吧，GW可能想冲，突击多播凑点人
+
+
+*****
+
+####  Scardy  
+##### 9733#       发表于 2024-5-1 14:58
+
+感觉还是难，看了一下离199W都还差5000多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9734#       发表于 2024-5-1 16:29
+
+难点好，涨粉越慢播的越多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 9735#       发表于 2024-5-1 16:37
+
+ 本帖最后由 holoan 于 2024-5-1 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781827&amp;ptid=1947500" target="_blank">Scardy 发表于 2024-5-1 14:58</a>
+
+感觉还是难，看了一下离199W都还差5000多</blockquote>
+你现在看到的不是频道后台真实数据而只是第三方网站的简易线性预测值，实际上多少只有本人知道，不过如果按以前的性格很可能就做一个什么游戏的耐久顺便冲200W，既然到现在也没提大概就是不耐久了
+
+
+*****
+
+####  Scardy  
+##### 9736#       发表于 2024-5-1 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782560&amp;ptid=1947500" target="_blank">holoan 发表于 2024-5-1 16:37</a>
+
+你现在看到的不是频道后台真实数据而只是第三方网站的简易线性预测值，实际上多少只有本人知道，不过如果 ...</blockquote>
+现在没提耐久冲200W，可能就是差的还有点多，耐了也上不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holoan  
+##### 9737#       发表于 2024-5-1 17:24
+
+不存在上不去的，azki前两天耐久看到了吗，几小时就到了
+
