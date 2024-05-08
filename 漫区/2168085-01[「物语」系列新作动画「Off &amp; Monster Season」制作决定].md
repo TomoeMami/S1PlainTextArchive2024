@@ -1188,3 +1188,539 @@ shaft其实十多年前制作就不是很稳，不过shaft 18年前总是大量�
 老仓的剧情都是沾点本格推理的，没点功底改不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 但相对的这样才有意思啊
 
+*****
+
+####  Tachikoma88  
+##### 132#       发表于 2024-5-2 17:05
+
+yoasobi还行，看来没有角色曲了？也算正常，后面几个物语的故事都挺短的
+
+
+*****
+
+####  dot  
+##### 133#       发表于 2024-5-2 17:09
+
+草
+
+*****
+
+####  dot  
+##### 134#       发表于 2024-5-2 17:09
+
+不过，应该不会一个曲子用到底
+
+*****
+
+####  forgetit  
+##### 135#       发表于 2024-5-2 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  振翼发  
+##### 136#       发表于 2024-5-2 17:12
+
+什么新旧时代交汇的霸权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 137#       发表于 2024-5-2 17:25
+
+愚物语的三个故事好像除了老仓育外都能一集结束吧，还有角色曲真就一集换一个OP了
+
+*****
+
+####  Skymoon  
+##### 138#       发表于 2024-5-2 17:27
+
+yoasobi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 139#       发表于 2024-5-2 17:28
+
+另外还是角色曲的话结物语不就得神谷来唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lollipopstar  
+##### 140#       发表于 2024-5-2 17:36
+
+角色曲也算是物语动画的卖点之一吧，应该还会有，和主题曲倒也不冲突，就是这YOASOBI是真腻了，只能安慰自己至少说明物语这企划还是相当重视的… 
+
+
+*****
+
+####  米拉苏尔  
+##### 141#       发表于 2024-5-2 17:45
+
+ryo江郎才尽也还有神前晓呢，你索是不是没有别人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三尖酸努努  
+##### 142#       发表于 2024-5-2 17:50
+
+居然是yoasobi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下强强联手了
+
+
+*****
+
+####  芜湖挨宰  
+##### 143#       发表于 2024-5-2 18:19
+
+我一直好奇一件事，就是伤物语新剧场版的宣传图为啥换掉了。去年刚宣布的时候用的是下面这张，后来这个绘柄惨遭神隐，不再出现在任何宣传材料和谷子中。
+
+难道不只是中国人反感旭日旗，国际上其他国家也有碍观瞻嘛？
+
+<img src="https://img.saraba1st.com/forum/202405/02/181100rnfazak9aksdt4dp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (322.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:11 上传
+
+web archive也能看到，来源网站最初用的是上面这张图，和之后更换的绘柄甚至链接都一样：
+[https://web.archive.org/web/2023 ... /194775/flyer_1.jpg](https://web.archive.org/web/20231112120958im_/https://ogre.natalie.mu/media/ex/film/194775/flyer_1.jpg)
+[https://ogre.natalie.mu/media/ex/film/194775/flyer_1.jpg](https://ogre.natalie.mu/media/ex/film/194775/flyer_1.jpg)
+
+<img src="https://img.saraba1st.com/forum/202405/02/181141itfggpd7diorng0t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202405/02/181149z9mb1mqq2a4m7bi1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:11 上传
+
+*****
+
+####  集合酱  
+##### 144#       发表于 2024-5-2 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792287&amp;ptid=2168085" target="_blank">芜湖挨宰 发表于 2024-5-2 18:19</a>
+我一直好奇一件事，就是伤物语新剧场版的宣传图为啥换掉了。去年刚宣布的时候用的是下面这张，后来这个绘柄 ...</blockquote>
+这个不是普通国旗吗 动画开头也有很多吧？居然被神隐了
+
+
+*****
+
+####  客服少女小祥  
+##### 145#       发表于 2024-5-2 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 魔圆剧场版+物语新作+改编漫画，shaft的产能真的顶得住吗
+
+
+*****
+
+####  芜湖挨宰  
+##### 146#       发表于 2024-5-2 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792313&amp;ptid=2168085" target="_blank">集合酱 发表于 2024-5-2 18:22</a>
+
+这个不是普通国旗吗 动画开头也有很多吧？居然被神隐了</blockquote>
+我一直在等用这张做的谷子，结果没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+希望有人能告诉我哪些商品用的是旧图。
+
+连官推发推都不用这张，上映时的贴的宣传海报和传单也用的是新图。
+
+<img src="https://img.saraba1st.com/forum/202405/02/182955mczls1csh1bulzc9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/02/182958iifiutotf814hlbe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:29 上传
+
+
+*****
+
+####  downnote  
+##### 147#       发表于 2024-5-2 19:29
+
+yoasobi这海报，算是官方剧透？
+
+<img src="https://img.saraba1st.com/forum/202405/02/192909ak52r99w7khfo9nz.png" referrerpolicy="no-referrer">
+
+<strong>twitter_YOASOBI(@YOASOBI_staff)_20240502-090031_1785957530004594959_photo.png</strong> (131.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 19:29 上传
+
+
+*****
+
+####  a85982313  
+##### 148#       发表于 2024-5-2 19:38
+
+竟然是yoasobi
+
+
+*****
+
+####  oi99o  
+##### 149#       发表于 2024-5-2 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792995&amp;ptid=2168085" target="_blank">downnote 发表于 2024-5-2 19:29</a>
+yoasobi这海报，算是官方剧透？</blockquote>
+3月份就发过了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  木木の林  
+##### 150#       发表于 2024-5-2 19:55
+
+Ayase竟然有时间写新歌<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">双厨狂喜，期待4号<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  集合酱  
+##### 151#       发表于 2024-5-3 00:25
+
+理解大家对yoasobi不满 但是能不能别天天惦记只给一共都写了两首的ryo了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狼王卢比奥  
+##### 152#       发表于 2024-5-3 00:26
+
+其实对企划来说是好事
+
+
+*****
+
+####  oi99o  
+##### 153#       发表于 2024-5-3 19:01
+
+7月起abema独占配信
+
+<img src="https://img.saraba1st.com/forum/202405/03/190137r1tsphsuhzqzuhpp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 19:01 上传
+
+
+*****
+
+####  Tachikoma88  
+##### 154#       发表于 2024-5-3 19:02
+
+7月好啊
+
+*****
+
+####  集合酱  
+##### 155#       发表于 2024-5-3 19:03
+
+感觉挺好听的 赢！
+
+*****
+
+####  集合酱  
+##### 156#       发表于 2024-5-3 19:05
+
+pv完全就是斧乃木主角 undead是指她了？
+
+*****
+
+####  Sliurus  
+##### 157#       发表于 2024-5-3 19:06
+
+愚物语只剩月火了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 158#       发表于 2024-5-3 19:08
+
+老仓育首次出镜居然是抚物语的短发版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 159#       发表于 2024-5-3 19:08
+
+7月
+
+
+*****
+
+####  oi99o  
+##### 160#       发表于 2024-5-3 19:16
+
+夜游确定是ed，可以继续期待op角色歌了
+
+<img src="https://img.saraba1st.com/forum/202405/03/191604ki2z1km552f5f555.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 19:16 上传
+
+<img src="https://img.saraba1st.com/forum/202405/03/191610c6ly65lymlne553l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 19:16 上传
+
+
+*****
+
+####  Sliurus  
+##### 161#       发表于 2024-5-3 19:18
+
+这次新歌还可以，没那么刻板印象
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2024-5-3 19:19
+
+『〈物語〉シリーズ オフ＆モンスターシーズン』
+
+愚物語＆撫物語 PV：[https://youtu.be/LfbSFeWG9NY](https://youtu.be/LfbSFeWG9NY)
+
+7月6日より毎週土曜 ABEMAにて独占見放題配信開始
+
+
+*****
+
+####  一心而用  
+##### 163#       发表于 2024-5-3 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64800927&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-5-3 19:06</a>
+愚物语只剩月火了？</blockquote>
+好像是的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这……
+
+*****
+
+####  歪镜  
+##### 164#       发表于 2024-5-3 19:27
+
+<blockquote>Tachikoma88 发表于 2024-5-3 19:08
+老仓育首次出镜居然是抚物语的短发版</blockquote>
+挺好的，展示老仓温柔的一面
+
+
+*****
+
+####  发财就收  
+##### 165#       发表于 2024-5-3 19:30
+
+<blockquote>oi99o 发表于 2024-5-3 19:01
+愚物语&amp;抚物语7月起abema独占配信，tv特番都不整了吗</blockquote>
+物语系列这种路人入坑难只有核心粉买账的，早应该转变成ova形式，在流媒体上播还不用给电视台付费省下成本
+
+
+*****
+
+####  Tachikoma88  
+##### 166#       发表于 2024-5-3 19:39
+
+希望别删育惨败，我真的好想听老仓的碎碎念
+
+*****
+
+####  meailove  
+##### 167#       发表于 2024-5-3 19:40
+
+直接就做抚物语真好，这本是最喜欢的
+
+
+*****
+
+####  AlfredXC  
+##### 168#       发表于 2024-5-3 19:53
+
+无法想象这首歌要怎么切入ed<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acerola  
+##### 169#       发表于 2024-5-3 19:55
+
+ 本帖最后由 Acerola 于 2024-5-3 19:57 编辑 
+
+老苍好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+育惨败这一节正片砍了，放到BD特典里也不是不行，改编一下塞副音轨也行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 170#       发表于 2024-5-3 20:01
+
+育惨败呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  F1andre  
+##### 171#       发表于 2024-5-3 20:02
+
+没老仓我看你妈啊？
+
+—— 来自 Xiaomi 21091116AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  JackTitor  
+##### 172#       发表于 2024-5-3 20:36
+
+育惨败砍了看毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  广东侠  
+##### 173#       发表于 2024-5-3 21:05
+
+操，正片砍了我理解，要是副音轨不搞育惨败那我就要喷了
+
+*****
+
+####  歪镜  
+##### 174#       发表于 2024-5-3 21:07
+
+咋可能砍，只是不好重启第一篇就整育惨败这种路人完全看不懂的篇章吧，月火篇就轻松愉快的多
+
+
+*****
+
+####  黒蜜ねね  
+##### 175#       发表于 2024-5-3 21:16
+
+推子和芙莉莲都觉得还好吧，一到物语就完全理解了难绷
+
+*****
+
+####  Tachikoma88  
+##### 176#       发表于 2024-5-3 21:16
+
+结物语会不会最后做呢，毕竟直接跳过垃圾君大学挺突然的
+
+
+*****
+
+####  Tachikoma88  
+##### 177#       发表于 2024-5-3 21:39
+
+怎么这么多说物语不适合电子乐的，物语里的电子乐还少吗？另外pv里的两个故事基调都挺闹腾的，配这种ed我倒觉得还好啊
+
+
+*****
+
+####  ASimper  
+##### 178#       发表于 2024-5-4 00:01
+
+没搞懂，这是要改几章放几集啊
+
+
+*****
+
+####  751984871  
+##### 179#       发表于 2024-5-4 00:30
+
+等BD再看。说不定又是在BD里才补上角色OP。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hokagokenjatime  
+##### 180#       发表于 2024-5-4 00:39
+
+不是电子乐不适配，而是yoasobi念经歌的潮流程度和物语动画格格不入了
+
+
+*****
+
+####  Tachikoma88  
+##### 181#       发表于 2024-5-4 00:47
+
+肯定有起码一首角色曲塞bd里的
+
+
+*****
+
+####  martinium  
+##### 182#       发表于 2024-5-4 10:19
+
+好爽，我喜欢余切。
+香菜怎么配四个抚子也有点感兴趣
+夜游这歌真不如claris
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  零壹贰叁  
+##### 183#       发表于 2024-5-5 00:30
+
+四个抚子仔细看发色还有微妙区别，喜欢这个处理
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能不做育惨败，最多乱序，但是宣的是M&amp;Off季，这么多本是要怎么分割，怎么搞乱序啊我挺想知道的
+
+
+*****
+
+####  一只优越Fa♂  
+##### 184#       发表于 2024-5-5 03:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就看过动画和国内出版的几本，后面剧情能配上这么欢快的歌吗？
+
+
+*****
+
+####  一心而用  
+##### 185#       发表于 2024-5-5 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64813721&amp;ptid=2168085" target="_blank">一只优越Fa♂ 发表于 2024-5-5 03:23</a>
+就看过动画和国内出版的几本，后面剧情能配上这么欢快的歌吗？</blockquote>
+没有问题的，应该。
+
