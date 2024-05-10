@@ -5241,3 +5241,43 @@ Atlus 导演桥野桂（下文简称为桥野）
 
 桥野：我的最大感想就是「能做的事都做了」。一直以来我们都是全神贯注地在制作游戏，希望能让更多玩家对本作抱有期待。目前官网上已经公开了比上一则概念宣传片更加细致的实机游玩解说视频，还请各位不要错过，敬请期待我们后续更新和放出的更多情报。
 
+*****
+
+####  Piano-Forest  
+##### 404#         楼主| 发表于 2024-5-7 15:51
+
+[https://weibo.com/7897210512/5031415269556919](https://weibo.com/7897210512/5031415269556919)
+
+ATLUS公开奇幻RPG新作《暗喻幻想：ReFantazio》大量新截图，介绍本作战斗系统「Fast&amp;Squad」等相关情报：
+
+-指令战斗进化形态「Fast&amp;Squad」：即在迷宫移动探索时对敌人直接进行攻击的动作型「Fast」与进行指令战斗的「Squad」
+
+-尽管加入了动作类要素，本作依然是一款以指令回合为核心的游戏
+
+-Fast：对于已战斗过、等级比主角低的敌人很有效的战斗方式，可使迷宫探索更快捷地进行
+
+-Squad：对于强敌“Fast”是无效的，需要进行小队指令战斗
+
+-妖精眼：主角搭档的能力，可以感知周围情况与敌人的危险程度
+
+-迷宫分为主线上需挑战的“主迷宫”，与任务要挑战的“副迷宫”2种，数量丰富
+
+-逗留地有着各种设施：募兵舍、赏金猎人、酒场、情报屋、武器&amp;防具店、宿屋等
+
+-逗留期间做什么全部由玩家自由安排，可以享受富有“真实感”的冒险之旅
+
+
+*****
+
+####  Piano-Forest  
+##### 405#         楼主| 发表于 2024-5-7 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64840352&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-5-7 15:51</a>
+
+https://weibo.com/7897210512/5031415269556919
+
+ATLUS公开奇幻RPG新作《暗喻幻想：ReFantazio》大量新截图 ...</blockquote>
+全文：
+[https://www.famitsu.com/article/202405/4425](https://www.famitsu.com/article/202405/4425)
+[https://game.watch.impress.co.jp/docs/news/1589358.html](https://game.watch.impress.co.jp/docs/news/1589358.html)
+
