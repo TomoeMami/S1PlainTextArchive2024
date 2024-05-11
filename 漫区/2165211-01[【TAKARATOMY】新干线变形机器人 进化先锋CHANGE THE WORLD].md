@@ -855,3 +855,10 @@ Z的话我记得B站好像有正版。字幕组版的话只做到中期就弃坑
 
 所以黑新干线放完怪就跑啊，看定位应该类似四天王那种高端工具人手下
 
+*****
+
+####  创始’’’天翔  
+##### 54#       发表于 2024-5-8 22:46
+
+好惨的茜，散个步就重伤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
