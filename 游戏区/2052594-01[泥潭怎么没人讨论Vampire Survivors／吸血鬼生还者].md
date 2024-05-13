@@ -8,3 +8,26 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  kalavinka  
+##### 711#       发表于 2024-5-9 17:15
+
+魂斗罗dlc发了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  otakun  
+##### 712#       发表于 2024-5-9 21:35
+
+魂斗罗DLC把boss 都进去了不错啊，随便打了几盘，看战绩里找不到怎么开第二个图
+
+
+*****
+
+####  不羁的傻风  
+##### 713#       发表于 2024-5-10 15:25
+
+做角色存活15分钟和升级该角色超武，做到卢西亚，然后进化超武激光枪，就能解锁第二张地图
+
