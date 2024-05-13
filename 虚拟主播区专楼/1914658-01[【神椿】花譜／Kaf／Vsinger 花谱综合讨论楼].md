@@ -1716,3 +1716,36 @@ JOINT LIVE可真好看啊
 
 [https://twitter.com/curling_flower/status/1772912618321105381](https://twitter.com/curling_flower/status/1772912618321105381)
 
+*****
+
+####  الطائر  
+##### 135#       发表于 2024-5-9 10:59
+
+ 本帖最后由 الطائر 于 2024-5-9 11:02 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/09/105824o2l9liqsbcws9h2s.jpg" referrerpolicy="no-referrer">
+
+<strong>24429d8cafb8d97ab44c3b9d515bb83510705924.jpg</strong> (87.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 10:58 上传
+
+[https://twitter.com/thinkr_jp/status/1788131945735754185](https://twitter.com/thinkr_jp/status/1788131945735754185)
+
+
+*****
+
+####  黄泉川此方  
+##### 136#       发表于 2024-5-9 16:52
+
+神椿特有的不明觉厉的工作室又变多了
+
+
+*****
+
+####  边界循环  
+##### 137#       发表于 2024-5-10 21:27
+
+呜呜呜 情绪的live票全落 有这么火吗 我的宝
+
