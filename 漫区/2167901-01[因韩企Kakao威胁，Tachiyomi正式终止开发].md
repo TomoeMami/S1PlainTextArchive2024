@@ -2446,3 +2446,141 @@ tracker 可以用于同步阅读状态，不过只适合用于更新最远进度
 
 现在有啥源可以追那几本热门的吗——拷贝好像要赞助才能看，mihon源直接没有更新了
 
+*****
+
+####  FSS  
+##### 215#       发表于 2024-5-11 02:02
+
+mihon怎么用kavita插件?添加[https://raw.githubusercontent.co ... repo/index.min.json](https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/index.min.json)仓库搜不到,tachiyomi kavita的apk能安装上,添加opds后图源里还是没有kavita;用tachiyomisy就可以,但安全中心提示病毒看着难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pgain2004  
+##### 216#         楼主| 发表于 2024-5-11 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64880248&amp;ptid=2167901" target="_blank">FSS 发表于 2024-5-11 02:02</a>
+
+mihon怎么用kavita插件?添加[https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/inde](https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/inde) ...</blockquote>
+不明白是权限给少了还是没开那什么工具，我添加你这个之后很顺利就找到了啊
+
+<img src="https://img.saraba1st.com/forum/202405/11/092534unud1uuzoitzrjnm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-11-09-23-03-287_app.mihon.debug.jpg</strong> (144.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 09:25 上传
+
+*****
+
+####  ccfcfc  
+##### 217#       发表于 2024-5-11 09:30
+
+mihon能双页显示吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FSS  
+##### 218#       发表于 2024-5-11 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881362&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-5-11 09:26</a>
+
+不明白是权限给少了还是没开那什么工具，我添加你这个之后很顺利就找到了啊
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">估计是我梯子的问题了,换个节点试试
+
+
+*****
+
+####  qbz95  
+##### 219#       发表于 2024-5-11 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881362&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-5-11 09:26</a>
+
+不明白是权限给少了还是没开那什么工具，我添加你这个之后很顺利就找到了啊
+
+ ...</blockquote>
+不知道为啥重启插件会不见
+
+
+*****
+
+####  pgain2004  
+##### 220#         楼主| 发表于 2024-5-11 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881642&amp;ptid=2167901" target="_blank">qbz95 发表于 2024-5-11 09:53</a>
+不知道为啥重启插件会不见</blockquote>
+如果没安装，重启后就需要连上那什么才能正确读取未安装的插件列表？已安装的应该不受影响
+我这边安装后重启测试了一下，没问题
+
+
+*****
+
+####  suika2  
+##### 221#       发表于 2024-5-11 10:22
+
+mihon上有个绅士漫画的源好像完全不压画质，而且没水印，下了一本漫画，每张图能到10M
+
+
+*****
+
+####  azbhg1  
+##### 222#       发表于 2024-5-11 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881936&amp;ptid=2167901" target="_blank">suika2 发表于 2024-5-11 10:22</a>
+
+mihon上有个绅士漫画的源好像完全不压画质，而且没水印，下了一本漫画，每张图能到10M ...</blockquote>
+那加载速度怕不是非常感人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芜湖挨宰  
+##### 223#       发表于 2024-5-11 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881936&amp;ptid=2167901" target="_blank">suika2 发表于 2024-5-11 10:22</a>
+mihon上有个绅士漫画的源好像完全不压画质，而且没水印，下了一本漫画，每张图能到10M ...</blockquote>
+我这里的绅士漫画怎么全是本子？
+
+*****
+
+####  芜湖挨宰  
+##### 224#       发表于 2024-5-11 11:31
+
+kakao这企业这是不是傻逼？折腾了一圈不还是和以前一样。
+这是新ceo上任脑抽了吗？
+
+
+*****
+
+####  suika2  
+##### 225#       发表于 2024-5-11 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64882766&amp;ptid=2167901" target="_blank">芜湖挨宰 发表于 2024-5-11 11:30</a>
+
+我这里的绅士漫画怎么全是本子？</blockquote>
+下的就是本子...
+
+
+*****
+
+####  nocode  
+##### 226#       发表于 2024-5-11 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881642&amp;ptid=2167901" target="_blank">qbz95 发表于 2024-5-11 09:53</a>
+不知道为啥重启插件会不见</blockquote>
+安卓系统的话别忘了打开读取应用列表的权限
+
+
+*****
+
+####  qbz95  
+##### 227#       发表于 2024-5-11 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64882961&amp;ptid=2167901" target="_blank">nocode 发表于 2024-5-11 11:47</a>
+
+安卓系统的话别忘了打开读取应用列表的权限</blockquote>
+噢噢，原来如此，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
