@@ -571,3 +571,103 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 这个活动700w的终结确定记得拿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">new了想要的爽死了，不过这样子搞真的还有人敢氪终决吗
 
+*****
+
+####  kurosophie  
+##### 64#       发表于 2024-5-10 17:27
+
+活动21日结束，每日免费十连30日结束
+
+
+*****
+
+####  法拉  
+##### 65#         楼主| 发表于 2024-5-10 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64874897&amp;ptid=2152360" target="_blank">kurosophie 发表于 2024-5-10 17:27</a>
+
+活动21日结束，每日免费十连30日结束</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">blue earth，全外传co，新池免费十连，你游真的一股子要寿终正寝的味道了
+
+
+*****
+
+####  kurosophie  
+##### 66#       发表于 2024-5-12 23:11
+
+<blockquote>法拉 发表于 2024-5-10 20:50
+blue earth，全外传co，新池免费十连，你游真的一股子要寿终正寝的味道了 ...</blockquote>
+下周应该就知道了，有新活动一般会提前2-3天预热
+
+
+*****
+
+####  酷乐  
+##### 67#       发表于 2024-5-21 13:49
+
+结束了，享年2703日……
+
+*****
+
+####  二阶堂真琉  
+##### 68#       发表于 2024-5-21 14:01
+
+ 本帖最后由 二阶堂真琉 于 2024-5-21 14:02 编辑 
+
+也算是活得挺长的，不过这唯一的crossover都没了、妈妈船复刻也搞不出一个的情况下接下来的路我真不好说了…
+
+*****
+
+####  法拉  
+##### 69#         楼主| 发表于 2024-5-21 14:32
+
+这些年玩下来其实一直没搞懂他们到底想怎么运营，关了也好，给3组腾点人手
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kurosophie  
+##### 70#       发表于 2024-5-21 14:41
+
+不知道6.1、2有没新传说公布，哪怕是妇科也好
+
+*****
+
+####  eilot  
+##### 71#       发表于 2024-5-21 16:59
+
+不少劇情都補回了原作的遺憾，而離線版也只是為有帳號的玩家服務，主線劇情能解鎖回顧，但部份活動主線的回顧模式就說不是全部都開放
+
+真希望出PC離線版
+
+
+*****
+
+####  枫紫  
+##### 72#       发表于 2024-5-21 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">猜到了，这7年有酸甜也有苦乐，辛苦了。是不是还该感谢一下蓝色协议？
+
+
+*****
+
+####  法拉  
+##### 73#         楼主| 发表于 2024-5-21 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955127&amp;ptid=2152360" target="_blank">枫紫 发表于 2024-5-21 18:43</a>
+
+猜到了，这7年有酸甜也有苦乐，辛苦了。是不是还该感谢一下蓝色协议？</blockquote>
+去年就判死刑了，这新模式根本拉不起来
+
+
+*****
+
+####  枫紫  
+##### 74#       发表于 2024-5-21 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955429&amp;ptid=2152360" target="_blank">法拉 发表于 2024-5-21 19:06</a>
+
+去年就判死刑了，这新模式根本拉不起来</blockquote>
+那玩意很明显本来是准备新开一个手游硬装进rays的，也无所谓啦。我是觉得挺好玩的，但是要看脸刷技能就比较智障所以后来没怎么玩
+
