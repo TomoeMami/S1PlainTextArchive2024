@@ -3042,3 +3042,46 @@ Alex Diener发了Leaf's Odyssey的Trailer，DROD和Bean and Nothingness味非常
 
 Z社这么多游戏到现在社群最活跃的也就只有巨著这个炼金游戏一款了，每年国外社群都办锦标赛还有各种切磋邪门优化指标的活动
 
+*****
+
+####  BRAVADO  
+##### 197#       发表于 2024-5-21 01:40
+
+Leaf’s Odyssey打了差不多三分之一，实在是太好玩了，喜欢基于丰富机制交互的解谜游戏的绝对不能错过。
+
+*****
+
+####  otjuly  
+##### 198#       发表于 2024-5-22 11:11
+
+原来海天岛今天就要发售了，刚买了叶德赛，这下没时间玩了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HZY298  
+##### 199#       发表于 2024-5-22 14:07
+
+海天岛咋今天发售还没给售价
+
+
+*****
+
+####  weiyun  
+##### 200#         楼主| 发表于 2024-5-22 16:41
+
+<blockquote>HZY298 发表于 2024-5-22 14:07
+海天岛咋今天发售还没给售价</blockquote>
+美区15刀，国区好像48，机核可以提前买key，据说还便宜点，我是众筹的，昨天发的key。
+
+
+*****
+
+####  HZY298  
+##### 201#       发表于 2024-5-22 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965714&amp;ptid=2017380" target="_blank">weiyun 发表于 2024-5-22 16:41</a>
+
+美区15刀，国区好像48，机核可以提前买key，据说还便宜点，我是众筹的，昨天发的key。 ...</blockquote>
+咦，那还挺便宜，谢谢，我去看看
+
