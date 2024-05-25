@@ -520,3 +520,69 @@ lol账号动了，会播吗<img src="https://static.saraba1st.com/image/smiley/f
 
 梦回三年前<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+*****
+
+####  zpy393  
+##### 9768#       发表于 2024-5-19 21:55
+
+ 本帖最后由 zpy393 于 2024-5-20 19:35 编辑 
+
+&amp;#x3002;
+
+*****
+
+####  星の守  
+##### 9769#       发表于 2024-5-21 23:54
+
+真就天天播<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  karastar  
+##### 9770#       发表于 2024-5-22 00:18
+
+再不播就要发配bilibili了
+
+
+*****
+
+####  Wondering  
+##### 9771#       发表于 2024-5-22 09:14
+
+不仅天天播，还要播够一千小时，大概剩余的200天左右每天至少播3个小时，crew有福气了
+
+
+*****
+
+####  三三两两  
+##### 9772#       发表于 2024-5-22 10:30
+
+<blockquote>Wondering 发表于 2024-5-22 09:14
+不仅天天播，还要播够一千小时，大概剩余的200天左右每天至少播3个小时，crew有福气了 ...</blockquote>
+播一千小时是有什么说法
+
+
+*****
+
+####  holoan  
+##### 9773#       发表于 2024-5-22 11:29
+
+可能是因为20年还是19年播了一千小时以上吧
+
+
+*****
+
+####  lightsuger  
+##### 9774#       发表于 2024-5-22 14:31
+
+怕回B播的时候被本土观众喷罢了，先播勤点给自己加加分<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9775#       发表于 2024-5-22 17:45
+
+久违的去阿b直播间看了下，居然还有5个舰长
+
