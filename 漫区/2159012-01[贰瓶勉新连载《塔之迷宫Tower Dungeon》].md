@@ -1311,3 +1311,109 @@
 
 前列腺哥战力有够低
 
+*****
+
+####  popchong  
+##### 80#         楼主| 发表于 2024-5-24 11:48
+
+ 本帖最后由 popchong 于 2024-5-24 11:50 编辑 
+
+来自东方的神秘力量
+
+<img src="https://img.saraba1st.com/forum/202405/24/114856qlvx4gsvgll5q6ys.jpg" referrerpolicy="no-referrer">
+
+<strong>GORrswubwAA97Nl.jpg</strong> (207.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 11:48 上传
+
+
+*****
+
+####  popchong  
+##### 81#         楼主| 发表于 2024-5-24 11:53
+
+ABARA的6寸可动开始预售
+
+<img src="https://img.saraba1st.com/forum/202405/24/115246ghrur69x4btcbsmh.jpg" referrerpolicy="no-referrer">
+
+<strong>GOT-oSjboAEy1Xm.jpg</strong> (105.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 11:52 上传
+
+
+*****
+
+####  北山玖公  
+##### 82#       发表于 2024-5-24 12:10
+
+帅，但是不是有点太单调的黑了？虽然说是黑奇居子，作为手办目前看这个例图还是有些不得劲。
+要是真能和昆虫外壳一样有鲜明的光泽就好了。现在更感觉像皮革。
+
+
+*****
+
+####  clamp07830  
+##### 83#       发表于 2024-5-24 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64984942&amp;ptid=2159012" target="_blank">北山玖公 发表于 2024-5-24 12:10</a>
+帅，但是不是有点太单调的黑了？虽然说是黑奇居子，作为手办目前看这个例图还是有些不得劲。
+要是真能和昆 ...</blockquote>
+复议
+
+
+*****
+
+####  smdzh2  
+##### 84#       发表于 2024-5-26 02:44
+
+真·力大飞砖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+休刊一个月有效信息就一枚东亚重工纹章，根本不够看啊
+
+
+*****
+
+####  哈扎马  
+##### 85#       发表于 2024-5-26 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65004074&amp;ptid=2159012" target="_blank">smdzh2 发表于 2024-5-26 02:44</a>
+
+真·力大飞砖
+
+休刊一个月有效信息就一枚东亚重工纹章，根本不够看啊</blockquote>
+稍微有点不连贯<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">如果在无辅助攀爬中腾出一只手垂直向上投掷重物就能平整的剐掉人脸，那接下来全身发力的蛮王冲刺应该在接触之始就让对方断成两截，而不是被扔进砖墙中砸死（只能解释为第一个弓手level2，被冲的敌兵level40，怎么组队的）
+
+
+*****
+
+####  jy000129  
+##### 86#       发表于 2024-5-26 11:39
+
+兄弟们，全加力量真有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ww-tsl  
+##### 87#       发表于 2024-5-26 16:46
+
+说到Abara，明明大小怪物都能超音速动作，打起来应该是冲击波四处乱飙打得周围尸横遍野瓦砾乱飞建筑像饼干一样支离破碎才对，结果表现出来好像是时停一样。一直很想吐糟这个。
+
+
+*****
+
+####  Archlich³  
+##### 88#       发表于 2024-5-26 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64984942&amp;ptid=2159012" target="_blank">北山玖公 发表于 2024-5-24 12:10</a>
+
+帅，但是不是有点太单调的黑了？虽然说是黑奇居子，作为手办目前看这个例图还是有些不得劲。
+
+要是真能和昆 ...</blockquote>
+得靠白色背景衬托才行咧。
+
