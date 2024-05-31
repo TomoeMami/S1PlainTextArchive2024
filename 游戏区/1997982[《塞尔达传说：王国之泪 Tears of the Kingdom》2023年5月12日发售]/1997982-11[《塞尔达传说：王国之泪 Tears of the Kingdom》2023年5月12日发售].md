@@ -2871,3 +2871,149 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 模玩熊前两天上架就拍了，980的价格也还不错了比好几个任系代购的鬼畜价格强多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  冷泉夜月  
+##### 15787#       发表于 2024-5-19 21:06
+
+看到有新的传言：
+
+6月直面会可能有塞尔达为主角的游戏公布。
+
+这是一个专门的游戏，和旷野王泪的新机移植之类的传闻没关系，也和王国之泪设定集的塞尔达发型没关系。 ​​​
+
+这跟之前的某个暗示有点呼应啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  佛罗伦萨  
+##### 15788#       发表于 2024-5-19 22:16
+
+竞猜一下几种可能
+
+1、就是王泪塞尔达的前传，老任把大家心心念念的dlc做成外传拿出来卖。
+
+2、2D塞新作，巧妙的将复活传统与迎合新思潮结合，一举两得
+
+2.5 、类似贝姐起源，把王泪塞尔达卡通化，讲诉童年或穿越间的故事，解谜收集玩法。
+
+3、原定的王泪无双，变成了以塞尔达为主，其他角色为辅的动作冒险类
+
+4、第三方合作开发的jrpg、战棋策略、种田、文字冒险
+
+5  本社其他组或二厂开发的派对、换装，子供向
+
+*****
+
+####  yahanintnedo  
+##### 15789#       发表于 2024-5-21 10:38
+
+塞尔达主要是看谁做，荸荠公主真是没想到good feel能这么拉，明明两作耀西还都不错的，如果是grezzo做的话基本素质应该还是有保证的吧？
+
+*****
+
+####  Slyvan  
+##### 15790#       发表于 2024-5-21 11:13
+
+要是和林克一起的, 也可以做成双人成行类的双人解密
+
+只有塞尔达一人 , 做成老塞尔达那种大迷宫解密
+
+当然也有可能是正统续作的某些系统试验性产品
+
+*****
+
+####  nma  
+##### 15791#       发表于 2024-5-24 22:59
+
+回去逛了一圈发现沛恩的故事就这么到头了？还有无比需要组合键呼叫单个贤者。也不知道次世代升级版会不会有新剧情任务和改变操作
+
+
+*****
+
+####  liekong  
+##### 15792#       发表于 2024-5-26 02:45
+
+王国之泪第二次通关了，换游戏玩等新作了，老任快把新作跟NS2一起端出来吧！
+
+
+*****
+
+####  kuarwbwe  
+##### 15793#       发表于 2024-5-26 19:13
+
+天剑到收集完三段勇者之诗全收集正常来说应该多少血量？我现在18颗心，想确定一下差多少没收集全。<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 15794#       发表于 2024-5-27 19:42
+
+通了。本来没觉得自己会有啥感触，但是到后面法伊和英帕道别的时候感觉眼泪刷的一下就下来了。天剑真不错啊。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 15795#       发表于 2024-5-27 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65022921&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2024-5-27 19:42</a>
+
+通了。本来没觉得自己会有啥感触，但是到后面法伊和英帕道别的时候感觉眼泪刷的一下就下来了。天剑真不错啊 ...</blockquote>
+虽然说塞尔达一直是轻剧情重玩法的游戏，但可以看得出塞尔达从时之笛之后，正作其实一直有在逐步加强剧情环节
+
+
+*****
+
+####  liekong  
+##### 15796#       发表于 2024-5-28 22:14
+
+<img src="https://img.saraba1st.com/forum/202405/28/221347bc42czcqh954hoqh.jpg" referrerpolicy="no-referrer">
+
+<strong>9d6f91c1a9fa2d5a6d61f23b3f2f45b.jpg</strong> (144.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/28/221356v548ozd5jq28dozj.jpg" referrerpolicy="no-referrer">
+
+<strong>db8a5abd849edf6d718aadb51822d31.jpg</strong> (104.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/28/221405axc13p1e136cocnn.jpg" referrerpolicy="no-referrer">
+
+<strong>c059dacd9bc52cf6bb8132542fa8acb.jpg</strong> (59.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 22:14 上传
+
+乐高X塞尔达联动 德库树
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15797#       发表于 2024-5-28 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65037440&amp;ptid=1997982" target="_blank">liekong 发表于 2024-5-28 22:14</a>
+乐高X塞尔达联动 德库树</blockquote>
+299刀/299欧，真不愧是乐高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  牛奶笛  
+##### 15798#       发表于 2024-5-28 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大师剑、大师之书、乐高都集中在九月初，难道....
+
