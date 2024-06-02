@@ -847,3 +847,129 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 我说这段怎么突然流畅了，经费用在了奇怪的地方
 后面宇津帆连接小雏时不会也用转描吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  arcard  
+##### 100#       发表于 2024-5-29 20:22
+
+看到第八话感觉挺满意了，虽然肉眼可见的贫穷但对于原作精髓的黑色幽默还原的还是挺到位的
+
+
+*****
+
+####  SlashShou4  
+##### 101#       发表于 2024-5-29 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。
+
+
+*****
+
+####  arcard  
+##### 102#       发表于 2024-5-29 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65049638&amp;ptid=2143170" target="_blank">SlashShou4 发表于 2024-5-29 22:12</a>
+
+第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。</blockquote>
+从接受难易度上来说漫画好点
+
+并且笑点方面还是漫画表现的更逗
+
+动画的优势主要还是cv，尤其是美雪太太那种贱兮兮的声线<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 103#       发表于 2024-5-30 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65049638&amp;ptid=2143170" target="_blank">SlashShou4 发表于 2024-5-29 23:12</a>
+第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。</blockquote>
+强烈建议直接看漫画第一部，镜头语言和笑点值得一看
+
+*****
+
+####  火红之眼  
+##### 91#       发表于 2024-5-26 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  abcxiawei  
+##### 92#       发表于 2024-5-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65007494&amp;ptid=2143170" target="_blank">火红之眼 发表于 2024-5-26 14:38</a>
+
+动画化就为了看妹妹狩猎种马，居然找了kaji，美雪太太这段玩得太开心了吧</blockquote>
+这个妹妹平时到底是干嘛的？第7集看的寒毛直竖，感觉是顶级绿茶
+
+
+*****
+
+####  smdzh2  
+##### 93#       发表于 2024-5-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024640&amp;ptid=2143170" target="_blank">abcxiawei 发表于 2024-5-27 23:42</a>
+这个妹妹平时到底是干嘛的？第7集看的寒毛直竖，感觉是顶级绿茶</blockquote>
+特别喜欢整蛊男人来下酒，漫画后面把比自己厉害的同门杀手也整了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悲剧啊啊  
+##### 94#       发表于 2024-5-27 22:55
+
+妹妹专职情报收集，pua技能点满。后面有个中层干部暗示她的房事技能也是点满的
+
+
+*****
+
+####  山代风我  
+##### 95#       发表于 2024-5-28 00:33
+
+妹妹好屑但我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 就是这挑人的喜好有点恶趣味，不过看起来也不像会去整蛊真老实人的
+
+
+*****
+
+####  千叶铁矢  
+##### 96#       发表于 2024-5-28 06:44
+
+但妹妹没杀过人有点不可思议，明明钦定水平差不多的另一组的司机脏辫就是正常杀手。
+
+
+*****
+
+####  查克海耶斯  
+##### 97#       发表于 2024-5-28 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65026157&amp;ptid=2143170" target="_blank">千叶铁矢 发表于 2024-5-28 06:44</a>
+
+但妹妹没杀过人有点不可思议，明明钦定水平差不多的另一组的司机脏辫就是正常杀手。 ...</blockquote>
+只能说哥哥水平太高了
+
+
+*****
+
+####  kwin_  
+##### 98#       发表于 2024-5-28 12:15
+
+不愧是美雪太太<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  arcard  
+##### 99#       发表于 2024-5-29 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024640&amp;ptid=2143170" target="_blank">abcxiawei 发表于 2024-5-27 22:42</a>
+
+这个妹妹平时到底是干嘛的？第7集看的寒毛直竖，感觉是顶级绿茶</blockquote>
+绿茶只是妹妹的技能，本质是个乐子人
+
+组织内部属于哥哥的辅助专员，虽然与佐藤相比有着绝对的实力差距，经验和心态是短板。但在作品里也属于高手那一列的。
+
+美雪太太发挥的还是很到位了
+
+
