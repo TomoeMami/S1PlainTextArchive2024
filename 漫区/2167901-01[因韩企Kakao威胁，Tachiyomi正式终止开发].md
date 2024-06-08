@@ -2712,3 +2712,10 @@ cdisplayex没有自动切分单页显示
 cdisplayex我提了啊，作者说没计划。
 然而我还是不知道作者怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  smiths146  
+##### 240#       发表于 2024-6-5 14:38
+
+发现一个问题 [https://raw.githubusercontent.co ... xtensions/repo/inde](https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/inde) 这个 库老是刷不出来，有其他库选择吗
+
