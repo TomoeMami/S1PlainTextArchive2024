@@ -1315,3 +1315,11 @@ PS：
 
 光 (Re-Recording)
 
+*****
+
+####  Piano-Forest  
+##### 120#         楼主| 发表于 2024-6-8 23:51
+
+2026年
+<img src="https://p.sda1.dev/18/5611bfc5b06f1cba9a2e335829af2eb4/IMG_20240608_235037.jpg" referrerpolicy="no-referrer">
+
