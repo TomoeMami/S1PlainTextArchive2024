@@ -4180,3 +4180,29 @@ FES卡池角色及礼装（礼装也是LIVE2D！）
 
 有人吗？有人能帮我解决一下问题吗？为什么更衣室换了服装后没有反映到战斗中啊
 
+*****
+
+####  winda  
+##### 409#       发表于 2024-6-7 13:35
+
+繁中服有消息了，但是还是之前代理闪乱凉掉的大宇，目前持观望态度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 410#         楼主| 发表于 2024-6-8 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142287&amp;ptid=2101146" target="_blank">winda 发表于 2024-6-7 13:35</a>
+
+繁中服有消息了，但是还是之前代理闪乱凉掉的大宇，目前持观望态度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">繁中服大多数代理游戏都是凉凉吧
+
+
+*****
+
+####  warerest1  
+##### 411#       发表于 2024-6-8 14:57
+
+繁中服还喜欢屏蔽大陆，真是喜欢自己玩死自己
+
