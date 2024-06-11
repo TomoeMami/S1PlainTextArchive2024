@@ -3085,3 +3085,13 @@ Leaf’s Odyssey打了差不多三分之一，实在是太好玩了，喜欢基�
 美区15刀，国区好像48，机核可以提前买key，据说还便宜点，我是众筹的，昨天发的key。 ...</blockquote>
 咦，那还挺便宜，谢谢，我去看看
 
+*****
+
+####  Wiksy  
+##### 202#       发表于 2024-6-8 18:13
+
+塔洛斯2的三部曲DLC，14号出
+
+希望这次又会有些够难度的谜题了
+[https://www.youtube.com/watch?v=S_yL_I8BEgk](https://www.youtube.com/watch?v=S_yL_I8BEgk)
+
