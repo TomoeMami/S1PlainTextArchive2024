@@ -1551,3 +1551,331 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+*****
+
+####  8HIT  
+##### 150#       发表于 2024-6-5 15:40
+
+最终话出汉化了，真的是少有的佳作 
+
+
+*****
+
+####  某某某人  
+##### 151#       发表于 2024-6-5 22:30
+
+看完了+1
+
+少有的男主結局死了還能令人覺得是HE的漫畫www
+
+
+*****
+
+####  TiiTiiLL  
+##### 152#       发表于 2024-6-5 22:48
+
+算是完满完结了吧，挺适合动画化的
+
+*****
+
+####  没取名啊  
+##### 153#       发表于 2024-6-5 22:52
+
+本来还有点遗憾晚来了一步德鲁哈没活下来跟着一起拯救世界，但是回头一想确实还是死了更好
+
+
+*****
+
+####  godvim  
+##### 154#       发表于 2024-6-5 23:39
+
+汉化终于出完，这套书太赞了，台版有计划要出么，想收
+
+
+*****
+
+####  某某某人  
+##### 155#       发表于 2024-6-6 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125681&amp;ptid=2144105" target="_blank">TiiTiiLL 发表于 2024-6-5 22:48</a>
+
+算是完满完结了吧，挺适合动画化的</blockquote>
+適合動畫化? 以男主的所作所為, 恐怕連里番都容納不了這部作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒蝉  
+##### 156#       发表于 2024-6-6 08:27
+
+中后期其实叙事和分镜上其实有点混乱，但最后一刻都在“沟通”上紧紧扣题，让人有点哭笑不得又看得很舒服，我个人是很喜欢作者这种幽默感。
+
+
+*****
+
+####  Mr1z  
+##### 157#       发表于 2024-6-6 09:41
+
+倒不如说德鲁哈死了才是最好的结局
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  周愚  
+##### 158#       发表于 2024-6-6 12:31
+
+中后期有些分镜和剧情串联实在是有点跳跃 不过最后这两话收得很不错 回头重新看起更爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  tansapple  
+##### 159#       发表于 2024-6-6 15:28
+
+这算不算是第一个在结局死掉之后让所有人包括读者都觉得安心的男主<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓝雉  
+##### 160#       发表于 2024-6-6 17:06
+
+这要是最后主角手从雪里伸出来拿走了面包这就是标准恐怖片结尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狂马王  
+##### 161#       发表于 2024-6-6 18:03
+
+最终话汉化更新了吗？是一共48话吗？
+
+
+*****
+
+####  KDConan  
+##### 162#       发表于 2024-6-6 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65134298&amp;ptid=2144105" target="_blank">狂马王 发表于 2024-6-6 18:03</a>
+最终话汉化更新了吗？是一共48话吗？</blockquote>
+49话有了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  jolly  
+##### 163#       发表于 2024-6-6 23:53
+
+没想到看到正篇这个结局观感还行，之前看到简单概括的剧透说什么女猎人穿越，只感觉“这是在画什么了？！”
+虽然看到正片也还是有种“这是在画什么了？！”但体验好了一些，蛮意外啊，竟然真的拯救了世界
+
+
+*****
+
+####  狂马王  
+##### 164#       发表于 2024-6-7 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137476&amp;ptid=2144105" target="_blank">KDConan 发表于 2024-6-6 23:48</a>
+
+49话有了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+好，今晚一口气补完，双子篇开始就没看了，还是等完结一口气看舒服
+
+
+*****
+
+####  没取名啊  
+##### 165#       发表于 2024-6-7 11:04
+
+能不能出个德鲁哈没死成，被女猎人们抓走监禁起来的if<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KDConan  
+##### 166#       发表于 2024-6-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140440&amp;ptid=2144105" target="_blank">没取名啊 发表于 2024-6-7 11:04</a>
+能不能出个德鲁哈没死成，被女猎人们抓走监禁起来的if</blockquote>
+那就有点跟前面失忆重复了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  从来不吃青菜  
+##### 167#       发表于 2024-6-7 13:43
+
+挺好的完结，德鲁哈这种杀了太多人的不可能在和平来临还活着吧…感觉作者想的也挺清楚的，德鲁哈这种事情做绝的合理性魔人本身就不适合和平的世界
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  theory0  
+##### 168#       发表于 2024-6-7 14:59
+
+特别浪漫的作品，结局狂野而合理。上次看完后感到浪漫的作品还是《炎拳》。不知道作者后面的规划，如果有个好编辑也许能出个不输电锯人的作品。
+
+
+*****
+
+####  redsouris  
+##### 169#       发表于 2024-6-7 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142379&amp;ptid=2144105" target="_blank">从来不吃青菜 发表于 2024-6-7 13:43</a>
+挺好的完结，德鲁哈这种杀了太多人的不可能在和平来临还活着吧…感觉作者想的也挺清楚的，德鲁哈这种事情做 ...</blockquote>
+如果真是和平年代他也不用发疯了，毕竟他的愿望只有三餐吃饱到死而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  空月の梦  
+##### 170#       发表于 2024-6-7 15:42
+
+有没有下载版？
+
+
+*****
+
+####  kyonkoism  
+##### 171#       发表于 2024-6-7 18:39
+
+看完了，连最后结局握手都那么生草，完美的结局，真是好作品啊<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  luoy  
+##### 172#       发表于 2024-6-8 03:50
+
+我操 终于又等到一部不烂尾不烂续的高水平剧情漫了
+
+
+*****
+
+####  第贰个十年  
+##### 173#         楼主| 发表于 2024-6-8 17:58
+
+比起看三话就知道后面一百话展开的作品，还是这种邪道主角邪道作品更合我胃口，我想看到的就是这种无法预测的命运之舞台呀。再加上作者还算不错的基本功，这真是我很久没遇到的佳作了。
+
+而这个结局，让德鲁哈贯彻合理性的怪物的人设的同时，又靠“误会”传递了爱这种正向情绪，也是我很喜欢的设计，虽然我私心可能更想看到更俗套一点的“感化德鲁哈”的展开，但那样确实跟作品基调不太相切，怪怪的。
+
+说起来对于这种亦正亦邪的主角，我虽然一直以来都比较感兴趣，但年少时读阿里布达年代记的时候，还抱怨为何让约翰最后做那个打元气弹的角色搞得很正派的样子变味了，现在却巴不得能让德鲁哈打元气弹，也是心态的小变化吧。
+
+（想起来那时候还为这事儿去贴吧发帖抱怨被喷了，甚至作者罗森也现身说我只是对作品理解不同没必要喷，结果现在罗森已经铁窗泪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  theory0  
+##### 174#       发表于 2024-6-9 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157234&amp;ptid=2144105" target="_blank">第贰个十年 发表于 2024-6-8 17:58</a>
+比起看三话就知道后面一百话展开的作品，还是这种邪道主角邪道作品更合我胃口，我想看到的就是这种无法预测 ...</blockquote>
+没有亦正亦邪，德鲁哈是守序邪恶吧，与正毫无关系
+
+
+*****
+
+####  ストック  
+##### 175#       发表于 2024-6-9 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161598&amp;ptid=2144105" target="_blank">theory0 发表于 2024-6-9 00:33</a>
+没有亦正亦邪，德鲁哈是守序邪恶吧，与正毫无关系</blockquote>
+感觉如果定义德鲁哈的行为是“守序”，那他的行为就不能算“恶”，因为以他的秩序为基准只有利益关系，“善恶”这概念近似于不存在，不能定义不存在的指标
+德鲁哈虽然有很强的支配欲，但他的底线过于灵活、利益指标过于自身最大化，他不是任何组织结构、团体利益与其对应秩序的维护者，所以不太应该算是守序
+
+—— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  巨火红莲  
+##### 176#       发表于 2024-6-9 10:18
+
+看了这贴的推荐之后去看了，真棒，并且在看完之前一直忍着没再进楼
+刚把漫画彻底看完了，真浪漫啊。我个人而言是总归希望在一个作品里大家都活下来、或者的无原则无逻辑大团圆派，但这部的结局确实算得上无可指摘的浪漫，带着一点圆满和酸涩，精彩！过程的精彩就更不提了这种神经病的感觉太好看了，德鲁哈prpr<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+真希望能引进台版我也想买实体书+1
+
+
+*****
+
+####  Ogus  
+##### 177#       发表于 2024-6-9 11:04
+
+完美的展开，完美的故事性，完美的句号
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  第贰个十年  
+##### 178#         楼主| 发表于 2024-6-9 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161598&amp;ptid=2144105" target="_blank">theory0 发表于 2024-6-9 00:33</a>
+没有亦正亦邪，德鲁哈是守序邪恶吧，与正毫无关系</blockquote>
+嘛，主要是说的约翰嘛。毕竟这种主角不到盖棺定论的时候都不好说会往哪个方面塑造，就像我说的那种俗套一点的感化德鲁哈的展开，真这样搞了不就正了。
+当然现在这种贯彻出生人设到底的展开也很有趣。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  钱如命  
+##### 179#       发表于 2024-6-9 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65163836&amp;ptid=2144105" target="_blank">ストック 发表于 2024-6-9 08:59</a>
+感觉如果定义德鲁哈的行为是“守序”，那他的行为就不能算“恶”，因为以他的秩序为基准只有利益关系，“ ...</blockquote>
+守序邪恶的人物在理论上会依循自己的标准，尽其可能地取得自己想要的东西，而不管是否伤害到他人；同时，他们认为规则与法律以及传统都是为了维护统治者及制定者的利益。
+
+在dnd的体系里，守序意味着有自己一套行事准则——德鲁哈相对来说是比较守约的，最后翻脸也是因为他判断所长“没有能力继续按照约定提供稳定三餐”；
+
+而邪恶意味着为了自身利益伤害他人的意愿——德鲁哈在这方面来说可以说是极强，在有更稳定且不伤害别人的方法时依然会选择最快捷的杀人来解决。
+
+所以，按照守序邪恶这个词的出处dnd来分类，德鲁哈是非常标准的守序邪恶<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  鬼谷ask  
+##### 180#       发表于 2024-6-9 14:57
+
+结局还挺有味道的，蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  footmanpon  
+##### 181#       发表于 2024-6-9 16:25
+
+ 本帖最后由 footmanpon 于 2024-6-9 16:28 编辑 
+
+还想着所长死前为什么没有用之前某个类似“当下这一瞬真是太好了”这样的场景作为临终回忆，来更加强烈的回应由德鲁哈说出的对浮士德经典的引用
+
+翻了翻发现之前的分镜和台词都有点模棱两可，没法很好的用上真是太可惜了
+
+<img src="https://img.saraba1st.com/forum/202406/09/162423bojodn8py6t2tuon.png" referrerpolicy="no-referrer">
+
+<strong>0bc514b955b3c3970722a247349ab0ac.png</strong> (325.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 16:24 上传
+
