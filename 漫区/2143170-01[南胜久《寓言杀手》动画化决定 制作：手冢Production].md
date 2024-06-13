@@ -1031,3 +1031,35 @@ pv就觉得男主配音最不专家<img src="https://static.saraba1st.com/image/
 
 24集能做完宇津帆篇那还好，但是漫画剧情太连贯了，山冈篇不做又有点可惜
 
+*****
+
+####  fhdelibird  
+##### 111#       发表于 2024-6-9 11:59
+
+官網寫的25話 (一挙配信那節)
+[https://www.vap.co.jp/the-fable-anime/onair/](https://www.vap.co.jp/the-fable-anime/onair/)
+
+看了第10集,味道開始來了
+
+最後專業專業的連續說著,開始有滑稽的感覺了
+
+D+在這片上的翻譯還可以
+
+找原作看看好了
+
+
+*****
+
+####  琴音  
+##### 112#       发表于 2024-6-10 23:02
+
+制作中稍微再有钱就好了，穷是真穷啊。。
+
+
+*****
+
+####  smdzh2  
+##### 113#       发表于 2024-6-10 23:16
+
+手冢p就这个水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
