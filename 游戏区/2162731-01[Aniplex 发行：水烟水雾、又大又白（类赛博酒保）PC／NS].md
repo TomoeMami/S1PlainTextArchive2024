@@ -623,3 +623,49 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 
 在赛博酒保制作组还在整 project D 的当下，任何仿品抄得像就算成功（虽然感觉有点悬）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  佛罗伦萨  
+##### 59#       发表于 2024-6-11 09:31
+
+体验版已上线，大概半小时内容。
+
+核心玩法和界面完全模仿va11，但感觉内容还更简陋些，va11还有新闻频道完善世界观，装饰房间等。烟的配方看起来也比鸡尾酒少很多。
+
+
+*****
+
+####  直钩  
+##### 60#       发表于 2024-6-11 10:00
+
+男主第一眼看不出来是个男人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sgssk  
+##### 61#       发表于 2024-6-11 17:20
+
+主题曲出了，很意外地看到了藍月なくる的名字。但看到deco27又觉得心里没底了
+
+
+*****
+
+####  M乔梦  
+##### 62#       发表于 2024-6-12 09:57
+
+这男主居然是男的？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  游蜓  
+##### 63#       发表于 2024-6-14 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65197202&amp;ptid=2162731" target="_blank">sgssk 发表于 2024-6-11 17:20</a>
+
+主题曲出了，很意外地看到了藍月なくる的名字。但看到deco27又觉得心里没底了 ...</blockquote>
+还行吧这个，但是官方放的视频很糊，不会是录屏上来的吧
+
