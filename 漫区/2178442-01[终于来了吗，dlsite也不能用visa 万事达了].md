@@ -1423,3 +1423,29 @@ http://market.cmbchina.com/ccard/jcbpc/</blockquote>
 他们没有自己的在线交易金融渠道吗？</blockquote>
 有啊，paypay，linepay之类的，对日本人没啥影响，现在问题是外国人用不了只能用信用卡
 
+*****
+
+####  moeful  
+##### 137#       发表于 2024-6-14 12:42
+
+DMM也不行喽
+
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  screeper  
+##### 138#       发表于 2024-6-14 13:28
+
+fanza同人暂时停止visa付款
+<img src="https://p.sda1.dev/18/73bef8ded4fd016ce26a31512d519359/PixPin_2024-06-14_13-28-02.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zerona  
+##### 139#       发表于 2024-6-14 13:39
+
+jcb 测试的2日元没事, 买点的时候就不成了. 有意思.
+
