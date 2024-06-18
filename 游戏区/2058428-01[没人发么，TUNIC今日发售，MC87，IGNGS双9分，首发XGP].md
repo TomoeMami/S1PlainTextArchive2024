@@ -909,3 +909,12 @@ xgp上真结局通关了，前中期什么介绍和攻略都没看，没怎么�
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  敏感词好多  
+##### 98#       发表于 2024-6-16 00:30
+
+妈的被骗了，谁说这游戏是狐尔达的？战斗比2d塞吃屎太多，部分解密又完全让人摸不着头脑，没锁血和攻略这游戏真玩不下去<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
