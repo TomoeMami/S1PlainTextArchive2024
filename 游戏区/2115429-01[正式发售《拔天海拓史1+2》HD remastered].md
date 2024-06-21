@@ -1364,3 +1364,48 @@ https://al-gest.com/batenkaitos/baten-change/
 
 1代有个桃子，时间长了不会烂掉反而会变桃太郎，有攻击力的
 
+*****
+
+####  qiyu1234  
+##### 149#       发表于 2024-6-18 08:55
+
+按原作算是
+
+按移植开发的话，是logicalbeat(NS版及PC版）
+
+販売
+
+株式会社バンダイナムコエンターテインメント様
+
+開発
+
+株式会社ロジカルビート
+
+担当
+
+リマスター対応全般
+
+
+*****
+
+####  卡普空  
+##### 150#       发表于 2024-6-18 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65278585&amp;ptid=2115429" target="_blank">qiyu1234 发表于 2024-6-18 08:55</a>
+
+按原作算是
+
+按移植开发的话，是logicalbeat(NS版及PC版）</blockquote>
+我还以为这游戏版权在任天堂呢
+
+
+*****
+
+####  lang5201000  
+##### 151#       发表于 2024-6-18 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65278938&amp;ptid=2115429" target="_blank">卡普空 发表于 2024-6-18 09:19</a>
+
+我还以为这游戏版权在任天堂呢</blockquote>
+版权肯定是万南啊...
+
