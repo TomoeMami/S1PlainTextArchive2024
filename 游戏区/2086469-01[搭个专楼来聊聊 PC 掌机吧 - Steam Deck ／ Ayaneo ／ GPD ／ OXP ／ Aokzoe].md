@@ -2489,3 +2489,18 @@ rog ally X相对于rog ally的提升主要就在电池吗
 手上的win掌机全出了，等一个重量和手感都不错的机子吧，续航只要不是太拉胯感觉都能接受了 ...</blockquote>
 要不加入我们串流神教吧 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 1246#         楼主| 发表于 2024-6-18 08:37
+
+新的 Legion Go 控制中心。
+
+<img src="https://img.saraba1st.com/forum/202406/18/083729xosc7ll2o7coezob.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 08:37 上传
+
