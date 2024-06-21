@@ -6154,3 +6154,12 @@ https://b23.tv/4ReZHLX ...</blockquote>
 
 看完感觉浇了一盆冷水，感觉在各方面都是p5的同分异构体的基础上人设差了好多、各种动画喧宾夺主、战斗结算冗长，玩起来肯定很难受
 
+*****
+
+####  Piano-Forest  
+##### 478#         楼主| 发表于 2024-6-18 14:09
+
+Atlus Fes Vlog：
+[https://b23.tv/X311HWW](https://b23.tv/X311HWW)
+[https://b23.tv/8eeIZxw](https://b23.tv/8eeIZxw)
+
