@@ -2020,3 +2020,10 @@ U武3技能是无脑天司吗？还是有些要整上限？奥义获取跟治疗
 
 戒指都能拿来卖了，哎，看好夏天整大活
 
+*****
+
+####  nagamasa  
+##### 17950#       发表于 2024-6-22 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">入坑没多久问一下，这邮件的强化素材批量也只能20个一批20个一批地回收吗
+
