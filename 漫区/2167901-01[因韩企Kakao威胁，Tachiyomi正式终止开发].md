@@ -2719,3 +2719,30 @@ cdisplayex我提了啊，作者说没计划。
 
 发现一个问题 [https://raw.githubusercontent.co ... xtensions/repo/inde](https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/inde) 这个 库老是刷不出来，有其他库选择吗
 
+*****
+
+####  热风疾风  
+##### 241#       发表于 2024-6-20 22:14
+
+问一下，现在那些源比较好用？
+
+
+*****
+
+####  [皆神孝介]  
+##### 242#       发表于 2024-6-22 20:14
+
+keiyoushi的仓库好像有些站点刷不出来吧？是不是要换代理？
+
+
+*****
+
+####  伊迪潘宫森  
+##### 243#       发表于 2024-6-22 21:12
+
+个人感觉最好用的还是第三方拷贝
+
+然后是偷拷贝的vomic
+
+生肉就看kisslove
+
