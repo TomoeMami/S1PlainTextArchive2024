@@ -442,3 +442,60 @@ krrr的人设我觉得还行，风 ...</blockquote>
 <img src="https://p.sda1.dev/18/2886d219742d8ca004a835ee92be9076/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/e81105fb9b4cd75749c849f95a8c1c7c/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 7511#       发表于 2024-6-21 21:21
+
+【特報】
+
+「叛逆のニジガサキ」
+
+ニジガク新展開……!?
+
+詳細は6/27(木)21:00～の虹ヶ咲学園生放送
+
+「二ュースいっぱい！ときめかNIGHT☆ みんなで映画もりあげNIGHT☆☆」にて発表します！
+
+お楽しみに…。
+<img src="https://p.sda1.dev/18/f21bac9dfb9a7a87e2aa54f349cdce0d/20240621_212018.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7512#       发表于 2024-6-21 21:34
+
+ミヤコヒト老师的『にじよんあにめーしょん2』第12话漫画版（前半）附步梦
+
+<img src="https://p.sda1.dev/18/679ab70050d480fa5434a935b19518dc/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/6752d132d525502c35cdb66021297041/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7513#       发表于 2024-6-21 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328206&amp;ptid=1959558" target="_blank">Piano-Forest 发表于 2024-6-21 21:21</a>
+【特報】
+
+「叛逆のニジガサキ」</blockquote>
+这玩意太整蛊了。
+
+记得之前是哪个偶像团体和鲁路修手游联动来着
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  仟音一心  
+##### 7514#       发表于 2024-6-22 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328510&amp;ptid=1959558" target="_blank">ads147147 发表于 2024-6-21 21:51</a>
+这玩意太整蛊了。
+
+记得之前是哪个偶像团体和鲁路修手游联动来着</blockquote>
+这个标题其实更像EVA而非鲁路修。
+
