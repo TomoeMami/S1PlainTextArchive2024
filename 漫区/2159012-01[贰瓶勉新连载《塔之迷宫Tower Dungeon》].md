@@ -1417,3 +1417,11 @@ ABARA的6寸可动开始预售
 要是真能和昆 ...</blockquote>
 得靠白色背景衬托才行咧。
 
+*****
+
+####  smdzh2  
+##### 89#       发表于 2024-6-22 11:56
+
+<img src="https://p.sda1.dev/18/963d31134db81daabc04e1030c016add/image.jpg" referrerpolicy="no-referrer">
+次にくるマンガ大賞投票，截止7/8<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
