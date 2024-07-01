@@ -589,3 +589,138 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 为啥不选希拉里
 
+*****
+
+####  红色的鲨鱼  
+##### 67#         楼主| 发表于 2024-6-28 11:01
+
+过了这晚上要不要真的考虑下
+
+*****
+
+####  qrgarry  
+##### 68#       发表于 2024-6-28 11:01
+
+今天结束突然概率变大了
+
+
+*****
+
+####  洛拉斯  
+##### 69#       发表于 2024-6-28 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825727&amp;ptid=2182662" target="_blank">龙星丸 发表于 2024-5-6 12:24</a>
+民主党不如狠一点，直接内部弄死拜登，然后吹风是**支持者下手的，推现在的女副总统上位坐完剩下的时间再直 ...</blockquote>
+这剧本我好像看过，总统是不是叫underwood
+
+*****
+
+####  星花  
+##### 70#       发表于 2024-6-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409675&amp;ptid=2182662" target="_blank">qrgarry 发表于 2024-6-28 11:01</a>
+
+今天结束突然概率变大了</blockquote>
+登登怎么了？<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Illidan  
+##### 71#       发表于 2024-6-28 11:12
+
+ykw的命门是没有政治继承人。
+
+
+*****
+
+####  lexi  
+##### 72#       发表于 2024-6-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825240&amp;ptid=2182662" target="_blank">nexus1 发表于 2024-5-6 11:46</a>
+
+总统夫人上来竞选一直是各种通辽宇宙的第三世界故事,现在这版本更新得也太快了 ...</blockquote>
+希拉里：美国是第三世界国家<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lexi  
+##### 73#       发表于 2024-6-28 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825397&amp;ptid=2182662" target="_blank">双面人 发表于 2024-5-6 12:00</a>
+
+奥黑八年两期霍霍满了吧，至于拉链，他要真有声望资源也不至于下去…</blockquote>
+？？？拉链顿不是从1992年干到2000年离职？
+
+
+*****
+
+####  lexi  
+##### 74#       发表于 2024-6-28 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832208&amp;ptid=2182662" target="_blank">主人ハム子 发表于 2024-5-6 21:41</a>
+
+好像不足一年还是两年的不算一任，之前讨论ykw当议长有人科普过。
+
+—— 来自 HUAWEI TET-AN00, Android  ...</blockquote>
+罗斯福在第四任总统任上干了几十天就死了，杜鲁门继任当了3年多总统，1948年他又当选，再干了4年。
+
+但在1951年，美国国会通过《第22号**》，防止在任总统寻求第三届任期（任何总统如果曾有多于2年的任期，则日后只可再干1届4年；如果继位后任期小于2年，则可再干2届8年），但作为1951年修宪时的在任总统，杜鲁门得到一个优待：他已经继任罗斯福干了3年，又干了一整届，但仍然可以谋求再干一届。
+
+但在1952年大选时，杜鲁门在民主党内第一个州的候选人提名中输给另一个人，他转而放弃谋求连任。所以他失去了成为美国历史上第二个担任总统超过10年（继任干了超过2年，自己竞选再干2届8年）的人的机会。
+
+按照第22号修正案，以后也不会有（说不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lexi  
+##### 75#       发表于 2024-6-28 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832208&amp;ptid=2182662" target="_blank">主人ハム子 发表于 2024-5-6 21:41</a>
+
+好像不足一年还是两年的不算一任，之前讨论ykw当议长有人科普过。
+
+—— 来自 HUAWEI TET-AN00, Android  ...</blockquote>罗斯福在第四任总统任上干了几十天就死了，杜鲁门继任当了3年多总统，1948年他又当选，再干了4年。
+
+但在1951年，美国国会通过宪法第22号修正案，防止在任总统寻求第三届任期（任何总统如果曾有多于2年的任期，则日后只可再干1届4年；如果继位后任期小于2年，则可再干2届8年），但作为1951年修宪时的在任总统，杜鲁门得到一个优待：他已经继任罗斯福干了3年，又干了一整届，但仍然可以谋求再干一届。
+
+但在1952年大选时，杜鲁门在民主党内第一个州的候选人提名中输给另一个人，他转而放弃谋求连任。所以他失去了成为美国历史上第二个担任总统超过10年（继任干了超过2年，自己竞选再干2届8年）的人的机会。
+
+按照第22号修正案，以后也不会有（说不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qrgarry  
+##### 76#       发表于 2024-6-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409790&amp;ptid=2182662" target="_blank">星花 发表于 2024-6-28 11:10</a>
+登登怎么了？</blockquote>
+辩论结束基本明牌要被换了
+
+
+*****
+
+####  首领  
+##### 77#       发表于 2024-6-28 12:27
+
+今天应该是切割的最好时机，晚了有点不识抬举，居心叵测。
+
+*****
+
+####  问道于盲  
+##### 78#       发表于 2024-6-28 12:28
+
+<blockquote>wjxforever 发表于 2024-5-6 23:30
+为啥不选希拉里</blockquote>
+身体在萝莉岛上被榨干了吧
+
+
+*****
+
+####  flyinwild  
+##### 79#       发表于 2024-6-28 12:33
+
+美版洪秀柱？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
