@@ -1724,3 +1724,315 @@ pv完全就是斧乃木主角 undead是指她了？
 就看过动画和国内出版的几本，后面剧情能配上这么欢快的歌吗？</blockquote>
 没有问题的，应该。
 
+*****
+
+####  Piano-Forest  
+##### 186#         楼主| 发表于 2024-6-29 11:08
+
+🆕YOASOBI「UNDEAD」7/1(月)0時配信決定🤛
+
+#物語シリーズ オフ＆モンスターシーズン主題歌となる今作、西尾維新先生に楽曲の原作も書き下ろしていただきました🤝
+
+作品への想いを詰め込んだ情報量たっぷりの楽曲、お楽しみに✌️✌️
+<img src="https://p.sda1.dev/18/df900b668e2f31de01054078ae0f3771/20240629_110650.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 187#       发表于 2024-6-29 12:27
+
+还附有原作小说，所以这歌真是为斧乃木写的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 188#       发表于 2024-6-29 16:06
+
+颤抖吧，夜游终将回到他忠诚的二次元<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仙那度  
+##### 189#       发表于 2024-6-29 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65421490&amp;ptid=2168085" target="_blank">Piano-Forest 发表于 2024-6-29 11:08</a>
+
+🆕YOASOBI「UNDEAD」7/1(月)0時配信決定🤛
+
+#物語シリーズ オフ＆モンスターシーズン主題歌となる今作、西 ...</blockquote>
+看样子op是早见的了，我还想看你鱼香姐能不能再出个神曲燃爆今夏<img src="https://static.saraba1st.com/image/smiley/carton2017/182.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 190#       发表于 2024-6-30 12:20
+
+ 本帖最后由 Tachikoma88 于 2024-6-30 12:21 编辑 
+
+抚物语的op居然是千石和斧乃木合唱，真就cp是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 191#       发表于 2024-6-30 12:23
+
+而且居然跟我之前想的差不多，结物语看来是要被调到后面做了
+
+*****
+
+####  糖皮质激素  
+##### 192#       发表于 2024-6-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65432063&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-6-30 12:20</a>
+
+抚物语的op居然是千石和斧乃木合唱，真就cp是吧</blockquote>
+不然抚子这种真正的大女主要跟谁去过日子？除了斧乃木没人顶的住吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  歪镜  
+##### 193#       发表于 2024-6-30 12:48
+
+这pv，这op，太清新了，一扫阴霾的感觉
+
+
+*****
+
+####  Tachikoma88  
+##### 194#       发表于 2024-6-30 13:13
+
+所以现在网上有试映会的感想吗，好急
+
+
+*****
+
+####  Piano-Forest  
+##### 195#         楼主| 发表于 2024-6-30 13:27
+
+抚物语新PV：[https://youtu.be/o7nneWWYtC4](https://youtu.be/o7nneWWYtC4)
+
+OP：『caramel ribbon cursetard』
+
+千石撫子(花澤香菜)/斧乃木余接(早見沙織)
+
+ED：『UNDEAD』 YOASOBI
+
+
+*****
+
+####  零壹贰叁  
+##### 196#       发表于 2024-6-30 13:28
+
+终于舍得放新pv了啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这季就只做抚物语和愚的月火篇吗？
+完全没其他新内容
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Sliurus  
+##### 197#       发表于 2024-6-30 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65432734&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-6-30 13:28</a>
+
+终于舍得放新pv了啊
+
+这季就只做抚物语和愚的月火篇吗？
+
+完全没其他新内容</blockquote>
+都off &amp; monster了，肯定不止这么点，不然直接叫off season就好了
+
+最坏的打算就是分割放送
+
+
+*****
+
+####  孟沁瑶  
+##### 198#       发表于 2024-6-30 14:15
+
+物语动画的顺序自然是想怎么来怎么来，我觉得不大可能有哪个篇章不做的
+
+
+*****
+
+####  Diana010  
+##### 199#       发表于 2024-6-30 20:04
+
+【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 [https://b23.tv/jqrVyi1](https://b23.tv/jqrVyi1)
+
+
+*****
+
+####  Tachikoma88  
+##### 200#       发表于 2024-6-30 20:29
+
+<blockquote>Diana010 发表于 2024-6-30 20:04
+【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 https://b23.tv/jqrVyi1 ...</blockquote>
+还行
+
+
+*****
+
+####  Tachikoma88  
+##### 201#       发表于 2024-6-30 21:28
+
+物语里我最不喜欢的是续终的op，与其说难听不如说敷衍，作为电音一般，作为垃圾君唯一的角色曲更是敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 202#       发表于 2024-6-30 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65436537&amp;ptid=2168085" target="_blank">Diana010 发表于 2024-6-30 20:04</a>
+
+【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 https://b23.tv/jqrVyi1 ...</blockquote>
+太术了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 203#       发表于 2024-6-30 22:21
+
+另外试映会第一集的演出是宫本，也就是说回天快做完了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 204#       发表于 2024-6-30 22:25
+
+Ed和往期风格差异也太大了…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  八雲みたま  
+##### 205#       发表于 2024-6-30 22:46
+
+吉泽翠是宫本徒弟，宫本第一集来帮一把也正常
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Rhantolk  
+##### 206#       发表于 2024-6-30 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉难听炸了啊，yoasobi在搞什么鬼
+
+
+*****
+
+####  Sliurus  
+##### 207#       发表于 2024-6-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65437515&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-6-30 21:28</a>
+
+物语里我最不喜欢的是续终的op，与其说难听不如说敷衍，作为电音一般，作为垃圾君唯一的角色曲更是敷衍 ...</blockquote>
+神谷是不会唱还是什么事务所的原因？明明在绝望先生里唱过ed和一些抽象的歌，虽然确实谈不上好听
+
+*****
+
+####  Tachikoma88  
+##### 208#       发表于 2024-6-30 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65438663&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-6-30 23:08</a>
+
+神谷是不会唱还是什么事务所的原因？明明在绝望先生里唱过ed和一些抽象的歌，虽然确实谈不上好听 ...</blockquote>
+我也不清楚，其实绝望先生那首ed我还挺喜欢的，偶尔还会拿出来听，结果物语这边就不唱了，我只能期待结物语的角色曲是神谷来唱了
+
+
+*****
+
+####  言酱啊啊啊  
+##### 209#       发表于 2024-6-30 23:16
+
+除了神谷没唱以外其实坂本真绫也没唱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+坂本真绫那几年一直不肯唱有自己角色的动画曲和角色歌
+最近这几年倒是偶尔有在唱了，姑且期待一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 210#       发表于 2024-7-1 00:30
+
+┏━━━━━━━━━━━━┓
+  #西尾維新 書き下ろし短々編
+┗━━━━━━━━━━━━┛
+
+主題歌 #YOASOBI 
+「UNDEAD」原作小説
+
+▸なでこパスト
+▸しのぶフューチャー
+
+∇公式サイトに公開
+https://www.monogatari-series.com/oms/special/novel/
+
+夜游还记得你这小说改编歌曲的设定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  martinium  
+##### 211#       发表于 2024-7-1 07:53
+
+ 本帖最后由 martinium 于 2024-7-1 07:59 编辑 
+
+老仓这新发型<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+夜游这新歌一般，配合pv还行，单独拿出来就感觉毫无特色。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  牙狼GARO  
+##### 212#       发表于 2024-7-1 16:04
+
+谁能给个物语系列阅读和动画顺序，我是动画化物语入坑的，小说追着看到出恋物语，后面就断了，现在根本弄不清一大堆到底什么顺序甚至还有多少生僻字给西尾用都不知道了
+动画更是如此，已经忘了看到哪里了
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Tachikoma88  
+##### 213#       发表于 2024-7-1 16:10
+
+，
+
+ 本帖最后由 Tachikoma88 于 2024-7-1 16:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65446483&amp;ptid=2168085" target="_blank">牙狼GARO 发表于 2024-7-1 16:04</a>
+
+谁能给个物语系列阅读和动画顺序，我是动画化物语入坑的，小说追着看到出恋物语，后面就断了，现在根本弄不 ...</blockquote>
+动画里恋物语之后应该是凭物语、终物语上、历物语、终物语下、续终物语的顺序，另外历物语大多都是小番外，跟主线有关的只有最后两集
+
+
+*****
+
+####  牙狼GARO  
+##### 214#       发表于 2024-7-1 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65446546&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-1 16:10</a>
+动画里恋物语之后应该是花物语、凭物语、终物语上、历物语、终物语下、续终物语的顺序，另外历物语大多都 ...</blockquote>
+感谢，这么一看自己小说也没落下来多少，至少生死三四郎的故事和结局有看到，动画缺的就多一些了
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
