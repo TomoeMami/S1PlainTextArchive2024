@@ -430,3 +430,25 @@ xs之前不都合作过两波了么</blockquote>
 
 xg别想了 se不会轻易授权的
 
+*****
+
+####  woaimiyabi  
+##### 51#       发表于 2024-7-4 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65041051&amp;ptid=2185295" target="_blank">yanglian72 发表于 2024-5-29 10:12</a>
+
+马路rpg 5！</blockquote>
+你这个猜测是真的吊
+
+
+*****
+
+####  liekong  
+##### 52#       发表于 2024-7-4 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65047286&amp;ptid=2185295" target="_blank">ネコカイザー 发表于 2024-5-29 18:01</a>
+社招，关卡策划岗</blockquote>
+一个月过去了，坛友成功成为舅舅了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
