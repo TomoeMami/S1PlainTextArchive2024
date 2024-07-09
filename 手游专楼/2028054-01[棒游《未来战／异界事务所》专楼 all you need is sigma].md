@@ -240,3 +240,10 @@ u1s1 你游策划是真爱触手 下个觉醒剧情要是一般人肯定会选�
 新支线结局又在挖坑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 不过艾力丝和卡门的孽缘形成了一个时空闭环，有点意思
 
+*****
+
+####  拍不到脑袋  
+##### 993#       发表于 2024-7-6 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">唉，SB社产能是全拉到新项目了吗，天鹅这全身的特效都是挪用的
+
