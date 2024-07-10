@@ -1969,3 +1969,12 @@ yysy,这集给我有一种石头门的感觉
 
 还以为是发神经，原来有二期，还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  martinium  
+##### 176#       发表于 2024-7-8 01:28
+
+一言难尽，感觉就是为了这一集这点醋包了前面一季的饺子。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
