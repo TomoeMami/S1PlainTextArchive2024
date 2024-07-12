@@ -1494,3 +1494,12 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 
 又寄一个，怎么我喜欢的色的都倒了不色的还在<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+*****
+
+####  铁火辉夜  
+##### 145#       发表于 2024-7-9 21:21
+
+韩服活了
+
+日服还踏马在摆烂
+
