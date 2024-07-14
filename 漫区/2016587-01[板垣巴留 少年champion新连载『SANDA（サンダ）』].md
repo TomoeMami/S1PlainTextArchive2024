@@ -470,3 +470,40 @@ B漫这还分境外版的？有啥区别吗？</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+*****
+
+####  Piano-Forest  
+##### 55#         楼主| 发表于 2024-7-8 17:11
+
+动画由科学猴制作
+
+
+*****
+
+####  Piano-Forest  
+##### 56#         楼主| 发表于 2024-7-10 23:03
+
+官网：[https://sanda.red/](https://sanda.red/)
+
+官推：[https://x.com/sanda_anime](https://x.com/sanda_anime)
+
+<img src="https://p.sda1.dev/18/3156f1a01883d8f6cdbac46cfa738604/20240710_230104.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  川川子  
+##### 57#       发表于 2024-7-11 01:58
+
+说真的其实这部会动画化真的还蛮怪的……尤其同刊上的不可思议研究部到完结都没动画化
+
+感觉主要还是靠BEASTARS和网飞的关系给动了
+
+
+*****
+
+####  狮子咕  
+##### 58#       发表于 2024-7-11 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">说起来这玩意在b漫去年9月就没得更新了，最后结局是啥玩意？
+
