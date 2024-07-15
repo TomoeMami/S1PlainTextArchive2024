@@ -631,3 +631,33 @@ pc版能改按键，主机版如果不能的话，是挺傻逼的
 《祇：Path of the Goddess》制作人访谈：塔防与动作元素的新结合
 [https://gouhuo.qq.com/mainpage/d ... 620145603_TbStsVwD3](https://gouhuo.qq.com/mainpage/detail?storyid=0_20240620145603_TbStsVwD3)
 
+*****
+
+####  Piano-Forest  
+##### 69#         楼主| 发表于 2024-7-12 00:02
+
+<img src="https://p.sda1.dev/18/30866cdecbb25b1012c1e7f76a7d0f3d/20240711_235919.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2024-7-12 00:02
+
+主题歌PV：[https://youtu.be/b8D7DWSVmgo](https://youtu.be/b8D7DWSVmgo)
+
+
+*****
+
+####  weiduopla  
+##### 71#       发表于 2024-7-12 21:13
+
+【《Kunitsu-Gami: Path of the Goddess》主题曲 - Kunitsu-Gami】 [https://www.bilibili.com/video/B ... 9090d5f448907589519](https://www.bilibili.com/video/BV1A6421f7Wh/?share_source=copy_web&amp;vd_source=9bc124bd87f7a9090d5f448907589519)
+
+
+*****
+
+####  hkguty  
+##### 72#       发表于 2024-7-12 21:17
+
+感觉美术很特别
+
