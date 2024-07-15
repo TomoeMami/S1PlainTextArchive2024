@@ -669,3 +669,203 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 主题曲出了，很意外地看到了藍月なくる的名字。但看到deco27又觉得心里没底了 ...</blockquote>
 还行吧这个，但是官方放的视频很糊，不会是录屏上来的吧
 
+*****
+
+####  LrGsite  
+##### 64#       发表于 2024-7-11 11:07
+
+<img src="https://img.saraba1st.com/forum/202407/11/110552nvko13dbqikqbf11.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (433.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 11:05 上传
+
+简单玩了一下,操作起来有点太无聊了,吸引我的只有这个像管人一样的大奶和男主
+
+
+*****
+
+####  SugarPagoda  
+##### 65#       发表于 2024-7-11 20:25
+
+没想到泥潭对这个游戏的接受程度竟然这么低 。这种末法时代的又一个侧面的氛围感不是很好吗，一群不正常的人在一个不正常的地方干着不正常的事。如果说 主播女孩重度依赖 给人一种欲让其灭亡先让其疯狂的癫狂感，那么这个游戏就给人一种后互联网时代极致的糜烂颓废感。在玩别的游戏作品的时候我偶尔还会有我们都在奋发向上的错觉，玩这个游戏（demo）的时候我才真切的感受到“原来已经在2024年了，瞧瞧我们都做了些什么”
+
+
+*****
+
+####  双层天椒皇堡  
+##### 66#       发表于 2024-7-11 20:37
+
+男主人设图整个内八破洞紧身牛仔裤，总感觉官方会弄个雌堕情节整活<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  operatbig  
+##### 67#       发表于 2024-7-11 20:46
+
+居然不是百合，算了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kivz  
+##### 68#       发表于 2024-7-11 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556239&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 20:25</a>
+没想到泥潭对这个游戏的接受程度竟然这么低 。这种末法时代的又一个侧面的氛围感不是很好吗，一群不正常的 ...</blockquote>
+水烟……看到这个就有点劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxtree  
+##### 69#       发表于 2024-7-11 21:20
+
+needy girl + va11吧，有点土
+
+人家都是独立游戏，你aniplex凭什么学啊
+
+
+*****
+
+####  SugarPagoda  
+##### 70#       发表于 2024-7-11 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556421&amp;ptid=2162731" target="_blank">kivz 发表于 2024-7-11 20:53</a>
+水烟……看到这个就有点劝退了</blockquote>
+我觉得其实水烟就是一个正正好好的题材，既不太过老套也不太过激。
+二次元美少女在西餐厅坐一桌开茶会 -&gt; 二次元美少女在咖啡店坐一桌喝咖啡 -&gt; 二次元美少女在吧台坐高脚凳一溜喝鸡尾酒 -&gt; 二次元美少女下班凑一桌大玻璃杯喝啤酒 -&gt; 二次元美少女在透明吸烟室蹲一圈抽烟 -&gt; 二次元美少女在休息室沙发排排坐抽雪茄 -&gt; 二次元美少女在男娘水烟店抽水烟 -&gt; 二次元美少女在朋友家客厅瘫成一团抽麻 -&gt; 二次元美少女在可疑跳舞厅包厢精神亢奋吃可疑蓝色药片 -&gt; 二次元美少女缩在大久保广场角落共用注射器注射不明液体 -&gt; ？？？
+
+
+*****
+
+####  魔法酪饼  
+##### 71#       发表于 2024-7-11 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557085&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 22:24</a>
+
+我觉得其实水烟就是一个正正好好的题材，既不太过老套也不太过激。
+
+二次元美少女在西餐厅坐一桌开茶会 -&gt; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 按照从日本友人那边听说的情况来看，可能水烟的等级比叶子高些？感觉去抽水烟的起码也是奔着混合低强度药品去的吧。
+
+*****
+
+####  莉可厨  
+##### 72#       发表于 2024-7-11 22:31
+
+这b弱势男主……看样子本作是奔着主播女孩的生态位去的，想在地雷妹群体里做成爆款的样子。
+
+
+*****
+
+####  sxfox  
+##### 73#       发表于 2024-7-11 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557119&amp;ptid=2162731" target="_blank">魔法酪饼 发表于 2024-7-11 22:30</a>
+按照从日本友人那边听说的情况来看，可能水烟的等级比叶子高些？感觉去抽水烟的起码也是奔着混合低强度 ...</blockquote>
+也不能这么说吧，至少水烟是合法的，叶子是非法的。
+主要水烟馆这东西一群人聚一起很容易抽着抽着就想往里面加东西，但也确实有人就单纯抽烟。
+所以是可攻可守的正正好好
+
+
+*****
+
+####  魔法酪饼  
+##### 74#       发表于 2024-7-11 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557211&amp;ptid=2162731" target="_blank">sxfox 发表于 2024-7-11 22:45</a>
+
+也不能这么说吧，至少水烟是合法的，叶子是非法的。
+
+主要水烟馆这东西一群人聚一起很容易抽着抽着就想往 ...</blockquote>
+咋说呢。。。
+
+感觉在日本只想抽烟草的跑到水烟店点服务就好像舞蹈爱好者跑到荤吧去跳舞一样。
+
+
+*****
+
+####  Errey  
+##### 75#       发表于 2024-7-11 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557085&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 22:24</a>
+
+我觉得其实水烟就是一个正正好好的题材，既不太过老套也不太过激。
+
+二次元美少女在西餐厅坐一桌开茶会 -&gt; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">外国人怎么想不知道，但烟馆在国内肯定是属于非常过激的题材了，不比杀人黑社会嫖娼这种差
+
+
+*****
+
+####  Tring  
+##### 76#       发表于 2024-7-11 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557340&amp;ptid=2162731" target="_blank">Errey 发表于 2024-7-11 23:08</a>
+
+外国人怎么想不知道，但烟馆在国内肯定是属于非常过激的题材了，不比杀人黑社会嫖娼这种差 ...</blockquote>
+大城市的人怎么想不知道，至少我在的这破地方确实多数人都是认为这题材要不得。
+
+*****
+
+####  qwased  
+##### 77#       发表于 2024-7-11 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557340&amp;ptid=2162731" target="_blank">Errey 发表于 2024-7-11 23:08</a>
+
+外国人怎么想不知道，但烟馆在国内肯定是属于非常过激的题材了，不比杀人黑社会嫖娼这种差 ...</blockquote>
+也没有那么夸张吧，广东沿海这边00年之前抽水烟很常见的，经常能看到一群阿叔拿着根竹竿在那抽
+
+00年之后可能这群人身体不行抽不动了就慢慢销声匿迹了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yvev  
+##### 78#       发表于 2024-7-12 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556239&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 20:25</a>
+没想到泥潭对这个游戏的接受程度竟然这么低 。这种末法时代的又一个侧面的氛围感不是很好吗，一群不正常的 ...</blockquote>
+就是看起来太像了导致一点兴趣都没有
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 79#       发表于 2024-7-13 03:45
+
+品完了不太建议买，短得吓人4小时不到就能全结局。男主大部分对话都和日本现实服务业一样礼貌而啰嗦，和三名女角色互动信息密度很低。虽然能触发两名角色同场，但除了客套话并没有额外的剧情。和亚逼味溢出的美术风格相反，故事很土很保守。调和部分甚至不如各种手游的仿va11活动来的有趣，调烟和换炭块的正误似乎并不影响剧情只和成就有关。需要注意的就是demo跟一些gal试玩版一样是独立的剧情不要漏掉了，个人是觉得这部分比本篇还有趣点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  踩到图钉  
+##### 80#       发表于 2024-7-13 04:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557375&amp;ptid=2162731" target="_blank">qwased 发表于 2024-7-11 23:13</a>
+
+也没有那么夸张吧，广东沿海这边00年之前抽水烟很常见的，经常能看到一群阿叔拿着根竹竿在那抽
+
+00年之后 ...</blockquote>
+游戏里的应该是阿拉伯水烟，跟广东水烟除了都有水之外没什么相似度
+
+阿拉伯水烟正经的烟膏成分一般就是些果泥糖分之类的，甚至连正常意义上的烟草都很少加，靠不完全燃烧的一氧化碳产生醉人感
+
+当然大部分人跑去烟吧肯定冲着不正经的烟膏去的，那面里有些啥就说不好了
+
+这玩意儿点一烟锅能咕嘟咕嘟抽上至少半小时
+
+我最早知道这东西还是玩大航海时代4，跑去阿拉伯的港口没有酒馆，就是这种烟馆
+
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 81#       发表于 2024-7-13 04:20
+
+VA11大烟版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这人设和烟馆背景很难不想象一些现实厕妹
+
