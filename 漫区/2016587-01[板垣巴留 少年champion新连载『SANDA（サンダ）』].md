@@ -507,3 +507,10 @@ B漫这还分境外版的？有啥区别吗？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">说起来这玩意在b漫去年9月就没得更新了，最后结局是啥玩意？
 
+*****
+
+####  shuigua  
+##### 59#       发表于 2024-7-15 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全没讨论度主要原因在于叔叔吧，这部真的是正版受害者了
+
