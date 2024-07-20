@@ -1458,3 +1458,22 @@ jcb 测试的2日元没事, 买点的时候就不成了. 有意思.
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Toby_dak  
+##### 141#       发表于 2024-7-17 13:18
+
+「Visa」日本法人 独占禁止法違反の疑い 公取委が立ち入り検査
+[https://www3.nhk.or.jp/news/html/20240717/k10014513731000.html](https://www3.nhk.or.jp/news/html/20240717/k10014513731000.html)
+#nhk_news
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  adapter  
+##### 142#       发表于 2024-7-17 16:05
+
+其实日亚也早就开始了，直接搜索它会屏蔽一些东西，但用Google或购买记录可以搜出来，
+
