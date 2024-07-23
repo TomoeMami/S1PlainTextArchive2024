@@ -541,3 +541,179 @@
 
 还有配音真的不行
 
+*****
+
+####  医生狼多  
+##### 54#       发表于 2024-7-16 16:40
+
+由 中电博亚CE-Asia 发行的国产废土科幻题材 ARPG《无限机兵》将亮相 7 月 26-29 日在上海举办的 ChinaJoy 中国国际数码互动娱乐展览会，于 PlayStation 展台提供线下试玩。
+
+在试玩版中，玩家将在有限的时间内挑战游戏第一个关卡“地城水道”的部分内容，在虚人和清理者的阻拦中勇往直前，初步体验游戏的“同步率”系统、角色技能“反击力场”、构造术式“电磁炮”等元素，并最终迎接本次试玩关底 Boss“迷失的枪兵罗尔”的挑战。不管是虚人和清理者中的精英，还是 Boss 罗尔本身，在游玩过程都颇具难度，需要玩家们凭借精湛的技术或过人的智慧在有限时间内将他们斩于马下，让他们“尘归尘，土归土”。
+
+
+*****
+
+####  Piano-Forest  
+##### 55#       发表于 2024-7-19 09:11
+
+各媒体的Demo试玩实机演示出了
+
+
+*****
+
+####  westgun  
+##### 56#       发表于 2024-7-19 09:19
+
+xbox不配拥有吗？
+
+
+*****
+
+####  月海的秋鸟  
+##### 57#       发表于 2024-7-19 09:39
+
+感觉不太行的样子
+
+
+*****
+
+####  oskneo  
+##### 58#       发表于 2024-7-19 09:58
+
+有希望赶上星刃吗？
+
+
+*****
+
+####  oahcihs  
+##### 59#       发表于 2024-7-19 10:12
+
+看了看视频 感觉还行
+动作基本是流畅的
+就是没什么突出令人印象深刻的亮点
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  roxassix  
+##### 60#       发表于 2024-7-19 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">终于有动静了吗，今年能出不
+
+
+*****
+
+####  RainbowSealife  
+##### 61#       发表于 2024-7-19 23:48
+
+试玩挺糙的，看着像是手游，但手游魂也有帕斯卡契约这样的作品。美术风格类似噬血代码二刺螈魂。似乎没有精力限制，多了个同步率的设计。主角走起路来胯部左摇右摆的真别扭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fcssnake  
+##### 62#       发表于 2024-7-20 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65631896&amp;ptid=2168791" target="_blank">westgun 发表于 2024-7-19 09:19</a>
+
+xbox不配拥有吗？</blockquote>
+索尼中国之星计划的游戏，你说XBX配不配呢？
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 63#       发表于 2024-7-20 00:40
+
+战斗感觉不太行，没有任何特殊机制，然后又是个魂游感觉也没啥剧情，希望二次元这部分能做好吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  医生狼多  
+##### 64#       发表于 2024-7-20 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641201&amp;ptid=2168791" target="_blank">fcssnake 发表于 2024-7-20 00:32</a>
+索尼中国之星计划的游戏，你说XBX配不配呢？</blockquote>
+暗影火炬城:当然可以，说不定还近xgp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+中国之星除了索尼发行的，其实和平台没什么关系，只能说一定有ps版
+
+
+*****
+
+####  whzfjk  
+##### 65#       发表于 2024-7-20 01:55
+
+感觉还凑合，动作K得一般，硬直过渡突兀，首个场景跟 CV 一样落入 JRPG 迷宫的窠臼，不过最后出来拉远景看巨构拉回点印象分。
+
+
+*****
+
+####  霖岚_  
+##### 66#       发表于 2024-7-20 17:24
+
+说起来国内这种3d二游大部分都是unity做的么，我只听说过米都是用的unity，不玩手游不清楚
+
+
+*****
+
+####  陛下欲反邪  
+##### 67#       发表于 2024-7-20 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65645843&amp;ptid=2168791" target="_blank">霖岚_ 发表于 2024-7-20 17:24</a>
+
+说起来国内这种3d二游大部分都是unity做的么，我只听说过米都是用的unity，不玩手游不清楚 ...</blockquote>
+目前上市的几乎都是unity，还是饼阶段的有不少是ue，比如前几天爆火那个异环
+
+
+*****
+
+####  SchwarzX  
+##### 68#       发表于 2024-7-20 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了视频评论区都说是魂，不会又是魂类吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 69#       发表于 2024-7-20 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646737&amp;ptid=2168791" target="_blank">SchwarzX 发表于 2024-7-20 19:17</a>
+
+看了视频评论区都说是魂，不会又是魂类吧</blockquote>
+都到了对魂感到厌倦的程度了，是不是魂系不是一眼能看出来吗？除非自己骗自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SchwarzX  
+##### 70#       发表于 2024-7-20 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646754&amp;ptid=2168791" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-7-20 19:19</a>
+
+都到了对魂感到厌倦的程度了，是不是魂系不是一眼能看出来吗？除非自己骗自己 ...</blockquote>
+就不喜欢玩魂类也没玩过几部，以前在星刃视频评论区问是不是魂类还被当魂小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巨魔已被忠诚  
+##### 71#       发表于 2024-7-20 21:30
+
+美术和场景有特点
+
+动画还可以的，就是配合游戏调教得还是僵硬，估计没有专职动画TA负责。
+
+现在看起来就是一个中规中矩的魂游。
+
+*****
+
+####  kyonkoism  
+##### 72#         楼主| 发表于 2024-7-20 21:31
+
+目前这个试玩就是中规中矩吧，独立游戏魂游水平
+
