@@ -4049,3 +4049,658 @@ Fafnar Mk. Destiney!
 罗盘总裁是卡嘉莉拜托基拉帮忙参与，拉克丝跟着基拉去任职总裁。小说原文里没有任何“都是你们逼的”的感情 ...</blockquote>
 小说原文里没有任何“都是你们逼的”的感情....小说原文是不是没有那么多和黄毛这么狗血无聊的台词<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">？
 
+*****
+
+####  妄想系同盟  
+##### 1814#       发表于 2024-7-18 11:33
+
+<img src="https://img.saraba1st.com/forum/202407/18/113155qozddjxbhhs3unoz.jpg" referrerpolicy="no-referrer">
+
+<strong>6eb0d3a275c4931b.jpg</strong> (56.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 11:31 上传
+
+群里看到的图，保真吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除了前两天看到有号暗示下半年会上粉丝不要急，其他都没看到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  battleship64  
+##### 1815#       发表于 2024-7-18 13:33
+
+懂了，加油加油
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  gundammarkⅡ  
+##### 1816#       发表于 2024-7-18 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622911&amp;ptid=2178694" target="_blank">妄想系同盟 发表于 2024-7-18 11:33</a>
+编辑了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AEMedia直接倒出来了
+
+
+*****
+
+####  无动于衷  
+##### 1817#       发表于 2024-7-18 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65560950&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-7-12 11:08</a>
+
+福田这个补完，感觉鸟用对机子+不再迷茫，比基拉还强吧，至少基拉不会分身，只是躲得快吧？ ...</blockquote>
+那不就等于没了命运就是fw嘛 一转高级黑了属于是
+
+
+*****
+
+####  Ironman_mk5  
+##### 1818#       发表于 2024-7-18 14:18
+
+<blockquote>无动于衷 发表于 2024-7-18 14:10
+那不就等于没了命运就是fw嘛 一转高级黑了属于是</blockquote>
+总比种命有了命运就变成fw强吧，而且tv的脉冲大招经常被说换成别人也能使出来，新命运的大招基本和鸟绑定了
+
+
+*****
+
+####  妄想系同盟  
+##### 1819#       发表于 2024-7-18 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624218&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-7-18 13:36</a>
+
+AEMedia直接倒出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">翻了下还真是
+
+
+*****
+
+####  凤舞夜月  
+##### 1820#       发表于 2024-7-18 15:32
+
+再看了几次，好像杂兵机，就只有毁灭是被直接直击击穿腰部，捅穿腰部，大概率驾驶员活不下来的样子。
+
+其他普通杂兵机大概率都能活下来？》
+
+是不是有点双标<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  菲特妹  
+##### 1821#       发表于 2024-7-18 17:15
+
+ 本帖最后由 菲特妹 于 2024-7-18 17:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">华策常规操作而已，早说过一定会上的，这比去年的柯南还要快了，估计你万都急了
+就那个营销号整天神神叨叨，装神弄鬼，不知所云，哗众取宠
+说能上的是他，说不能上的也是他<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫兔同笼  
+##### 1822#       发表于 2024-7-18 18:32
+
+代哥的换色加新规水贴上海自由在路上了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 1823#       发表于 2024-7-18 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65625479&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-7-18 15:32</a>
+再看了几次，好像杂兵机，就只有毁灭是被直接直击击穿腰部，捅穿腰部，大概率驾驶员活不下来的样子。
+
+其他 ...</blockquote>
+毁灭这种大规模杀伤性兵器当然要确保打到再起不能啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  gundammarkⅡ  
+##### 1824#       发表于 2024-7-19 07:55
+
+ 本帖最后由 gundammarkⅡ 于 2024-7-19 07:56 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/19/074850e0ap040i0ii9cv74.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240719_074706_com.android.gallery3d_edit_397214868849805.jpg</strong> (425.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 07:48 上传
+
+明确还是第一部那台决斗而不是新造的套皮扎古<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+原本计划报废的决斗被伊扎克妈和艾琳（第一部结局时的临时议长）拿去给尼哥尔爸改修
+
+
+*****
+
+####  Y.Cassano  
+##### 1825#       发表于 2024-7-19 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65631395&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-7-19 07:55</a>
+
+明确还是第一部那台决斗而不是新造的套皮扎古
+
+原本计划报废的决斗被伊扎克妈和艾琳（第一部结局时的临时议 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月夜凝雪  
+##### 1826#       发表于 2024-7-19 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65631454&amp;ptid=2178694" target="_blank">Y.Cassano 发表于 2024-7-19 08:10</a>
+合着没有像当年传闻的那样还给曙光社啊。而且都上核能了，武备实在寒酸。 ...</blockquote>
+反正都只是流星驾驶舱
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  1096beam  
+##### 1827#       发表于 2024-7-19 09:13
+
+资源都出了过3000W都是个问题好不
+
+
+*****
+
+####  SorroFrost  
+##### 1828#       发表于 2024-7-19 14:02
+
+必胜客高达联名出来了，这回看来是确定要上了
+
+
+*****
+
+####  Alphawalker  
+##### 1829#       发表于 2024-7-19 14:39
+
+之前的档期估计是六月末，福田风波冷处理了两个月吧
+
+
+*****
+
+####  死难者23er  
+##### 1830#       发表于 2024-7-19 17:43
+
+<blockquote>gundammarkⅡ 发表于 2024-7-19 07:55
+明确还是第一部那台决斗而不是新造的套皮扎古
+
+原本计划报废的决斗被伊扎克妈和艾琳（第一部结局时的临时议 ...</blockquote>
+阿古尼斯居然是打败了伊扎克进入了指南盘，现在位于前传阿古尼斯加入指南针的过程更加感兴趣
+
+
+*****
+
+####  猫兔同笼  
+##### 1831#       发表于 2024-7-19 17:54
+
+这联名套餐可真够冤种的，459买个SD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我以为代哥卖个新换色的会场限定上海自由就成了，结果这新创华搞的联动更离谱
+
+
+*****
+
+####  Ironman_mk5  
+##### 1832#       发表于 2024-7-19 19:58
+
+<blockquote>死难者23er 发表于 2024-7-19 17:43
+阿古尼斯居然是打败了伊扎克进入了指南盘，现在位于前传阿古尼斯加入指南针的过程更加感兴趣 ...</blockquote>
+所以机师实力是月亮&gt;阿古&gt;伊扎克？
+
+
+*****
+
+####  starring  
+##### 1833#       发表于 2024-7-19 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637075&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-19 17:43</a>
+
+阿古尼斯居然是打败了伊扎克进入了指南盘，现在位于前传阿古尼斯加入指南针的过程更加感兴趣 ...</blockquote>
+这个设定哪里出来的？
+
+*****
+
+####  死难者23er  
+##### 1834#       发表于 2024-7-19 20:09
+
+<blockquote>Ironman_mk5 发表于 2024-7-19 19:58
+所以机师实力是月亮&gt;阿古&gt;伊扎克？</blockquote>
+不是只是说伊扎克一开始也打算去指南针的。不过这样一出之后之前所推测的什么阿古尼斯是因为家世或者实力都变得完全没有道理了，毕竟伊扎克这两个哪个都比阿古尼斯强，最后居然输了
+
+
+*****
+
+####  死难者23er  
+##### 1835#       发表于 2024-7-19 20:10
+
+<blockquote>starring 发表于 2024-7-19 20:09
+这个设定哪里出来的？</blockquote>
+最新模型的人物介绍提到伊扎克也打算加入罗盘的
+
+*****
+
+####  starring  
+##### 1836#       发表于 2024-7-19 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638713&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-19 20:10</a>
+
+最新模型的人物介绍提到伊扎克也打算加入罗盘的</blockquote>
+哪里有伊扎克打算加入罗盘，明明说zaft为了参加罗盘的活动才加入军衔，更没有伊扎克输个阿格尼丝的设定
+
+
+*****
+
+####  死难者23er  
+##### 1837#       发表于 2024-7-19 20:20
+
+ 本帖最后由 死难者23er 于 2024-7-19 20:24 编辑 
+<blockquote>starring 发表于 2024-7-19 20:16
+哪里有伊扎克打算加入罗盘，明明说zaft为了参加罗盘的活动才加入军衔，更没有伊扎克输给阿格尼丝的设定 ...</blockquote>
+
+看一下我后面对另一个人解释行不行？一个进了一个没有进，所以我用打败很奇怪吗我，而且我和另外一个人解释了，我不觉得是实力的问题，只是这样一出，以后之前推测的阿古尼斯是因为实力和家世的原因就变得很奇怪了，毕竟伊扎克两个都比她强，所以我才感兴趣
+
+
+*****
+
+####  mffx  
+##### 1838#       发表于 2024-7-19 20:31
+
+有没可能，是不想进/被调走/妈想让儿子专心相亲(？)等等，而不是“被打败了”<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  死难者23er  
+##### 1839#       发表于 2024-7-19 20:33
+
+<blockquote>mffx 发表于 2024-7-19 20:31
+有没可能，是不想进/被调走/妈想让儿子专心相亲(？)等等，而不是“被打败了”
+
+—— 来自 鹅球 v3.0.0.82-a ...</blockquote>
+这个就看前传怎么解释，反正这个说法一出前传的故事在我看来就变得更加吸引人了
+
+
+*****
+
+####  gundammarkⅡ  
+##### 1840#       发表于 2024-7-20 00:16
+
+ 本帖最后由 gundammarkⅡ 于 2024-7-20 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638962&amp;ptid=2178694" target="_blank">mffx 发表于 2024-7-19 20:31</a>
+
+有没可能，是不想进/被调走/妈想让儿子专心相亲(？)等等，而不是“被打败了”
+
+—— 来自 鹅球 v3.0.0.82-a ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">最简单的解：基拉不要
+
+因为<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/20/001637fkykn3tffcvfff3z.jpg" referrerpolicy="no-referrer">
+
+<strong>Collage_20240720_001557.jpg</strong> (397.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 00:16 上传
+
+
+*****
+
+####  死难者23er  
+##### 1841#       发表于 2024-7-20 11:35
+
+<img src="https://img.saraba1st.com/forum/202407/20/113501f88d9he99svn4s4d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="792" zoomfile="https://img.saraba1st.com/forum/202407/20/113501f88d9he99svn4s4d.jpeg">
+
+<strong>IMG_2544.jpeg</strong> (243.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 11:35 上传
+
+没人发的话我就发一下吧，这次官方又搞了向观众征集问题的活动，看来福田之前的推特应该是他为这件事做铺垫，我已经问完自己想问的人有问题的话也可以去问
+
+
+*****
+
+####  菲特妹  
+##### 1842#       发表于 2024-7-20 15:07
+
+<img src="https://img.saraba1st.com/forum/202407/20/150649svezy7a4hpvxxhy7.jpg" referrerpolicy="no-referrer">
+
+<strong>24c3da198618367a28536afd68738bd4b21ce54f.jpg</strong> (71.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 15:06 上传
+
+代哥在国内一堆商业计划呢
+
+那个电影营销号估计连班都没上过。
+
+
+*****
+
+####  gundammarkⅡ  
+##### 1843#       发表于 2024-7-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644882&amp;ptid=2178694" target="_blank">菲特妹 发表于 2024-7-20 15:07</a>
+代哥在国内一堆商业计划呢
+
+那个电影营销号估计连班都没上过。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自由的图上是FAITH标志的联动饰物，几个意思呀
+
+
+*****
+
+####  eyeego  
+##### 1844#       发表于 2024-7-20 17:03
+
+整个真黄金高达呀<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死难者23er  
+##### 1845#       发表于 2024-7-20 17:37
+
+<img src="https://img.saraba1st.com/forum/202407/20/173720mi83kiuzibmoyqvp.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2545.png</strong> (251.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 17:37 上传
+
+这个也太毒了吧
+
+*****
+
+####  七七見奈波  
+##### 1846#       发表于 2024-7-20 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638841&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-19 20:20</a>
+
+看一下我后面对另一个人解释行不行？一个进了一个没有进，所以我用打败很奇怪吗我，而且我和另外一个人解 ...</blockquote>
+人图上的原话解释的是伊扎克怎么忽然有了军衔：扎夫特以前没搞，都是队长带着小队满地跑。现在为了参加罗盘才给下头的军官设置了军衔。既没说伊扎克打算要去但是没去成，也没说伊扎克参加过什么罗盘的选拔，更没说加入罗盘是不是只要交志愿书那边审查一下就可以还是需要扎夫特方面或者罗盘方面进行正式选拔甚至直接主动指名，啥啥都没说呢你自己就整什么一个进了一个没进，伊扎克自己或者扎夫特方面可能压根就没打算让他去。
+
+想说什么阿格妮斯“打败”伊扎克，首先你得确定有“选拔”这种东西存在，没有选拔就没有比较，没有比较“打败”个毛线。阿格妮斯的水平早就说过了，跟实战过的鸟月都根本没法比，同军衔的月亮用旧机翻新能打赢她的新型机。伊扎克是参加过至少两次大战、击坠数里有两台高达的中校，阿格妮斯一个中尉，军衔都比不上鸟，拿头“打败”伊扎克，自己阅读理解能力不过关，少强词夺理了
+
+
+*****
+
+####  死难者23er  
+##### 1847#       发表于 2024-7-20 18:00
+
+<blockquote>七七見奈波 发表于 2024-7-20 17:41
+人图上的原话解释的是伊扎克怎么忽然有了军衔：扎夫特以前没搞，都是队长带着小队满地跑。现在为了参加罗 ...</blockquote>
+你就是想说伊扎克比阿古尼斯强的，这个不是事实吗？我否定过这个，我现在只感兴趣的是为什么他没有进阿古尼斯进，这个才是让我对前传更加感兴趣的原因。有些人就对打败这么一个用词这么敏感
+
+
+*****
+
+####  starring  
+##### 1848#       发表于 2024-7-20 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646117&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 18:00</a>
+你就是想说伊扎克比阿古尼斯强的，这个不是事实吗？我否定过这个，我现在只感兴趣的是为什么他没有进阿古 ...</blockquote>
+没有那个事实设定自己在那里脑补谣言伊扎克被打败，别人指正还嘴硬
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  王元姬无惨  
+##### 1849#       发表于 2024-7-20 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646117&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 18:00</a>
+你就是想说伊扎克比阿古尼斯强的，这个不是事实吗？我否定过这个，我现在只感兴趣的是为什么他没有进阿古 ...</blockquote>
+要点逼脸吧
+
+
+*****
+
+####  死难者23er  
+##### 1850#       发表于 2024-7-20 18:35
+
+<blockquote>starring 发表于 2024-7-20 18:19
+没有那个事实设定自己在那里脑补谣言伊扎克被打败，别人指正还嘴硬
+
+—— 来自 Sony XQ-DQ72, Android 14 ...</blockquote>
+但我从来就没有说过是实力的原因，我只是说了一句我更加感兴趣阿古尼斯是怎么加入指南针的，而且后面有人觉得是实力原因，我还特地去解释了，是你们自己觉得我这句话指的是实力
+
+*****
+
+####  死难者23er  
+##### 1851#       发表于 2024-7-20 18:36
+
+<blockquote>王元姬无惨 发表于 2024-7-20 18:28
+要点逼脸吧</blockquote>
+是你们自己觉得的是实力关我什么事，而且我还特地跟别人解释了一下，我不觉得实力原因
+
+
+*****
+
+####  浅川雏羽  
+##### 1852#       发表于 2024-7-20 18:39
+
+有一说一，这楼爬了这么久，早该屏蔽死难者23了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  死难者23er  
+##### 1853#       发表于 2024-7-20 18:45
+
+我就想说模型介绍里伊扎克有加入罗盘的想法，还有这个阿古尼斯的强人的颜色设计，这些不会让人更加感兴趣是前传到底发生什么事情，我现在非常感兴趣伊扎克为什么没有进，阿古尼斯反而进去了。还有这个强人的颜色设计，真的是太多可以让人感兴趣前传的内容了
+
+
+*****
+
+####  王元姬无惨  
+##### 1854#       发表于 2024-7-20 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646437&amp;ptid=2178694" target="_blank">浅川雏羽 发表于 2024-7-20 18:39</a>
+有一说一，这楼爬了这么久，早该屏蔽死难者23了
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你说的对 忍不住和回他的人全责
+
+
+*****
+
+####  starring  
+##### 1855#       发表于 2024-7-20 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646648&amp;ptid=2178694" target="_blank">王元姬无惨 发表于 2024-7-20 19:05</a>
+你说的对 忍不住和回他的人全责</blockquote>
+确实不该忍不住回复，都不止一次把自己的脑补当设定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  死难者23er  
+##### 1856#       发表于 2024-7-20 19:38
+
+<blockquote>starring 发表于 2024-7-20 19:24
+确实不该忍不住回复，都不止一次把自己的脑补当设定了
+
+—— 来自 Sony XQ-DQ72, Android 14上的 S1Next- ...</blockquote>
+能不能不要随便扣帽子一个只是更加期待前传剧情的话语就被曲解成是脑补当成设定。我每一次给人科普的时候都是直接把我买到的官方公式书，还有福田推特和官方网址全部都发出来的，没一次是脑补的。
+
+
+*****
+
+####  七七見奈波  
+##### 1857#       发表于 2024-7-20 20:47
+
+打败这个词就是脑补了还满地打滚，真难看，回小学重修语文吧
+
+
+*****
+
+####  死难者23er  
+##### 1858#       发表于 2024-7-20 21:08
+
+<blockquote>七七見奈波 发表于 2024-7-20 20:47
+打败这个词就是脑补了还满地打滚，真难看，回小学重修语文吧</blockquote>
+那请问一下我是拿这个东西给人科普了，还是专门发帖子说这是官方说法的第一个回复我的人，我就堂堂正正给他科普了，不是实力的问题
+
+*****
+
+####  七七見奈波  
+##### 1859#       发表于 2024-7-20 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65647843&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 21:08</a>
+
+那请问一下我是拿这个东西给人科普了，还是专门发帖子说这是官方说法的第一个回复我的人，我就堂堂正正给 ...</blockquote>
+你跑这儿来胡咧咧别人来纠正你说错的，你不承认说错了还打滚个没完没了你有理了是吧？
+
+
+*****
+
+####  死难者23er  
+##### 1860#       发表于 2024-7-20 21:14
+
+<blockquote>七七見奈波 发表于 2024-7-20 21:09
+你跑这儿来胡咧咧别人来纠正你说错的，你不承认说错了还打滚个没完没了你有理了是吧？ ...</blockquote>
+
+搞笑死了，第一个回复的人就已经说了不是战斗力的问题，是你们自己之后说我指的是战斗力的问题而且之后我还多次解释了，这件事情是你们自己非要我说我指的是战斗力
+
+
+*****
+
+####  七七見奈波  
+##### 1861#       发表于 2024-7-20 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65647908&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 21:14</a>
+
+搞笑死了，第一个回复的人就已经说了不是战斗力的问题，是你们自己之后说我指的是战斗力的问题而且之后我 ...</blockquote>
+还打滚是吧？你这人根本没有阅读能力和理解能力，前言不搭后语，跟你说城门楼子你说胯骨轴子，自言自语自说自话还自以为参透了什么真理，别说这楼里多少人都忍你很久了，只要是个讨论楼就没几个人不烦你你自己心里没数吗？好好跟你说话你满地打滚还觉得自己贼有理是别人嫉妒你抱团欺负你是吧？天天说喜欢芙蕾，结果抱着个角色价值和塑造水平连芙蕾脚趾头都不如的三流角色钻牛角尖胡乱解读还拉踩其他角色，我再多回你一句都嫌瞎了我的电费
+
+
+*****
+
+####  死难者23er  
+##### 1862#       发表于 2024-7-20 22:53
+
+<blockquote>七七見奈波 发表于 2024-7-20 22:35
+还打滚是吧？你这人根本没有阅读能力和理解能力，前言不搭后语，跟你说城门楼子你说胯骨轴子，自言自语自 ...</blockquote>
+我就说了一句阿姑尼斯是打败了伊扎克加入指南针然后让我对前传，阿古尼斯加入指南针的剧情更加感兴趣了，之后有人问我，我也说了，要加入，但是没有这样的话，就把之前所推测的阿古尼斯进的是因为实力或者是家室的原因，全部都出现了问题，因为伊扎克这两个东西全部都在阿古尼斯之上，请问这有什么踩角色的地方吗？从头到尾都解释得很清楚，因为这个伊扎克也想加入指南针的出现之后，让我对前传更加感兴趣了，我一直都在解释是出于这个原因，只是你们自己天天咬着不放，非要说我黑扎克的实力
+
+
+*****
+
+####  死难者23er  
+##### 1863#       发表于 2024-7-20 22:56
+
+<blockquote>七七見奈波 发表于 2024-7-20 22:35
+还打滚是吧？你这人根本没有阅读能力和理解能力，前言不搭后语，跟你说城门楼子你说胯骨轴子，自言自语自 ...</blockquote>
+你不理我，最好我说了好几次了，一个我可能一辈子都碰不到一面的人，我也没什么好多说的，另外，任何一个人误会了我想法的人出现之后以后我都会把我自己真实的想法告诉他们信不信我是从来都不管的。当然你要是有机会来日本的话，我是很欢迎跟你面对面的
+
+
+*****
+
+####  magicyang1991  
+##### 1864#       发表于 2024-7-20 23:00
+
+阿古尼斯在特典里的核心剧情不就是天天想着找牛逼男朋友凸显自己，挖了露娜的墙角，终极目标萨拉派大公子阿斯兰么？这种角色本质不就是个丑角
+
+
+*****
+
+####  死难者23er  
+##### 1865#       发表于 2024-7-20 23:12
+
+<blockquote>magicyang1991 发表于 2024-7-20 23:00
+阿古尼斯在特典里的核心剧情不就是天天想着找牛逼男朋友凸显自己，挖了露娜的墙角，终极目标萨拉派大公子阿 ...</blockquote>
+
+是一个丑角，但是伊扎克人物介绍出现之后，就相当于有一个实力比她，家世比她强，声望也比她强，一起想加入同一个组织，但最后的结果就是那个样样比她强的人没有进去，这还不能够让人对于福田说的要写阿古妮斯加入指南针的前传更加感兴趣吗
+
+
+*****
+
+####  magicyang1991  
+##### 1866#       发表于 2024-7-20 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65649260&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 23:12</a>
+ 是一个丑角，但是伊扎克人物介绍出现之后，就相当于有一个实力比她，家世比她强，声望也比她强，一起想加 ...</blockquote>
+还不如讲讲基拉干了啥让鸟这么死心塌地，或者阿斯兰干了啥让美玲滤镜全碎
+
+*****
+
+####  死难者23er  
+##### 1867#       发表于 2024-7-20 23:22
+
+<blockquote>magicyang1991 发表于 2024-7-20 23:20
+还不如讲讲基拉干了啥让鸟这么死心塌地，或者阿斯兰干了啥让美玲滤镜全碎 ...</blockquote>
+这个你放心，福田也说过，有一个飞鸟重新振作的前传 OVA，而且这个根据前段时间的活动，这个估计是第一个出
+
+
+*****
+
+####  死难者23er  
+##### 1868#       发表于 2024-7-20 23:12
+
+<blockquote>magicyang1991 发表于 2024-7-20 23:00
+阿古尼斯在特典里的核心剧情不就是天天想着找牛逼男朋友凸显自己，挖了露娜的墙角，终极目标萨拉派大公子阿 ...</blockquote>
+
+是一个丑角，但是伊扎克人物介绍出现之后，就相当于有一个实力比她，家世比她强，声望也比她强，一起想加入同一个组织，但最后的结果就是那个样样比她强的人没有进去，这还不能够让人对于福田说的要写阿古妮斯加入指南针的前传更加感兴趣吗
+
+*****
+
+####  magicyang1991  
+##### 1869#       发表于 2024-7-20 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65649260&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 23:12</a>
+ 是一个丑角，但是伊扎克人物介绍出现之后，就相当于有一个实力比她，家世比她强，声望也比她强，一起想加 ...</blockquote>
+还不如讲讲基拉干了啥让鸟这么死心塌地，或者阿斯兰干了啥让美玲滤镜全碎
+
+*****
+
+####  死难者23er  
+##### 1870#       发表于 2024-7-20 23:22
+
+<blockquote>magicyang1991 发表于 2024-7-20 23:20
+还不如讲讲基拉干了啥让鸟这么死心塌地，或者阿斯兰干了啥让美玲滤镜全碎 ...</blockquote>
+这个你放心，福田也说过，有一个飞鸟重新振作的前传 OVA，而且这个根据前段时间的活动，这个估计是第一个出
+
+*****
+
+####  清雨  
+##### 1871#       发表于 2024-7-21 11:57
+
+国内预计8.23上映，非凡强自估计要多点溢价了
+
+5aa7783aa1d3bd90e9a6f763659a4159.jpg
+(158.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 11:54 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/115455epfhqkzhqf2kzmfp.jpg" referrerpolicy="no-referrer">
+
