@@ -3427,3 +3427,157 @@ GTAV
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">PS+老用户喜获铁血索狗待遇，没任何续费优惠一周年了
 
+*****
+
+####  Eadric  
+##### 356#       发表于 2024-7-16 22:21
+
+不是，我港服骑砍2呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  医生狼多  
+##### 357#       发表于 2024-7-18 11:24
+
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess September will probably be a decent month since PS5 Pro is most likely going to be announced around then?'
+
+ His reply:"If it releases this year!' 
+
+
+*****
+
+####  ultraseven  
+##### 358#       发表于 2024-7-18 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+虽然今年确实没护航游戏，但是拖到2025年再出“半代”升级还不如不出了<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  clyde-wang  
+##### 359#       发表于 2024-7-18 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+今年不出…不如直接整合一下新技术到PS6算了，除非PS5想要卖8年
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  泰坦失足  
+##### 360#       发表于 2024-7-18 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+明年就是撞硬件大年了，反正我买一个NS2花点钱就满足了，不会去买PS5 Pro的
+
+
+*****
+
+####  医生狼多  
+##### 361#       发表于 2024-7-19 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+舅舅党Tom Henderson发文称，PS5 Pro的发售并未被延迟或取消，仍有望今年晚些时候发售。文章提到，开发者可于7月30日向索尼提交支持认证文件，该日期在18个月前就已敲定了。此外，9月15日后提交给索尼发行的PS5游戏都需要支持PS5 Pro。
+
+Tom Henderson还表示，自己于2023年年中收到的文件显示，PS5 Pro发布时间为2024年11月下半月。#游戏明星计划#
+
+*****
+
+####  宛若青空  
+##### 362#       发表于 2024-7-19 10:57
+
+太好了，真推迟那就有些担心了
+
+
+*****
+
+####  ultraseven  
+##### 363#       发表于 2024-7-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65633003&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-19 10:56</a>
+
+舅舅党Tom Henderson发文称，PS5 Pro的发售并未被延迟或取消，仍有望今年晚些时候发售。文章提到，开发者 ...</blockquote><blockquote>Admittingly, the more recent discussions about the PS5 Pro missing its holiday 2024 release have been fueled by <strong>my own tweet</strong>. People understandably took a relatively passive comment as if I was implying the Pro would miss its holiday 2024 release or be canceled entirely, but that isn’t the case as of the time of writing.</blockquote>
+
+什么流量打法
+
+
+*****
+
+####  医生狼多  
+##### 364#       发表于 2024-7-20 23:43
+
+NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal codename for the PS5 Pro. Standard PS5 Graphics Preset for comparison.<img src="https://p.sda1.dev/18/435a01f9fd233d2c1c79f5ee9d20d104/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  csolfans  
+##### 365#       发表于 2024-7-21 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65649555&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-20 23:43</a>
+NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal codename for the PS5  ...</blockquote>
+最低动态采样比例比由PS5的0.6 升高至 0.8 
+最后一项水体的图形质量也由high升高至ultra
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  npk7k  
+##### 366#       发表于 2024-7-22 16:31
+
+没想到ps5pro要比switch2先出
+
+
+*****
+
+####  alva8246  
+##### 367#       发表于 2024-7-22 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65650463&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-7-21 01:53</a>
+最低动态采样比例比由PS5的0.6 升高至 0.8 
+最后一项水体的图形质量也由high升高至ultra</blockquote>
+看着提升可能还不如ps4到4pro大 感觉没什么意思
+
+*****
+
+####  ナルバレック  
+##### 368#       发表于 2024-7-22 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665230&amp;ptid=2173605" target="_blank">npk7k 发表于 2024-7-22 16:31</a>
+
+没想到ps5pro要比switch2先出</blockquote>
+总得比怪物猎人荒野和侠盗猎车手6先出嘛，毕竟百分之一千要出捆绑包的
+
+
+*****
+
+####  npk7k  
+##### 369#       发表于 2024-7-22 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665312&amp;ptid=2173605" target="_blank">ナルバレック 发表于 2024-7-22 16:36</a>
+
+总得比怪物猎人荒野和侠盗猎车手6先出嘛，毕竟百分之一千要出捆绑包的</blockquote>
+switch2就没个千分之一和荒野出捆绑包嘛
+
