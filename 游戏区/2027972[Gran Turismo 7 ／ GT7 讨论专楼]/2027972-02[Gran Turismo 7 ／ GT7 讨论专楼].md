@@ -176,3 +176,116 @@ sf用追越了吗</blockquote>
 
 现在就牛的suv，马，保，B的什么时候有
 
+*****
+
+####  最后的要塞  
+##### 1859#       发表于 2024-7-22 23:17
+
+刚买了游戏，太好玩了停不下来。想请问楼里
+如果是用手柄的话体感和用摇杆哪个操控性更好？有必要一上来练手动不？
+
+
+*****
+
+####  heseran  
+##### 1860#       发表于 2024-7-22 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65669163&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-7-22 23:17</a>
+刚买了游戏，太好玩了停不下来。想请问楼里
+如果是用手柄的话体感和用摇杆哪个操控性更好？有必要一上来练 ...</blockquote>
+摇杆，有必要。
+
+
+*****
+
+####  Totokei  
+##### 1861#       发表于 2024-7-23 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65669163&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-7-22 23:17</a>
+刚买了游戏，太好玩了停不下来。想请问楼里
+如果是用手柄的话体感和用摇杆哪个操控性更好？有必要一上来练 ...</blockquote>
+手柄的话个人感觉体感还是有一定延迟，摇杆要直接很多。
+
+手动挡这块看你个人喜好，如果只有手柄想继续深入下去的话练练无妨。我平时电脑有方向盘玩GT7只有手柄的话，开自动档都能做到驾照金牌和线上计时基本金牌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最后的要塞  
+##### 1862#       发表于 2024-7-23 08:16
+
+谢谢大佬们的回复，我还想问个问题<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把握会不一样。对于想练技术有推荐的视角不？
+
+
+*****
+
+####  托米  
+##### 1863#       发表于 2024-7-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65670594&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-07-23 08:16:37</a>
+谢谢大佬们的回复，我还想问个问题
+刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把 ...</blockquote>维特尔喜欢第一人称时间，车内视角沉浸感虽然好但视野受限，车外视角适合随便玩玩的人，容易把控车身位置，但长期玩还是推荐第一人称视角
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  droglo  
+##### 1864#       发表于 2024-7-23 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65670594&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-7-23 08:16</a>
+
+谢谢大佬们的回复，我还想问个问题
+
+刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把 ...</blockquote>
+第一人称看点位会清楚一点，而且攻略都是用这个视角来做的，基本还是推荐用这个视角。
+
+其他的话，车内视角只适合VR。第三人称适合放松，边跑边观赏你的车……
+
+另外自动挡和手动挡有一点和现实开车一样，就是手动挡会更有掌控感，玩起来更带劲。
+
+
+*****
+
+####  一个陆仁贾  
+##### 1865#       发表于 2024-7-23 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65669163&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-7-22 23:17</a>
+刚买了游戏，太好玩了停不下来。想请问楼里
+如果是用手柄的话体感和用摇杆哪个操控性更好？有必要一上来练 ...</blockquote>
+其实有手柄转向辅助这个硬拖累在，体感摇杆都差不多，不过必须指出的一点是，摇杆不容易回正方向，我个人感觉至少不如体感方便，在一些u形弯v形弯甚至打滑救车这种关键时刻影响很大
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  huzhiyangqaz  
+##### 1866#       发表于 2024-7-23 19:00
+
+我感觉手柄最大的问题是不容易控制反打的度，经常反打过头
+
+有些大马力后驱出弯时需要细微反打获取抓地力，用手柄就打过头反而没抓地了
+
+
+*****
+
+####  Totokei  
+##### 1867#       发表于 2024-7-26 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1.49问题大得可以说小翻车了，有的车直接开着开着弹起来了。
+
+然后充值的米其林花纹轮胎上的尺寸直接123 45 R67这种还不如不写呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但忽略的话还是好看的
+
+<img src="https://img.saraba1st.com/forum/202407/26/002411k8903tmhhcx78999.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>馬泰拉_.jpeg</strong> (558.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 00:24 上传
+
