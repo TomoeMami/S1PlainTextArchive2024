@@ -2914,3 +2914,46 @@ https://stevenyomi.github.io/copymanga/index.min.json
 显示废弃其实还能用
 <img src="https://p.sda1.dev/18/9cd8aff78ced0d613b9a06078d626ff6/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  initium  
+##### 261#       发表于 2024-7-25 21:04
+
+韩国亿万富豪Kakao创始人金范秀被捕
+
+曾是韩国首富的金范秀被捕，导致Kakao股价周二下跌5.4%，创下近两年来最大单日跌幅。
+
+当地时间7月23日，韩国互联网巨头Kakao的亿万富豪创始人金范秀(Kim Beom-su)因涉嫌在该公司竞购韩国最大的K-pop经纪公司之一时操纵股价而被捕。
+
+检方指控Kakao在去年操纵SM娱乐公司(SM Entertainment)的股价，以阻止另一位亿万富豪房时赫(Bang Si-hyuk)的娱乐经纪公司Hybe收购SM。Kakao最终赢得了以1.25万亿韩元(9.6亿美元)收购SM娱乐35%股权的竞标，成为该公司的最大股东。该公司旗下拥有Aespa和EXO等韩国流行音乐组合。
+
+首尔南区法院周二批准了对金范秀的逮捕令，理由是担心他可能会销毁证据，有潜逃的风险。金范秀曾是韩国首富，也是Kakao的创始人，但他还没有被正式起诉。检察机关计划对金范秀进行最多20天的拘留调查，然后进行起诉。
+
+据韩国联合通讯社(Yonhap News Agency)报道，金范秀否认了这些指控，称他只是批准了对SM Entertainment股份的收购，但并未参与收购的具体方法或过程。
+
+此次逮捕导致Kakao股价周二下跌5.4%，为近两年来最大单日跌幅。该公司没有立即回复记者的置评请求。去年，Kakao首席投资官裴宰铉(Bae Jae-hyun)因涉嫌在SM Entertainment的竞购战中操纵股价而被捕。裴宰铉否认有任何不当行为，目前正因参与此案而受审。
+
+58岁的金范秀是韩国最成功的白手起家的企业家之一。在贫困中长大的金范秀在2010年推出了该国最受欢迎的即时通讯应用Kakao，并从那时起将其打造成一家互联网巨头，业务涵盖支付、银行、游戏和叫车服务。金范秀于2021年签署了“捐赠誓约”，后于2022年卸任Kakao会长，但仍然是Kakao的第一大股东。
+
+根据《福布斯》实时亿万富豪榜统计，他目前的财富为34亿美元。
+
+
+*****
+
+####  susan28  
+##### 262#       发表于 2024-7-25 22:36
+
+TachiyomiJ2K 是不是不更新了啊？
+
+mihon搜索太烂了，什么时候有一个mihonj2k？
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+*****
+
+####  乌啦啦乌啦啦乌  
+##### 263#       发表于 2024-7-26 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
