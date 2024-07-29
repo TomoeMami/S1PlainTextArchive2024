@@ -2666,3 +2666,22 @@ SD的那颗定制CPU本身就是为了高能耗比设计的，而且SteamOS的�
 
 win mini那15w就烫到不行的机身，再加上噪音，感觉还是半成品，只能说小厂也就这样了，无奈这种形态的产品大厂都不愿意做。
 
+*****
+
+####  酷乐  
+##### 1263#       发表于 2024-7-24 19:20
+
+[https://tieba.baidu.com/p/9101942193](https://tieba.baidu.com/p/9101942193)
+
+屏幕坏点不给换退
+
+
+*****
+
+####  两个字  
+##### 1264#       发表于 2024-7-26 19:59
+
+ROG的Ally X又在玩耍猴的游戏了，一代库存清掉了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALT-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
