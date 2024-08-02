@@ -3640,3 +3640,1433 @@ mvp吸墨机
 
 小笔刷滚出打工😡
 
+*****
+
+####  KBAC  
+##### 4798#       发表于 2024-7-12 10:36
+
+<img src="https://img.saraba1st.com/forum/202407/12/103503qr9rhb99cu8ytubh.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9906.jpg</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/103509djpylfxylqjfzjfx.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9907.jpg</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/103514gfvfzqu9cvl733f7.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9908.jpg</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/103525nkg7z2lnykndn822.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9909.jpg</strong> (1014.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 10:35 上传
+
+最新访谈要组七人团了，这下要结束力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  晴岚  
+##### 4799#       发表于 2024-7-12 15:33
+
+比起在意喷3不如放眼未来相信喷4会更好（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  罗克萨斯  
+##### 4800#       发表于 2024-7-12 15:44
+
+是特殊祭典么？不是的话就不参加了，正好目前还没投票，下次祭典去港服
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yanglian72  
+##### 4801#       发表于 2024-7-12 15:51
+
+这次还真是特殊祭典
+
+
+*****
+
+####  KBAC  
+##### 4802#       发表于 2024-7-12 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564127&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-7-12 15:44</a>
+是特殊祭典么？不是的话就不参加了，正好目前还没投票，下次祭典去港服
+
+—— 来自 S1Fun ...</blockquote>
+这次是，而且是前作没有本次新加的夏季祭典。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  罗克萨斯  
+##### 4803#       发表于 2024-7-12 15:58
+
+只能参加了，下次一定跳过<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋月孝三  
+##### 4804#       发表于 2024-7-12 16:22
+
+二代庆典就一个优衣库联动没打。三代庆典目前没缺过。一代缺的好像蛮多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  墨染白泉  
+##### 4805#       发表于 2024-7-13 08:24
+
+怎么准备祭是宫殿第一啊，我看投票都是游乐园最多啊。莎莎队这么能肝
+
+
+*****
+
+####  KBAC  
+##### 4806#       发表于 2024-7-13 10:56
+
+宫殿=可以在大豪斯里躺平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Humpy  
+##### 4807#       发表于 2024-7-13 11:52
+
+感觉曼曼这次又要被剃光头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  墨染白泉  
+##### 4808#       发表于 2024-7-13 21:50
+
+这次开放赢一次百倍，挑战连输两次百倍，最战犯的一集<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 4809#       发表于 2024-7-13 23:55
+
+笑死，祭典挑战开局就是100倍然后赢了拿法螺抽10连抽个了银<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  绿冰  
+##### 4810#         楼主| 发表于 2024-7-13 23:57
+
+<blockquote>墨染白泉 发表于 2024-7-13 08:24
+怎么准备祭是宫殿第一啊，我看投票都是游乐园最多啊。莎莎队这么能肝</blockquote>
+经过这几次我觉得，纯粹看平时一直玩的大佬投哪个选项的人多233
+
+
+*****
+
+####  墨染白泉  
+##### 4811#       发表于 2024-7-14 12:31
+
+挑战十倍排到金x被薄纱，下把直接排到百倍赢了，这是排到金x的补偿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI DBY2-W00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  晴岚  
+##### 4812#       发表于 2024-7-14 13:54
+
+不想打祭典回去打2代发现自己已经完全不能适应没有滚行跟登顶了……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  蓝色的眷念  
+##### 4813#       发表于 2024-7-14 17:10
+
+<img src="https://p.sda1.dev/18/c98ab005791e1dd29e62334bd0e495d4/CMP_20240714170924844.jpg" referrerpolicy="no-referrer">
+
+防守方两个新叶一个金喷，射程最远的是个金重刷。进攻方左右两边一边架一个消防栓，跟打鸭子似的，一群小短手根本没机会摸过去，被狠狠霸凌了
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4814#       发表于 2024-7-14 20:42
+
+好久没打对战，祭典用52发现已经打不到人了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  stoiorz  
+##### 4815#       发表于 2024-7-14 23:15
+
+游乐场阵营菜狗多如牛毛。选它我一定是脑子坏了。来自: iPhone客户端
+
+
+*****
+
+####  Ryuuseigun  
+##### 4816#       发表于 2024-7-14 23:34
+
+好久没玩了登上来凑个特殊祭典的热闹连输五把，我多余打开这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 4817#       发表于 2024-7-14 23:39
+
+哈哈哈，连输14把，你们谁敢与我为敌？
+
+
+*****
+
+####  Beleth  
+##### 4818#       发表于 2024-7-15 01:00
+
+怎么打到永远连一次10倍都没见过<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 4819#       发表于 2024-7-15 01:19
+
+快要赛季中更新了，每次更新公告都会对下一次更新做预告。看看这次会怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 4820#       发表于 2024-7-15 10:15
+
+鬼福赢了，特殊祭典没输过
+
+
+*****
+
+####  yanglian72  
+##### 4821#       发表于 2024-7-15 10:36
+
+曼曼太惨了
+
+
+*****
+
+####  秋月孝三  
+##### 4822#       发表于 2024-7-15 11:02
+
+对精英枪最不友好的活动<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4823#       发表于 2024-7-15 11:44
+
+打到永远就遇到一次10倍
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  laosai13  
+##### 4824#       发表于 2024-7-16 00:19
+
+月中了，是不是该更新了？沉迷老头环switch都好久没开了
+
+
+*****
+
+####  Ryuuseigun  
+##### 4825#       发表于 2024-7-16 03:14
+
+螃蟹加速活动还挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这种强力螃蟹能不能常规
+
+
+*****
+
+####  KBAC  
+##### 4826#       发表于 2024-7-16 09:24
+
+今天没有赛季中更新预告，是不是要等7月20号西日本的比赛打完啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+感觉经济特区和大峡谷的涂地和区域还是欠一个大改。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  shirolin  
+##### 4827#       发表于 2024-7-16 11:07
+
+翻译了3组偶像的访谈。
+https://splatoon.com.cn/page/55
+
+<img src="https://img.saraba1st.com/forum/202407/16/110601ruzt2w2yc7ojtey7.jpg" referrerpolicy="no-referrer">
+
+<strong>18401b75-810e-4057-8f62-412d5bb77d67.jpg</strong> (342.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 11:06 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KBAC| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  绿冰  
+##### 4828#         楼主| 发表于 2024-7-17 09:13
+
+7月18日更新8. 1. 0
+
+https://support.nintendo.com/jp/switch/software_support/av5ja/810.html
+
+
+*****
+
+####  yanglian72  
+##### 4829#       发表于 2024-7-17 09:24
+
+次回の更新データは、現在開催中のシーズンが終了する時期に配信します。その更新データでは、一部のブキに絞って、能力を下げることも含んだ対戦バランスの変更を行う予定です。
+
+没新东西了，终结。
+
+*****
+
+####  KBAC  
+##### 4830#       发表于 2024-7-17 09:25
+
+ 本帖最后由 KBAC 于 2024-7-17 09:26 编辑 
+
+没说不等于没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+img_9941.png
+(97.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/17/092433mmyebmy7a04muu0b.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 4831#       发表于 2024-7-17 09:35
+
+以前季中更新是这种说法吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 4832#       发表于 2024-7-17 09:39
+
+近战武器全加强，蹲b又要多了
+
+
+*****
+
+####  绿冰  
+##### 4833#         楼主| 发表于 2024-7-17 09:43
+
+<blockquote>oi99o 发表于 2024-7-17 09:35
+以前季中更新是这种说法吗
+
+论坛助手,iPhone</blockquote>
+前两个赛季也都预告赛季末还要调整啥了啊
+
+*****
+
+####  yanglian72  
+##### 4834#       发表于 2024-7-17 09:46
+
+以前明确会说有新赛季的相关更新。
+
+次回の更新データは、「2024夏 Sizzle Season」のための機能追加やブキのバランス変更を中心として、現在開催中のシーズンが終了する時期に配信予定です。
+
+
+*****
+
+####  KBAC  
+##### 4835#       发表于 2024-7-17 10:09
+
+问题是现在原定的承诺期已经到了，官宣新赛季肯定得正式官宣，又不可能搁这种地方先提一嘴。所以一切都还不好说。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  秋月孝三  
+##### 4836#       发表于 2024-7-17 10:16
+
+FF自带主墨1.1了，感觉有戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Humpy  
+##### 4837#       发表于 2024-7-17 12:12
+
+能不能把4k长热电锯削一下然后强化下文森刮水刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  墨染白泉  
+##### 4838#       发表于 2024-7-17 13:42
+
+电锯香槟感觉削的差不多了，毕竟别人上手难度也高，强度高点能接受。长热这种是个人就能玩的，下次更新必须重锤出击
+
+
+*****
+
+####  darkddragon  
+##### 4839#       发表于 2024-7-17 13:52
+
+FF问题不在省墨上啊，顺便金银喷加强什么鬼，比碳刷系强化还要粪<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stoiorz  
+##### 4840#       发表于 2024-7-17 14:05
+
+99精英枪，延迟高的时候中远程武器还能挽救一下，常用精英枪感觉还不错。
+
+
+*****
+
+####  shirolin  
+##### 4841#       发表于 2024-7-17 14:26
+
+Ver.8.1.0更新内容
+
+<img src="https://img.saraba1st.com/forum/202407/17/142617aknds69ds6fmlqd3.png" referrerpolicy="no-referrer">
+
+<strong>Image_1721184556420.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/17/142617iagjww7q4dwlwbjg.png" referrerpolicy="no-referrer">
+
+<strong>Image_1721197379833.png</strong> (537.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 14:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  墨染白泉  
+##### 4842#       发表于 2024-7-17 17:20
+
+又祭典了，看来最终祭典得9月
+
+*****
+
+####  shirolin  
+##### 4843#       发表于 2024-7-17 17:20
+
+<img src="https://img.saraba1st.com/forum/202407/17/172013q2ya6xb2ryjjp656.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f32927b8c2f6a8b5e3924ab5c5d02e7e.webp</strong> (149.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 17:20 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  oi99o  
+##### 4844#       发表于 2024-7-17 17:22
+
+好无聊的题目啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  KBAC  
+##### 4845#       发表于 2024-7-17 17:42
+
+回归初心了属于，这个主题是喷1日服第一次祭典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4846#       发表于 2024-7-17 17:42
+
+原来最终祭典还得9月啊，又要坐一次牢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 4847#       发表于 2024-7-17 17:49
+
+他这选项只有意面，不得劲。选项是noodles的话我就选了
+
+<img src="https://img.saraba1st.com/forum/202407/17/174924ybvhialnczua1zvh.jpg" referrerpolicy="no-referrer">
+
+<strong>28rlhlsa6zwcszpjf7x6ieuce.jpg</strong> (320.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 17:49 上传
+
+*****
+
+####  罗克萨斯  
+##### 4848#       发表于 2024-7-17 17:53
+
+时间过得真快，喷三就这么谢幕了，也没说第二贴牌会不会有，往后就是怀旧服了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stoiorz  
+##### 4849#       发表于 2024-7-17 17:53
+
+保送曼曼一次胜利吗？会有几个霓虹金不选米饭哦。
+
+
+*****
+
+####  墨染白泉  
+##### 4850#       发表于 2024-7-17 17:58
+
+他配图是拉面的话估计也有霓虹金选，但配的是意面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DeltaStriker  
+##### 4851#       发表于 2024-7-17 18:26
+
+还用证明吗 玩了两年都有数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  stoiorz  
+##### 4852#       发表于 2024-7-17 18:30
+
+想体验内战就选大米饭吧。估计投票压倒性胜利，胜率嘛，其实人越多不一定会赢。比如本次的游乐园。
+
+内战刷海螺也不错？
+
+
+*****
+
+####  shirolin  
+##### 4853#       发表于 2024-7-17 19:11
+
+祭典部门积分修改这么多次到现在，其实已经相对合理了(只是改得太晚)，现在除了投票数以外的其它部门真的很难猜名次。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  罗克萨斯  
+##### 4854#       发表于 2024-7-17 19:27
+
+Naegora最近直播几乎都是用贴牌轻加，还想看他现环境的贴牌鹦鹉螺和贴牌审查者用法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+轻加在中排里真没啥竞争力，射程被同组一大堆武器克制，射击时间也短，除了Naegora真没见其他上位势会把它当常用武器，感觉是喷4最有必要加强的武器之一
+
+
+*****
+
+####  秋月孝三  
+##### 4855#       发表于 2024-7-17 19:53
+
+轻加马上就要作为罩子启动机王者归来了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Humpy  
+##### 4856#       发表于 2024-7-17 20:03
+
+真的很想选米饭，因为这三里我最爱吃米饭。
+
+但是不想再打了半天都是内战了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 4857#       发表于 2024-7-17 21:00
+
+我就等最终更新之后大润会不会常驻，或者金工规律性定期
+
+3个333金名牌现在完全看不到终点
+
+
+*****
+
+####  KBAC  
+##### 4858#       发表于 2024-7-19 11:33
+
+碳刷加强加上逆天延迟补偿，被碳刷从中刷的距离一确了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  oi99o  
+##### 4859#       发表于 2024-7-19 12:05
+
+grand festival，不是final<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 4860#       发表于 2024-7-19 12:08
+
+还真是过去现在未来
+
+*****
+
+####  秋月孝三  
+##### 4861#       发表于 2024-7-19 12:10
+
+一代老害二代老害三代小鬼是吧
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4862#       发表于 2024-7-19 12:17
+
+xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罗克萨斯  
+##### 4863#       发表于 2024-7-19 12:21
+
+四代会增加种族吗？我要新的美少女海产！
+
+
+*****
+
+####  Ryuuseigun  
+##### 4864#       发表于 2024-7-19 12:23
+
+这就是最终了吧还特意做了个看起来很隆重的宣传片，结果影响下一代的的惯例来看选现在是不是就有二代优化重置玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yanglian72  
+##### 4865#       发表于 2024-7-19 12:26
+
+猜测选过去的人最多，初代偶像人气太高了
+
+*****
+
+####  lilod  
+##### 4866#       发表于 2024-7-19 12:31
+
+大 N 老师：我的思念从来没有变过！
+
+*****
+
+####  Bruce33  
+##### 4867#       发表于 2024-7-19 12:31
+
+我选过去
+
+*****
+
+####  Dedalus  
+##### 4868#       发表于 2024-7-19 12:32
+
+谁被三代偶像代言谁输
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 4869#       发表于 2024-7-19 12:32
+
+<img src="https://img.saraba1st.com/forum/202407/19/123214zlsk80c0suy0uus1.jpg" referrerpolicy="no-referrer">
+
+<strong>weibo_50578239793417071.jpg</strong> (253.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 12:32 上传
+
+<img src="https://img.saraba1st.com/forum/202407/19/123214mkf16h1rufwwkyhy.jpg" referrerpolicy="no-referrer">
+
+<strong>weibo_50578254662213151.jpg</strong> (369.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 12:32 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  darkddragon  
+##### 4870#       发表于 2024-7-19 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阵营祭典也来了，真没活了
+
+*****
+
+####  Dedalus  
+##### 4871#       发表于 2024-7-19 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65634081&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-7-19 12:32</a>
+—— 来自 S1Fun</blockquote>
+妈的任天堂对我们秩序/未来党太不公平<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+二代已经输一次了三代跟这仨一队这怎么带啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  maomaoying  
+##### 4872#       发表于 2024-7-19 12:39
+
+没有勇气选择未来，还是过去吧
+
+
+*****
+
+####  raii  
+##### 4873#       发表于 2024-7-19 12:48
+
+就算他说是grand，其实意义就跟喷2的final一样的
+
+喷2final之后也搞过祭典，基本都是复刻
+
+喷3只不过生命周期还要拉一拉，后面可能打算出一些新祭典，所以不好意思再叫final，但是决定下一作走向的肯定就是它没跑的
+
+
+*****
+
+####  KBAC  
+##### 4874#       发表于 2024-7-19 12:54
+
+我想选过去，最好过去到大涂地战争那个时候，我要看血流成河<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  绿冰  
+##### 4875#         楼主| 发表于 2024-7-19 13:02
+
+<blockquote>yanglian72 发表于 2024-7-19 12:26
+猜测选过去的人最多，初代偶像人气太高了</blockquote>
+我猜铁定最少而且是少很多，人气说实在就那样，和2代硬碰硬是打不过的（欧美人气很高）
+
+过去这个主题更是和斯普拉遁的大基调很不搭
+
+*****
+
+####  墨染白泉  
+##### 4876#       发表于 2024-7-19 13:07
+
+一代给过去估计就垫了，二代和三代在现在的得分规则下谁赢不好说
+
+
+*****
+
+####  君往何处  
+##### 4877#       发表于 2024-7-19 13:21
+
+从背景设定上来说，人类的未来就是splatoon的过去，splatoon已经没有未来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+建议下作直接换种族
+
+
+*****
+
+####  raii  
+##### 4878#       发表于 2024-7-19 13:29
+
+<img src="https://img.saraba1st.com/forum/202407/19/132927xz8kt2pkknkk2hrk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240719132916.png</strong> (40.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 13:29 上传
+
+不言而喻
+
+
+*****
+
+####  KBAC  
+##### 4879#       发表于 2024-7-19 13:58
+
+现在赢了的话，可以名正言顺的出喷3DX，问就是玩家的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  shirolin  
+##### 4880#       发表于 2024-7-19 14:18
+
+<img src="https://img.saraba1st.com/forum/202407/19/141759ylzlky77vqbzquml.jpg" referrerpolicy="no-referrer">
+
+<strong>d26488d1-9ae9-459c-a81a-126b34e9d940.jpg</strong> (154.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 14:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  shirolin  
+##### 4881#       发表于 2024-7-19 14:18
+
+<img src="https://img.saraba1st.com/forum/202407/19/141824ewvacsz9sae8awjc.png" referrerpolicy="no-referrer">
+
+<strong>Image_1721368309824.png</strong> (425.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 14:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  墨染白泉  
+##### 4882#       发表于 2024-7-19 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65634952&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-7-19 14:18</a>
+—— 来自 S1Fun</blockquote>
+一个宣传图3队钕铜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月孝三  
+##### 4883#       发表于 2024-7-19 14:40
+
+饭田本来就是姛，这个不意外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 4884#       发表于 2024-7-19 15:18
+
+过去的斯普拉遁就让年轻的鱿鱼干和芥末章鱼当偶像吧，正好也是鱿鱼MC章鱼DJ，男版姬饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  幽香  
+##### 4885#       发表于 2024-7-19 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  来看你  
+##### 4886#       发表于 2024-7-19 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">宋丹丹昨天今天和明天
+
+
+*****
+
+####  KBAC  
+##### 4887#       发表于 2024-7-19 19:40
+
+<img src="https://img.saraba1st.com/forum/202407/19/193825hyrvxmjlesfmxybe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_9952.jpeg</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 19:38 上传
+
+重桶玩啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，看回放这600多p甚至有九成都没涂在区域里
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  hisousihou  
+##### 4888#       发表于 2024-7-19 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">玛德饭田和曼曼两位黑皮大雷也太涩了
+
+
+*****
+
+####  秋月孝三  
+##### 4889#       发表于 2024-7-20 00:11
+
+既然野上都明说8月底要砍武器，那么预测一下现t0的被害者名单好了：
+
+不砍你们说明ika研已经没人玩游戏了：无印香槟、无印中桶、长泡；
+
+挨刀也别抱怨，这是你们应得的：无印🍣、无印铅笔、无印52；
+
+野上通过抛硬币决定你们的死活：无印双枪、黑zap；
+
+肘赢野上，成为喷3赢家：无印电锯、无印鹦鹉螺。
+
+
+*****
+
+####  罗克萨斯  
+##### 4890#       发表于 2024-7-20 09:21
+
+不管是WIFI还是有线，都平等地享有这离谱的延迟补偿，研究所做个人吧，4代一定要把网络整好，尤其是代码层面的缺陷真得解决
+
+【【个人网络热点·无线WiFi·有线以太网】验证了由于线路不同导致的同步偏差（延迟）【联机测试·斯普拉遁3·喷射战士·任天堂NS·喷喷·はなさく】-哔哩哔哩】 https://b23.tv/NyOHWwH
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  苍蓝之枪  
+##### 4891#       发表于 2024-7-20 14:38
+
+唉，R键又不行了，惯取做不了了......
+
+
+*****
+
+####  墨染白泉  
+##### 4892#       发表于 2024-7-20 14:41
+
+这次一本估计220
+
+
+*****
+
+####  maomaoying  
+##### 4893#       发表于 2024-7-20 17:46
+
+大王乌贼真的sm了，两个大王乌贼完全打不动塔
+
+
+*****
+
+####  苍蓝之枪  
+##### 4894#       发表于 2024-7-21 14:19
+
+团工打不来，永远不知道别人的想法是啥
+
+
+*****
+
+####  墨染白泉  
+##### 4895#       发表于 2024-7-21 20:39
+
+<img src="https://img.saraba1st.com/forum/202407/21/203932fwl255n3asx3d3cc.png" referrerpolicy="no-referrer">
+
+<strong>Image_1721565111641.png</strong> (45.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 20:39 上传
+
+这不得封个斯普拉遁仙人
+
+
+*****
+
+####  Junakr  
+##### 4896#       发表于 2024-7-21 21:34
+
+<img src="https://img.saraba1st.com/forum/202407/21/213334p93ff739sw9sfc99.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GS8U2KfbMAA1SqR.jpeg</strong> (144.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 21:33 上传
+
+[https://x.com/Dr_Mice_/status/1814692102024147288](https://x.com/Dr_Mice_/status/1814692102024147288)
+
+蛮颓也要蓝屏。
+
+*****
+
+####  KBAC  
+##### 4897#       发表于 2024-7-21 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65656551&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-7-21 20:39</a>
+这不得封个斯普拉遁仙人</blockquote>
+等级有上限啊……好奇这人要是把所有的武器券拿去抽扭蛋假如以后再出新贴牌怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  晴岚  
+##### 4898#       发表于 2024-7-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65657233&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-7-21 21:37</a>
+等级有上限啊……好奇这人要是把所有的武器券拿去抽扭蛋假如以后再出新贴牌怎么办
+
+论坛助手,iPhone ...</blockquote>
+像2代一样给转生。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KBAC  
+##### 4899#       发表于 2024-7-22 00:15
+
+【【电动马达滚筒】谈谈8.1.0版本平衡新更新后的重刷-哔哩哔哩】 https://b23.tv/qkkoK7l
+笑死重刷现在一格多距离曲射100%漏墨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 4900#       发表于 2024-7-22 10:23
+
+打了几把226蛋以为稳一本就没打了，结果团工一本227<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卷王太多惹
+
+
+*****
+
+####  carroy  
+##### 4901#       发表于 2024-7-22 10:59
+
+重刷爱好者安详地离开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+多加几滴墨不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 4902#         楼主| 发表于 2024-7-22 11:03
+
+<blockquote>KBAC 发表于 2024-7-21 21:37
+等级有上限啊……好奇这人要是把所有的武器券拿去抽扭蛋假如以后再出新贴牌怎么办
+
+论坛助手,iPhone ...</blockquote>
+
+新赛季好像是会送一张劵，不过本来武器劵就不跟等级挂钩啊，看的是武器等级
+
+*****
+
+####  コーヒー  
+##### 4903#       发表于 2024-7-22 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661442&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-7-22 10:23</a>
+
+打了几把226蛋以为稳一本就没打了，结果团工一本227卷王太多惹</blockquote>
+看到几个好友都刷到了250左右，一个甚至把名字都改成了249。
+
+我估计刷到心态爆炸了。
+
+
+*****
+
+####  KBAC  
+##### 4904#       发表于 2024-7-22 12:29
+
+ 本帖最后由 KBAC 于 2024-7-22 12:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661963&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-7-22 11:03</a>
+新赛季好像是会送一张劵，不过本来武器劵就不跟等级挂钩啊，看的是武器等级 ...</blockquote>
+怎么不挂钩，武器券现在日常就两个获取方式，一个是等级升一级给一张，另一个是武器熟练度升到一颗星的时候给一张。如果不像二代那样满级可以从1级重来那武器券数量就是有限的，抽奖抽完了就没了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  绿冰  
+##### 4905#         楼主| 发表于 2024-7-22 14:03
+
+<blockquote>KBAC 发表于 2024-7-22 12:29
+怎么不挂钩，武器券现在日常就两个获取方式，一个是等级升一级给一张，另一个是武器熟练度升到一颗星的时 ...</blockquote>
+等级升级给的吗，我还真没注意……
+
+
+*****
+
+####  幽香  
+##### 4906#       发表于 2024-7-22 18:25
+
+还好昨天瞟了一眼推看到230前5%又打了四五把遇到给力的野人队友上了230
+
+
+*****
+
+####  stygianlunar  
+##### 4907#       发表于 2024-7-22 20:49
+
+总感觉，这过去、现在与未来的主题会整出一出“相链接的未来，以及至12000年前的你（玩家）”的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+预料之中，这一代一直强调过去和未来这个元素呢，说起来，老任这几年几个IP似乎都是这个主题啊，朱紫、XB、卡比、喷喷、塞尔达，都有这个元素，也就马没有涉及这个主题了。我都怀疑老任不会给下一代主机的主题就是过去和未来吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，然后给你整个任天堂宇宙出来
+
+
+*****
+
+####  苍蓝之枪  
+##### 4908#       发表于 2024-7-22 23:29
+
+这团工W2的光蝇都能玩全灭的，感觉所有人的都有自己的想法，我拿到刷子也不知道该堵哪了
+
+
+*****
+
+####  +_+  
+##### 4909#       发表于 2024-7-23 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65663020&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-7-22 12:29</a>
+
+怎么不挂钩，武器券现在日常就两个获取方式，一个是等级升一级给一张，另一个是武器熟练度升到一颗星的时 ...</blockquote>
+新赛季一定送一张，不会卡死
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 4910#       发表于 2024-7-24 08:30
+
+<img src="https://img.saraba1st.com/forum/202407/24/083050ijncni2n8ej5nbj4.jpg" referrerpolicy="no-referrer">
+
+<strong>006BjBn1ly1hryt04vpt5j33341qi1kx.jpg</strong> (45.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 08:30 上传
+
+
+*****
+
+####  罗克萨斯  
+##### 4911#       发表于 2024-7-24 08:34
+
+喷了，连铭牌都能回收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4912#       发表于 2024-7-24 15:46
+
+这几个白皮猪好死
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  DeltaStriker  
+##### 4913#       发表于 2024-7-24 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65667729&amp;ptid=2150634" target="_blank">stygianlunar 发表于 2024-7-22 20:49</a>
+总感觉，这过去、现在与未来的主题会整出一出“相链接的未来，以及至12000年前的你（玩家）”的节奏
+
+预料 ...</blockquote>
+任斗:谁在叫我
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  liekong  
+##### 4914#       发表于 2024-7-24 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679760&amp;ptid=2150634" target="_blank">蚊仔蚊仔蚊仔 发表于 2024-7-24 08:30</a></blockquote>
+这具体是做了啥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Humpy  
+##### 4915#       发表于 2024-7-24 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687145&amp;ptid=2150634" target="_blank">liekong 发表于 2024-7-24 21:19</a>
+这具体是做了啥
+
+—— 来自 S1Fun</blockquote>
+我记得好像是管黑人叫monkey，还发过歧视亚裔的图片来着
+
+
+*****
+
+####  秋月孝三  
+##### 4916#       发表于 2024-7-24 22:05
+
+西区预选第四也有队员被ban无法出场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raii  
+##### 4917#       发表于 2024-7-24 23:51
+
+ 本帖最后由 raii 于 2024-7-24 23:53 编辑 
+
+很适合当下喷喷民度的新闻，是该让研究所多感受下，最好加大力度
+
+西日本第三的あんこ的队友因为好友申请嘲讽的事情被大N发现被取消资格
+
+↓
+
+のりすけ的队伍顺延递补获得资格
+
+↓
+
+のりすけ队友里有ちかし
+
+↓
+
+马修举报ちかし五年前在推特发歧视言论
+
+↓
+
+ちかし光速道歉    今ここ
+
+
+*****
+
+####  martinium  
+##### 4918#       发表于 2024-7-25 11:11
+
+这游戏机制筛选出来的玩家不是佛系就是暴躁哥，竞技又筛选一遍，那自然都是暴躁哥。
+北美锦标赛当场嘲讽已经是家常便饭，这帮人还要硬掰扯成心理战术的一环，我听到这种说辞就觉得挺恶心的。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  绿冰  
+##### 4919#         楼主| 发表于 2024-7-25 11:15
+
+事情能搞大到取消资格还是没想到
+
+
+*****
+
+####  carroy  
+##### 4920#       发表于 2024-7-26 00:59
+
+草 打工平均通关wave数2以下是什么地狱啊
+
+
+*****
+
+####  KBAC  
+##### 4921#       发表于 2024-7-27 16:26
+
+<img src="https://img.saraba1st.com/forum/202407/27/162443c9i9moz6lw98tchr.jpg" referrerpolicy="no-referrer">
+
+<strong>GLHL_UEWsAAbWwF.jpg</strong> (341.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 16:24 上传
+
+把名牌改成这个吧，比原来的好看，原来的种族歧视这个还有只黑鱿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 4922#       发表于 2024-7-27 17:14
+
+<img src="https://img.saraba1st.com/forum/202407/27/171431ui3mxr8p39zruz81.png" referrerpolicy="no-referrer">
+
+<strong>img_9990.png</strong> (444.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 17:14 上传
+
+笑死，你也Jackpot<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  清浦刹那  
+##### 4923#       发表于 2024-7-27 17:41
+
+破船+涨潮+大嘴……一张嘴半个图没了
+
+垃圾游戏嗼~
+
+
+*****
+
+####  苍蓝之枪  
+##### 4924#       发表于 2024-7-27 21:54
+
+随便打打700多算了
+
+
+*****
+
+####  墨染白泉  
+##### 4925#       发表于 2024-7-27 22:03
+
+现在小枪打伞不会打了，扔雷也爆不掉伞面。正面打伞时又绕不过去
+
+
+*****
+
+####  秋月孝三  
+##### 4926#       发表于 2024-7-28 10:13
+
+让3代玩家体验一下2代伞的8成功力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 4927#       发表于 2024-7-28 10:23
+
+我用加特林也打不过伞，一管子都打不爆伞面，灵活性还不如伞
+
+
+*****
+
+####  raii  
+##### 4928#       发表于 2024-7-28 16:57
+
+JACKPOT已经被大N实施除忆诅咒了，相关比赛提到他们的公式视频、推、网页都404了，大赛的参赛选手里面也删掉他们队了，NS新闻里面领冠军立牌的条目也被隐藏了，换句话说现在这个名牌暂时绝版，而30号更新以后就会被替换成别的图案
+
+
+*****
+
+####  苍蓝之枪  
+##### 4929#       发表于 2024-7-28 18:51
+
+唉，开门工是不能停的啊，休息了半小时再排无败立马没了
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4930#       发表于 2024-7-30 15:24
+
+昨天配了套回归+复活+隐跳+0.5行动强化的长热泡，发现这武器真的挺难玩，离太远打不到靠太近又不能确保直击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有玩长热玩的比较好的大佬教教
+
