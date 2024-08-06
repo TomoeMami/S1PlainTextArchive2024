@@ -1477,3 +1477,96 @@ jcb 测试的2日元没事, 买点的时候就不成了. 有意思.
 
 其实日亚也早就开始了，直接搜索它会屏蔽一些东西，但用Google或购买记录可以搜出来，
 
+*****
+
+####  shamal0324  
+##### 143#       发表于 2024-8-3 00:05
+
+<img src="https://img.saraba1st.com/forum/202408/03/000428i4gkas4gqepks4q7.jpg" referrerpolicy="no-referrer">
+
+<strong>Untitled.jpg</strong> (129.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-3 00:04 上传
+
+来晚了，美帝党怎么在dlsite支付？把dlsite语言改成中文之后出现了这么一个页面，靠谱吗？汇率坑吗？
+
+在某宝搜到了bc充值，这种靠谱吗？求指路<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  圈量子  
+##### 144#       发表于 2024-8-3 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780464&amp;ptid=2178442" target="_blank">shamal0324 发表于 2024-8-3 00:05</a>
+来晚了，美帝党怎么在dlsite支付？把dlsite语言改成中文之后出现了这么一个页面，靠谱吗？汇率坑吗？
+
+ ...</blockquote>
+人在美国的话用dl-pay.com就行，跳转paypal，自己注意一下用的什么货币
+你这个页面我没见过
+
+
+*****
+
+####  shamal0324  
+##### 145#       发表于 2024-8-3 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780483&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-8-3 00:09</a>
+
+人在美国的话用dl-pay.com就行，跳转paypal，自己注意一下用的什么货币
+
+你这个页面我没见过 ...</blockquote>
+好好，把语言改成English就弹出来了，我琢磨一下
+
+
+*****
+
+####  shamal0324  
+##### 146#       发表于 2024-8-3 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780483&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-8-3 00:09</a>
+
+人在美国的话用dl-pay.com就行，跳转paypal，自己注意一下用的什么货币
+
+你这个页面我没见过 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/03/001928mp7aiwc9pe9y2yzm.png" referrerpolicy="no-referrer">
+
+<strong>Weixin Image_20240802111853.png</strong> (38.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-3 00:19 上传
+
+是这里吗？选USD还是JPY啊
+
+
+*****
+
+####  圈量子  
+##### 147#       发表于 2024-8-3 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780553&amp;ptid=2178442" target="_blank">shamal0324 发表于 2024-8-3 00:19</a>
+是这里吗？选USD还是JPY啊</blockquote>
+对，我记得paypal自带的汇率比银行汇率坑，买的时候可以看一下实时汇率，选个能便宜一点的
+
+
+*****
+
+####  shamal0324  
+##### 148#       发表于 2024-8-3 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780580&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-8-3 00:25</a>
+
+对，我记得paypal自带的汇率比银行汇率坑，买的时候可以看一下实时汇率，选个能便宜一点的 ...</blockquote>
+搞定了，选了日元支付，天无绝人之路啊，谢谢潭友
+
+
+*****
+
+####  KarsusNeko  
+##### 149#       发表于 2024-8-3 16:23
+
+最近换了jcb，已经完全无障碍了。欧米鬼畜真的不做人。
+
