@@ -1136,3 +1136,146 @@ pc的优化完全是灾难等级
 
 2024-7-16 10:08 上传
 
+*****
+
+####  魂淡融  
+##### 115#       发表于 2024-7-31 14:39
+
+三点更新，DJ和水妹p要来哩
+
+
+*****
+
+####  vava  
+##### 116#       发表于 2024-7-31 15:03
+
+ 本帖最后由 vava 于 2024-7-31 15:05 编辑 
+
+刚把终极兔挂出来，不知不觉通行证都要刷满级了
+
+
+*****
+
+####  max3226  
+##### 117#       发表于 2024-7-31 16:47
+
+现在回头看真是走了不少弯路，其实很多版本答案开局就给你了，如果有人想入坑，首先开局不要选牛牛这个中后期完全不知所谓的玩意儿，直接选莱皮克就好，普通就已经是爆发T0的角色，几乎可以秒任何BOSS，大地图、通关、副本刷刷部分，80%交给兔兔就好，哨所靠沙恩，开密码箱靠恩佐，还有万金油武器雷暴牢笼，都是前期很容易就得到的好货。而之前大家都吹的格莱名不副实，靠BUG撑输出续航，掉率还低，简直版本陷阱
+
+
+*****
+
+####  vava  
+##### 118#       发表于 2024-7-31 21:12
+
+LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yjmy705  
+##### 119#       发表于 2024-8-1 10:54
+
+刚玩，想问下满大街的终极邦尼都是肝出来还是氪出来的？ 
+
+肝的话我看了下合成链还挺复杂的，很多材料掉率也低，中后期要肝到什么程度啊？
+
+氪的话，单角色就500多，这……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魂淡融  
+##### 120#       发表于 2024-8-1 11:22
+
+<blockquote>yjmy705 发表于 2024-8-1 10:54
+刚玩，想问下满大街的终极邦尼都是肝出来还是氪出来的？ 
+
+肝的话我看了下合成链还挺复杂的，很多材料掉率也 ...</blockquote>
+材料看着难整，其实除了正负离子这种特别阴间的。绝大部分都有高效率刷法。
+
+终极邦尼的总图是剧情直接给的，只要刷三个配件就可以，终极邦尼应该是仅次于终极水妹第二好刷的终极甲。
+
+
+*****
+
+####  vava  
+##### 121#       发表于 2024-8-1 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65762949&amp;ptid=2153578" target="_blank">yjmy705 发表于 2024-8-1 10:54</a>
+
+刚玩，想问下满大街的终极邦尼都是肝出来还是氪出来的？ 
+
+肝的话我看了下合成链还挺复杂的，很多材料掉率也 ...</blockquote>
+我周末2天刷齐终极兔，不是很肝
+
+
+*****
+
+####  saber6146  
+##### 122#       发表于 2024-8-1 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">看样子这是好起来了吗，请问有没有什么入坑视频可以看的
+
+
+*****
+
+####  魂淡融  
+##### 123#       发表于 2024-8-1 17:11
+
+<blockquote>saber6146 发表于 2024-8-1 16:40
+看样子这是好起来了吗，请问有没有什么入坑视频可以看的</blockquote>
+开服这一个月，更新我觉得还挺拟人的，比全境2当年好太多了。
+
+针对一些吐槽比较多的点都修改了，减负不少。但一些玩家发现的收益很高的bug和机制也改的很快。
+
+入坑搜一些最近发布的入坑或者开荒攻略应该都可以
+
+
+*****
+
+####  saber6146  
+##### 124#       发表于 2024-8-1 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766677&amp;ptid=2153578" target="_blank">魂淡融 发表于 2024-8-1 17:11</a>
+
+开服这一个月，更新我觉得还挺拟人的，比全境2当年好太多了。
+
+针对一些吐槽比较多的点都修改了，减负不少 ...</blockquote>
+感谢指导<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魂淡融  
+##### 125#       发表于 2024-8-3 09:30
+
+凌晨热更新把凯尔秒杀和0cd哨所修复了，还没刷就无了
+
+<img src="https://img.saraba1st.com/forum/202408/03/092940vhzg5pqx0xfpypqf.jpg" referrerpolicy="no-referrer">
+
+<strong>57B153C2F6B46A25E71E19DE03FE074F.jpg</strong> (103.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-3 09:29 上传
+
+
+*****
+
+####  三郷雫  
+##### 126#       发表于 2024-8-3 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">可以下回来了吗？瑟瑟含量有所提升吗这一个月
+
+
+*****
+
+####  vava  
+##### 127#       发表于 2024-8-3 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65782389&amp;ptid=2153578" target="_blank">三郷雫 发表于 2024-8-3 11:17</a>
+
+可以下回来了吗？瑟瑟含量有所提升吗这一个月</blockquote>
+出泳装了
+
