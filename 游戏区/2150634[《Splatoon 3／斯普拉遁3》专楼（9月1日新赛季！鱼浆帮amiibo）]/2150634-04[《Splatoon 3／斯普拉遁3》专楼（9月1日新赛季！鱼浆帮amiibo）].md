@@ -5070,3 +5070,208 @@ JACKPOT已经被大N实施除忆诅咒了，相关比赛提到他们的公式视
 
 昨天配了套回归+复活+隐跳+0.5行动强化的长热泡，发现这武器真的挺难玩，离太远打不到靠太近又不能确保直击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有玩长热玩的比较好的大佬教教
 
+*****
+
+####  shirolin  
+##### 4931#       发表于 2024-8-2 17:38
+
+8月暑期活动一览：
+
+<img src="https://img.saraba1st.com/forum/202408/02/173824yq16b9h1dbi6ggax.jpg" referrerpolicy="no-referrer">
+
+<strong>f3c822f2-d3dc-4380-b9f1-947ce44b0b78.jpg</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 17:38 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  shirolin  
+##### 4932#       发表于 2024-8-2 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65776783&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-8-2 17:38</a>
+8月暑期活动一览：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">啊，西日本代表决胜赛打成预选赛了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  苍蓝之枪  
+##### 4933#       发表于 2024-8-3 20:15
+
+这次的问号位一旦随机到狙就大概率翻车，这是什么神奇适配?
+
+
+*****
+
+####  carroy  
+##### 4934#       发表于 2024-8-3 23:55
+
+ 本帖最后由 carroy 于 2024-8-3 23:59 编辑 
+
+去杭州任O：大家线下组队打工真有趣啊 喷瘾犯了让我工
+
+回家开喷：笑了 打的什么玩意<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+看来是有朋友好玩不是喷好玩
+
+顺便喷喷实火
+
+整个任O 1/3塞尔达1/3宝可梦1/3喷喷
+
+买了很多时尚小垃圾 很满足😌
+
+
+*****
+
+####  墨染白泉  
+##### 4935#       发表于 2024-8-4 17:35
+
+比赛开始了
+
+
+*****
+
+####  墨染白泉  
+##### 4936#       发表于 2024-8-4 17:49
+
+皮勇这把吸墨机掩护鱼虎翻盘太帅了
+
+
+*****
+
+####  墨染白泉  
+##### 4937#       发表于 2024-8-4 18:03
+
+区域还是得铅笔
+
+
+*****
+
+####  墨染白泉  
+##### 4938#       发表于 2024-8-4 18:10
+
+这图鱼虎连续两把左路翻盘了
+
+
+*****
+
+####  shirolin  
+##### 4939#       发表于 2024-8-4 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793985&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-8-4 17:49</a>
+皮勇这把吸墨机掩护鱼虎翻盘太帅了</blockquote>
+直呼牛逼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  墨染白泉  
+##### 4940#       发表于 2024-8-4 18:25
+
+太刀在这些t0武器面前还是有点小丑
+
+
+*****
+
+####  shirolin  
+##### 4941#       发表于 2024-8-4 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794275&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-8-4 18:25</a>
+太刀在这些t0武器面前还是有点小丑</blockquote>
+第一局但凡换成中刷不至于翻成这样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  墨染白泉  
+##### 4942#       发表于 2024-8-4 18:51
+
+今天加时翻盘好多，爱看
+
+
+*****
+
+####  秋月孝三  
+##### 4943#       发表于 2024-8-4 18:57
+
+三分钟浪费三个大蛤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  墨染白泉  
+##### 4944#       发表于 2024-8-4 18:59
+
+蛤蜊完全互相喂饭
+
+
+*****
+
+####  墨染白泉  
+##### 4945#       发表于 2024-8-4 19:07
+
+四金x还是寄了
+
+
+*****
+
+####  墨染白泉  
+##### 4946#       发表于 2024-8-4 19:10
+
+看起来月底灭龙的东日本队赢定了啊，就他们队一直练
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4947#       发表于 2024-8-4 19:43
+
+这波推塔反超好牛
+
+
+*****
+
+####  秋月孝三  
+##### 4948#       发表于 2024-8-4 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马老师可惜了
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  raii  
+##### 4949#       发表于 2024-8-4 20:08
+
+关西最高峰就这个水平的话关东睡觉都能笑醒
+
+
+*****
+
+####  nanjolno  
+##### 4950#       发表于 2024-8-4 20:12
+
+确实，这东西实力差肉眼可见
+
+
+*****
+
+####  秋月孝三  
+##### 4951#       发表于 2024-8-4 22:17
+
+还真给马老师混到热搜了。人体堂开盒部最失败的一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
