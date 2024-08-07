@@ -1042,3 +1042,28 @@ Z的话我记得B站好像有正版。字幕组版的话只做到中期就弃坑
 
 不是，所以姐姐这块怎么善后的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  DARK_HGCG  
+##### 70#       发表于 2024-8-4 10:45
+
+难不成姐姐要被抓回去和面具男合体？
+
+<img src="https://img.saraba1st.com/forum/202408/04/104532p2s6q1gzcq99q5wx.jpg" referrerpolicy="no-referrer">
+
+<strong>710V4XlYKcL._AC_SL1500_.jpg</strong> (150.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 10:45 上传
+
+
+*****
+
+####  王九的哥哥  
+##### 71#       发表于 2024-8-5 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65790795&amp;ptid=2165211" target="_blank">DARK_HGCG 发表于 2024-8-4 10:45</a>
+难不成姐姐要被抓回去和面具男合体？</blockquote>
+面具男洗白吧……
+
