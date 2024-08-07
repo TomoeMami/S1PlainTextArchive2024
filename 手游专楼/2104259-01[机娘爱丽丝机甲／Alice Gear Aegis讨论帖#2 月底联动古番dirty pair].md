@@ -2786,3 +2786,83 @@ FY06-LA4R-E6A0-6JAW
 
 神BUG，王女绊剧情的王女被替换成夜露，诺艾尔的不知什么剧情诺艾尔被替换成东京最强。夜露问题不大东京最强可就是黑历史了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  vacuumsword  
+##### 1148#       发表于 2024-8-1 15:17
+
+三人上场好评。光狙蹲坑蹲得更瓷实了
+
+
+*****
+
+####  江戸前ルナ  
+##### 1149#         楼主| 发表于 2024-8-1 16:31
+
+ 本帖最后由 江戸前ルナ 于 2024-8-1 16:34 编辑 
+
+打完普通和挑战400级失败，吐槽下
+
+AI队友不会识别鳖的反射盾，还有柱子的大光柱和开关柱子的爆炸，所以400级的柱子就是AI疯狂扑街<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该给个AI指令集，比如远离游走，积极近战之类的。
+
+另外，不给多次挑战差评。
+
+
+*****
+
+####  hl7424994  
+##### 1150#       发表于 2024-8-1 18:23
+
+比起BUDDY LINK这次的新系统确实让人好接受多了。虽然也有AI队友主动送命以及攥不了多少SP槽等小缺点，但空血能原地复活以及没有无伤奖励的压力就没太大所谓了，玩下来总体感觉挺好。
+
+
+*****
+
+####  不灭的旋律  
+##### 1151#       发表于 2024-8-1 21:16
+
+lv400就是纯吓人的，多打几次就能过。但是我现在无法登入PC端搓玻璃搓得好难受<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 1152#         楼主| 发表于 2024-8-1 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65768726&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-8-1 21:16</a>
+
+lv400就是纯吓人的，多打几次就能过。但是我现在无法登入PC端搓玻璃搓得好难受
+
+ ...</blockquote>
+看了下，是进不了DMMPLAYER还是进不了游戏啊？
+
+
+*****
+
+####  不灭的旋律  
+##### 1153#       发表于 2024-8-1 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769109&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-8-1 21:55</a>
+
+看了下，是进不了DMMPLAYER还是进不了游戏啊？</blockquote>
+进不了游戏。换个代理估计就能好不过懒得换了
+
+
+*****
+
+####  江戸前ルナ  
+##### 1154#         楼主| 发表于 2024-8-1 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769323&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-8-1 22:16</a>
+
+进不了游戏。换个代理估计就能好不过懒得换了</blockquote>
+这可能是地区运营商的问题，我的电信就曾经试过非常难进游戏……还是要上代理才行……
+
+
+*****
+
+####  江戸前ルナ  
+##### 1155#         楼主| 发表于 2024-8-4 09:43
+
+才看这期杂志漫画，原来开始要讲学生会初遇了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
