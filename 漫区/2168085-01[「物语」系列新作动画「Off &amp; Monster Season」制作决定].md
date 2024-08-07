@@ -4232,3 +4232,2161 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 下一集老仓应该能登场了，期待<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+*****
+
+####  loka  
+##### 419#       发表于 2024-7-18 13:03
+
+怎么办我怕不是被yoasobi驯化了，本来是因为ed的月火可爱，ed循环了几遍后开始觉得undead有点好听了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不听勇者和祝福也许会是我最后坚守的底线……
+
+
+*****
+
+####  moras2694  
+##### 420#       发表于 2024-7-18 13:20
+
+没事，是能说话的，别被反向堵嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，现在是“给吹不给黑”是饭圈堵嘴，“给黑不给吹”就不是饭圈堵嘴了
+
+
+*****
+
+####  Tachikoma88  
+##### 421#       发表于 2024-7-18 13:23
+
+其实ed我也觉得还行，倒不如说物语的ed里我印象深刻的就化伤终，整个second season的ed我都没啥记忆点
+
+
+*****
+
+####  Tachikoma88  
+##### 422#       发表于 2024-7-18 18:33
+
+<img src="https://img.saraba1st.com/forum/202407/18/183316oyqn218nd3h21p7s.jpg" referrerpolicy="no-referrer">
+
+<strong>1721298765182.jpg</strong> (220.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 18:33 上传
+
+
+*****
+
+####  Piano-Forest  
+##### 423#         楼主| 发表于 2024-7-18 19:08
+
+#03 撫物語 なでこドロー 其ノ貮
+
+「制服姿の撫子を見た」と言う忍野扇とともに、千石撫子は目撃場所の公立七百一中学校に到着。不安を抱えながらも、校内へ足を踏み入れた撫子。彼女が目撃したその光景は意外なものだった。
+
+脚本：大嶋実句
+
+絵コンテ：吉澤 翠・瀬村俊一郎
+
+演出：渋田直彰
+
+作画監督：潮月一也・岩本里奈・高野晃久・牛ノ濱由惟・清水勝祐・和田賢人・浅井昭人・菊地しゅんすけ・北島勇樹・龍光
+<img src="https://p.sda1.dev/18/8604f6360c2157469a7f67b6c59bf9ff/story_3560_photo_1721291038070270992.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9ee47e2cfcb42dabcf029414e3609d55/story_3560_photo_1721291038326258341.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/634a450549e24594fba0451f5203f14e/story_3560_photo_1721291038483196348.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a03b3a8461422b7f57990e57ab1f3f09/story_3560_photo_1721291038680232664.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 424#       发表于 2024-7-18 20:45
+
+这作监越来越多了，希望只是shaft在练新人吧
+
+
+*****
+
+####  kenqqex  
+##### 425#       发表于 2024-7-19 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然其他动画强是强，不过看完第二集觉得还是物语硬实力第一
+
+
+*****
+
+####  sanxgh571  
+##### 426#       发表于 2024-7-19 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623937&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-18 13:03</a>
+
+怎么办我怕不是被yoasobi驯化了，本来是因为ed的月火可爱，ed循环了几遍后开始觉得undead有点好听了不听勇 ...</blockquote>
+而且会不由自主地哼副歌
+
+
+*****
+
+####  秋雨灰灰  
+##### 427#       发表于 2024-7-19 00:47
+
+太牛了，制作水平完全对标化物语了，比第二季和最新的一些要强，我很满意
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Tachikoma88  
+##### 428#       发表于 2024-7-20 13:37
+
+又发了个pv2，还真给灯笼裤抚子打了个黑条
+
+
+*****
+
+####  Anonekoy  
+##### 429#       发表于 2024-7-20 13:54
+
+混进学校的是媚抚子吧，这么看比本体受欢迎是理所当然的了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 430#       发表于 2024-7-20 20:01
+
+好美的老仓
+
+<img src="https://img.saraba1st.com/forum/202407/20/200151y3haczku27ad49dk.jpg" referrerpolicy="no-referrer">
+
+<strong>1721476890445.jpg</strong> (229.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 20:01 上传
+
+
+*****
+
+####  Tachikoma88  
+##### 431#       发表于 2024-7-20 21:02
+
+这op<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+疯狂neta哆啦A梦
+
+
+*****
+
+####  tjshibc21  
+##### 432#       发表于 2024-7-20 21:10
+
+op不错 情怀拉满了
+
+
+*****
+
+####  tjshibc21  
+##### 433#       发表于 2024-7-20 21:25
+
+抚子还真是被偏爱阿
+
+
+*****
+
+####  meailove  
+##### 434#       发表于 2024-7-20 21:29
+
+抚子太可爱了，不管哪个形态都是
+
+*****
+
+####  Tachikoma88  
+##### 435#       发表于 2024-7-20 21:29
+
+原谅shaft推迟op了，爽啊
+
+*****
+
+####  零壹贰叁  
+##### 436#       发表于 2024-7-20 21:29
+
+op这么能动吗，爽了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  oi99o  
+##### 437#       发表于 2024-7-20 21:32
+
+不是大沼心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/20/213208j5ttv7kf788tfq36.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 21:32 上传
+
+另外这集分镜官网有写吉泽翠，正片却没表上去，不知道为什么
+
+
+*****
+
+####  穗波殊  
+##### 438#       发表于 2024-7-20 21:39
+
+这个op<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">好萌啊！抚子激萌！
+
+
+*****
+
+####  oi99o  
+##### 439#       发表于 2024-7-20 21:45
+
+官方你这都不把op单独发一遍到ytb去吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Junakr  
+##### 440#       发表于 2024-7-20 21:48
+
+建议改名妩物语，OP 好棒。
+
+
+*****
+
+####  Tachikoma88  
+##### 441#       发表于 2024-7-20 21:49
+
+op好像有今村亮？今村亮原来你还爱着shaft吗
+
+
+*****
+
+####  AlfredXC  
+##### 442#       发表于 2024-7-20 21:56
+
+op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条规圣也是原8bit所属，做过向山进发
+
+
+*****
+
+####  Tachikoma88  
+##### 443#       发表于 2024-7-20 23:13
+
+亮哥上次说是梅津邀请才来画的美少女，这次又是为什么了，跟shaft和解了？甚至画了贺图
+
+<img src="https://img.saraba1st.com/forum/202407/20/231304bqle2lq079cf0flf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 23:13 上传
+
+
+*****
+
+####  沼蝇  
+##### 444#       发表于 2024-7-20 23:19
+
+那个是钱形的脸吗？
+
+
+*****
+
+####  CHCL3  
+##### 445#       发表于 2024-7-20 23:45
+
+<img src="https://p.sda1.dev/18/368801730e0f50b6a06c1ad45bfd6fb5/CMP_20240720234536755.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  八雲みたま  
+##### 446#       发表于 2024-7-20 23:50
+
+画shaft作品但不为shaft画画的今村<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BlueThree  
+##### 447#       发表于 2024-7-20 23:50
+
+哆啦A梦的变装照相机<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猫兔同笼  
+##### 448#       发表于 2024-7-20 23:52
+
+今村亮二次回归，有没有一种可能今村亮其实是个嘴臭傲娇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Acerola  
+##### 449#       发表于 2024-7-21 00:04
+
+这OP看着也太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  5353  
+##### 450#       发表于 2024-7-21 00:22
+
+这op真是抚子天堂。
+
+
+*****
+
+####  八雲みたま  
+##### 451#       发表于 2024-7-21 00:33
+
+松浦力也来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  人畜无害沃特碧  
+##### 452#       发表于 2024-7-21 00:36
+
+新op真不错吧
+
+
+*****
+
+####  winda  
+##### 453#       发表于 2024-7-21 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乖抚子这个半裸在大街上跑动画化了感觉更糟糕了啊
+
+
+*****
+
+####  tiro_finale  
+##### 454#       发表于 2024-7-21 01:14
+
+这演出有点感动啊，真的梦回化物语
+
+
+*****
+
+####  集合酱  
+##### 455#       发表于 2024-7-21 01:22
+
+真人演出<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这被招魂的到底是哪年的沙发套
+
+
+*****
+
+####  zzzzzzzzzzz  
+##### 456#       发表于 2024-7-21 02:24
+
+这op，泪目了。
+
+
+*****
+
+####  常陆茉子prpr  
+##### 457#       发表于 2024-7-21 02:34
+
+泪目了，我感觉一切都回来了.jpg
+
+
+*****
+
+####  wsktcy  
+##### 458#       发表于 2024-7-21 02:54
+
+我还是没法接受老仓这个新发型<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Icskari  
+##### 459#       发表于 2024-7-21 03:21
+
+offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼和和解，
+
+
+*****
+
+####  moras2694  
+##### 460#       发表于 2024-7-21 04:21
+
+短发抚子越看越喜欢。特别是现在的服饰很保守，但想到以前的一些形象很暴露，都是同一个人就意外的涩
+
+
+*****
+
+####  martinium  
+##### 461#       发表于 2024-7-21 07:42
+
+感觉看到了巅峰的沙发套
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  仟音一心  
+##### 462#       发表于 2024-7-21 07:54
+
+「caramel ribbon cursetard」
+
+歌：千石抚子 &amp; 斧乃木余接（ 花泽香菜 &amp; 早见沙织 ）
+ああしたい
+こうしたい
+どうしたい
+まるで死んでるみたい
+
+石の上にも残念
+でもそんなんじゃ恋愛サーキュレーショソ
+
+今日やっと始まるストーリー
+生まれたての卵のようなインモーション
+殻から飛び出しいい黄身だなんて
+君はキメ顔で
+(せ一の)
+
+永遠を願った夢に
+終わりを告げる朝が来て
+お砂糖でできたその淚
+見つめ見つめ見つけた心
+
+甘くほろ苦い
+キャラメルのように
+絡まるリボンは
+祝いの錯だけど
+
+この気持ちはそう
+この気持ちにしか
+きっと分かんないから
+
+君と手と手つないで
+ひとつひとつ叶えていこう
+僕らの物語は
+今日に続く約束
+
+色とりどりの真っ黒な歴史
+愛おしい私の歴史
+
+誰も知らない
+真っ白なページ
+更新していく
+
+
+*****
+
+####  猫兔同笼  
+##### 463#       发表于 2024-7-21 09:44
+
+莫名其妙的撞题材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没能赢得心上人恋情的女孩——“败北女主”。
+爱吃做数学的青梅竹马系女主·老仓育
+活力充沛的运动系女主（喜欢脱衣服）·神原骏河。
+怕生的小动物系（不愿敞开心扉）女主·千石优子。
+甚至还有兄控妹妹×2
+被有点缺憾的败北女角——败女们环绕，新感觉、乱糟糟的败走系青春物语就此揭幕！
+这是失败者的故事，这是愚者的物语！
+
+
+*****
+
+####  反方向的波  
+##### 464#       发表于 2024-7-21 10:00
+
+这季op一个比一个强啊
+
+
+*****
+
+####  もも的洞洞鞋  
+##### 465#       发表于 2024-7-21 10:12
+
+老仓好久没见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这发型太色了
+
+
+*****
+
+####  Philister  
+##### 466#       发表于 2024-7-21 10:48
+
+老仓短发挺好看，以后不黑了
+
+*****
+
+####  fsfs_freeze  
+##### 467#       发表于 2024-7-21 10:49
+
+老仓形象变化好大，完全认不出来
+
+
+*****
+
+####  千叶铁矢  
+##### 468#       发表于 2024-7-21 12:19
+
+从扇按火警到出校那里的演出挺好看
+
+
+*****
+
+####  鬼谷ask  
+##### 469#       发表于 2024-7-21 12:52
+
+老仓好棒，各种意义上<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 470#       发表于 2024-7-21 12:55
+
+这op以物语来说都算少见了，演出这一集集下来都是顶啊，这是哪年的沙发套。反正不是终那一年的（
+
+
+*****
+
+####  CHCL3  
+##### 471#       发表于 2024-7-21 13:11
+
+物语动画做的太好了我要看一辈子物语<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 472#       发表于 2024-7-21 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我觉得老仓比之前的双马尾强多了，大姐姐我的大姐姐
+
+*****
+
+####  雨宿绘空事  
+##### 473#       发表于 2024-7-21 13:29
+
+好多抚子 太可爱啦<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Sliurus  
+##### 474#       发表于 2024-7-21 13:41
+
+op跟894那种一样一堆复制人，不过意义不太一样，而且没那么夸张。为什么手套部分还有荡漾，抚子和她只有一个电话的交情吧
+
+老仓怎么这么夹、这么亚撒西了，我还是更喜欢抓狂的那个你<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+小扇还挺活跃的，我还以为送到门口就结束了
+
+
+*****
+
+####  smdzh2  
+##### 475#       发表于 2024-7-21 13:47
+
+牢仓育短发更好看，或者说更耐看了
+gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e00aca32ed391020bb3108390ba1ce42/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b6b11d100988566f2292af81bf23e166/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无证madam  
+##### 476#       发表于 2024-7-21 13:50
+
+ 本帖最后由 无证madam 于 2024-7-21 13:53 编辑 
+
+今村亮：藤田的任务罢了
+
+中间蹦出钱形警部的脸 爆笑
+
+
+*****
+
+####  Sliurus  
+##### 477#       发表于 2024-7-21 13:56
+
+说起来老仓的发色变深了，终物语里是灰色偏浅，现在偏深色
+
+一直觉得老仓人设跟其他人不太一样，可能就是物语角色的发色都偏深色。现在和其他角色站一起更协调一点
+
+
+*****
+
+####  Sliurus  
+##### 478#       发表于 2024-7-21 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65651829&amp;ptid=2168085" target="_blank">もも的洞洞鞋 发表于 2024-7-21 10:12</a>
+
+老仓好久没见了
+
+新发型有点好看</blockquote>
+与其说正不正确，不如说日子总得过，人生其实没那么艰难
+
+一个翘课出来自习的学霸如是说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  martinium  
+##### 479#       发表于 2024-7-21 14:39
+
+老仓剪了头发，做了发型，顺便染个发也不稀奇吧。话说我一直以为老仓的头发是压力过大导致少白头来着。当年和班长一起的时候，发色没比黑白头的班长深多少。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  猫兔同笼  
+##### 480#       发表于 2024-7-21 14:46
+
+老仓要是知道抚子的一万小时估算法估计得抓狂，课也不上了连续一星期的给小姑娘补习补习数学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 481#       发表于 2024-7-21 17:20
+
+话说扇是打算一直呆在学校了吗？
+
+
+*****
+
+####  schneehertz  
+##### 482#       发表于 2024-7-21 18:33
+
+长裙短发的老仓育很不错
+
+
+*****
+
+####  商博良  
+##### 483#       发表于 2024-7-21 21:48
+
+ 本帖最后由 商博良 于 2024-7-21 21:52 编辑 
+
+听到猴子的声音，一下子感动的不行了，这种亲切感 哎
+
+<img src="https://img.saraba1st.com/forum/202407/21/215240hhmljg3cobuo73l7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (454.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 21:52 上传
+
+啊这 啊这
+
+
+*****
+
+####  Sliurus  
+##### 484#       发表于 2024-7-21 23:38
+
+小扇说本体和式神的关系时是不是还在映射垃圾君，“还是刚出生的婴儿”好像小扇也这么形容过自己，而且跟四抚子和今抚子的关系很类似。让一个和本体和解的“式神”开导抚子的安排还挺妙的
+
+
+*****
+
+####  穗波殊  
+##### 485#       发表于 2024-7-21 23:46
+
+要是抚子能够有丝分裂，等世界变成抚子乐园和平一点就到来了吧。建议班长的国境线消灭计划从这方面开始努力
+
+
+*****
+
+####  唯一指定用户名  
+##### 486#       发表于 2024-7-21 23:58
+
+这个老苍的声音真的没办法跟之前联系起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tnzbt  
+##### 487#       发表于 2024-7-21 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">op太棒了
+
+*****
+
+####  零壹贰叁  
+##### 488#       发表于 2024-7-22 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65653535&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-21 13:56</a>
+说起来老仓的发色变深了，终物语里是灰色偏浅，现在偏深色
+
+一直觉得老仓人设跟其他人不太一样，可能就是物 ...</blockquote>
+我的感觉是因为色彩设计换人吧
+之前一直有日比野仁参与，续终之后就是纯渡边康子负责了，老仓发色也是从续终开始变成深灰色
+当初化物语时期荡漾的发色也挺暗的，自从他伪参与之后荡漾发色就变成亮紫色了，也是在续终他不参与之后荡漾发色又暗回去了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  集合酱  
+##### 489#       发表于 2024-7-22 00:15
+
+推上看到的
+1.
+op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=多啦a梦
+2.
+新op比起恋爱循环最高音高一个最低音低一个可以感觉到抚子的“成长”
+
+*****
+
+####  Sliurus  
+##### 490#       发表于 2024-7-22 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658909&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-7-22 00:03</a>
+
+我的感觉是因为色彩设计换人吧
+
+之前一直有日比野仁参与，续终之后就是纯渡边康子负责了，老仓发色也是从 ...</blockquote>
+看了眼续终，和抚物语确实更接近一点
+
+荡漾这个之前还真没发现，紫色亮暗没那么明显
+
+
+*****
+
+####  麻巳巳  
+##### 491#       发表于 2024-7-22 01:17
+
+角色曲真的是物语不可抛弃的精华啊
+
+这么好的制作能不能让我看一辈子的物语
+
+
+*****
+
+####  Yugao  
+##### 492#       发表于 2024-7-22 08:50
+
+说起来，这个时间段是不是垃圾君和荡漾处在上大学没事分个手图一乐的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫兔同笼  
+##### 493#       发表于 2024-7-22 10:34
+
+想看上大学时荡漾听闻阿良良木夫妇因忙于工作没法给俩妹妹做饭，从而心血来潮买了一大堆食材准备大展拳脚牢牢抓住小姑子们的胃，然后满怀信心的进门她却看见系着围裙在厨房里忙活的老仓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 494#       发表于 2024-7-22 12:19
+
+说到发色，荡漾在上大学之后把头发染成了褐色，不知道动画要不要做出来。毕竟小说的原始发色设定一直都是黑色，黑变褐可以说是变潮了，紫变褐就有点变土的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  杂灰  
+##### 495#       发表于 2024-7-22 12:33
+
+那就激进点，改成金色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 496#       发表于 2024-7-22 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661604&amp;ptid=2168085" target="_blank">猫兔同笼 发表于 2024-7-22 10:34</a>
+
+想看上大学时荡漾听闻阿良良木夫妇因忙于工作没法给俩妹妹做饭，从而心血来潮买了一大堆食材准备大展拳脚牢 ...</blockquote>
+多来点，多来点！想看荡漾嫉妒的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  remedios010000  
+##### 497#       发表于 2024-7-22 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65653805&amp;ptid=2168085" target="_blank">猫兔同笼 发表于 2024-7-21 14:46</a>
+老仓要是知道抚子的一万小时估算法估计得抓狂，课也不上了连续一星期的给小姑娘补习补习数学 ...</blockquote>
+老苍：智商配得上苦难，没救了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mldc  
+##### 498#       发表于 2024-7-22 14:33
+
+因为小说里面就引用了多啦a梦的著名篇章遍地都是哆啦a梦
+
+
+*****
+
+####  猫兔同笼  
+##### 499#       发表于 2024-7-22 22:19
+
+抚子绕真嗣
+
+1721657528861.gif
+(104.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202407/22/221829hpy0t4pttghnt83h.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hokagokenjatime  
+##### 500#       发表于 2024-7-24 15:40
+
+剪短发的老仓好成熟，好有魅力
+
+
+*****
+
+####  高三电波台  
+##### 501#       发表于 2024-7-24 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65654848&amp;ptid=2168085" target="_blank">爱吃冻鳗的猫 发表于 2024-7-21 17:20</a>
+
+话说扇是打算一直呆在学校了吗？</blockquote>
+变成类似于学校不可思议的存在了
+
+
+*****
+
+####  Piano-Forest  
+##### 502#         楼主| 发表于 2024-7-24 22:49
+
+OP：[https://youtu.be/yhL7GvLbSyw](https://youtu.be/yhL7GvLbSyw)
+
+<img src="https://p.sda1.dev/18/9aac46713dc4e8ccfd4c9d9c118134ec/20240724_223425.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sasurainopink/status/1814652976696598558](https://x.com/sasurainopink/status/1814652976696598558)
+
+『#物語シリーズ       オフ&amp;モンスターシーズン』撫物語OPに作画監督で参加させていただきました！
+
+ご視聴ありがとうございました！(*´`)
+<img src="https://p.sda1.dev/18/081a728206b8532e2b3ff09c1cd84da8/20240724_223755.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/shun420820/status/1814656847007134183](https://x.com/shun420820/status/1814656847007134183)
+
+撫物語OP　LO原画で参加させていただきましたー！
+
+よろしくお願いいたします！
+<img src="https://p.sda1.dev/18/74bb1a0f9a0476e4c0c194a8b14d345a/20240724_223809.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/jusjusojus/status/1814676083536764994](https://x.com/jusjusojus/status/1814676083536764994)
+
+撫物語OP最初と最後とか3カットやってました
+
+みてね～
+<img src="https://p.sda1.dev/18/8151ea9cb68498e9c903baf292560849/20240724_223804.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kurushisou/status/1814692329695109449](https://x.com/kurushisou/status/1814692329695109449)
+
+撫物語OP少し原画描きました！よろしくお願いします！
+<img src="https://p.sda1.dev/18/48f552c4061c7006e36c0bc16c5e4597/20240724_223812.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/miacci0/status/1814713151579168986](https://x.com/miacci0/status/1814713151579168986)
+
+#物語シリーズ    撫物語OP原画やってました〜〜
+
+お手玉とパペットのカットやりました。
+
+化物語放送時から観てて関われる機会が来るとは思ってなかったので感謝です…！
+<img src="https://p.sda1.dev/18/bbaffac577b3371a0e5859688d9a569e/20240724_223827.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/jurayuraaa/status/1814852237501325425](https://x.com/jurayuraaa/status/1814852237501325425)
+
+ちょっと遅れますが昨日放送された撫物語OP原画で参加させていただきました！
+
+余接と撫子がドアを飛び出し、撫子たちが駆け寄ってきてくる2カットと、通りゃんせしている撫子たちのカットを担当しました。大久保さんの絵コンテは素晴らしいので参加できて感謝します🙇‍♂️
+<img src="https://p.sda1.dev/18/1b9b0019d7f72d04607f7e8b399332cc/20240724_223846.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hinari080812/status/1814653989494853954](https://x.com/hinari080812/status/1814653989494853954)
+
+『物語シリーズ オフ＆モンスターシーズン』第１話
+
+#愚物語「つきひアンドゥ」、第３話 ＃撫物語 「なでこドロー其ノ貮」に二原で参加しました！
+
+ありがとうございます🙏✨
+<img src="https://p.sda1.dev/18/9e2df92285015dd723554e8167a2b3fe/20240724_223800.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yalbsd  
+##### 503#       发表于 2024-7-24 23:41
+
+OP太棒了，好多抚子
+
+
+*****
+
+####  Azako  
+##### 504#       发表于 2024-7-25 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658909&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-07-22 00:03:05</a>
+我的感觉是因为色彩设计换人吧
+之前一直有日比野仁参与，续终之后就是纯渡边康子负责了，老仓发色也是从 ...</blockquote>我记得续终小说封面的老苍就是这个发色，终物语动画老苍人设出来的时候还感觉挺奇怪
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  stickimbul  
+##### 505#       发表于 2024-7-25 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">怎么看人说斧乃木也要短发，第一次因为老生常谈的物语剪发桥段悲鸣了
+
+
+*****
+
+####  Tachikoma88  
+##### 506#       发表于 2024-7-25 12:11
+
+<blockquote>stickimbul 发表于 2024-7-25 11:50
+怎么看人说斧乃木也要短发，第一次因为老生常谈的物语剪发桥段悲鸣了</blockquote>
+限时短发，结尾又长回去了
+
+
+*****
+
+####  Tachikoma88  
+##### 507#       发表于 2024-7-25 18:27
+
+<img src="https://img.saraba1st.com/forum/202407/25/182738mgo9ui0hrhfhyomm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (159.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 18:27 上传
+
+这集的演出是宫本
+
+
+*****
+
+####  Piano-Forest  
+##### 508#         楼主| 发表于 2024-7-26 11:13
+
+#04 撫物語 なでこドロー 其ノ參
+
+老倉育との会話からヒントを得た撫子は、おと撫子を確保すべく阿良々木家へ向かっていた。しかし玄関のノブの辺りには、人間の手首が通るくらいの大穴が空いていて――。一方、別方向へ式神撫子を捜しに行った余接は、北白蛇神社へ向かっていた。
+
+脚本：大嶋実句
+
+絵コンテ：松村幸治
+
+演出：宮本幸裕
+
+作画監督：伊藤良明・高野晃久・高橋みき・浅井昭人・鮫島寿志・ハンミンギ・宮嶋仁志・北島勇樹
+<img src="https://p.sda1.dev/18/97e032d68ca3a1df55848dc9a1743aaa/story_3585_photo_1721889050845903254.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/0a58a20d1db87aed301b54770a4128b8/story_3585_photo_1721889051408272923.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ea9e79df89b8cc443bf25606be312fa3/story_3585_photo_1721889051144533946.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3868bd7b56e13fe92b7924fd6a483c75/story_3585_photo_1721889051634257421.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  布伦史塔德  
+##### 509#       发表于 2024-7-26 16:46
+
+<img src="https://img.saraba1st.com/forum/202407/26/164558pv007pq2um0a2yci.png" referrerpolicy="no-referrer">
+
+<strong>b068573e9be4329a6c417efa7c5056ca.png</strong> (256.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 16:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 510#       发表于 2024-7-26 20:54
+
+<img src="https://img.saraba1st.com/forum/202407/26/205428x32pz847eg56nwhq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 20:54 上传
+
+好可爱的短发荡漾
+
+
+*****
+
+####  oi99o  
+##### 511#       发表于 2024-7-27 21:01
+
+se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 512#       发表于 2024-7-27 21:10
+
+好，荡漾一句话怒领工资了
+
+*****
+
+####  猫兔同笼  
+##### 513#       发表于 2024-7-27 21:11
+
+一句话把抚子吓跑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 514#       发表于 2024-7-27 21:15
+
+只有一个头都做45°角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tachikoma88  
+##### 515#       发表于 2024-7-27 21:17
+
+草，突然来个三狮画风
+
+
+*****
+
+####  Tachikoma88  
+##### 516#       发表于 2024-7-27 21:27
+
+看样子还能做两集呀，那抚物语是总共5集了？
+
+
+*****
+
+####  oi99o  
+##### 517#       发表于 2024-7-27 23:04
+
+原来这里是这个意思吗
+
+<img src="https://img.saraba1st.com/forum/202407/27/230435aimljbr09nzozbim.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 23:04 上传
+
+
+*****
+
+####  Yinacona  
+##### 518#       发表于 2024-7-27 23:28
+
+续终后面小说都没看过，能问下这集抚子和神原说的上次多谢是什么事吗？是之后会说或者后续小说内容？还是前面有但是我忘记了（
+
+
+*****
+
+####  狼王卢比奥  
+##### 519#       发表于 2024-7-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65718808&amp;ptid=2168085" target="_blank">Yinacona 发表于 2024-7-27 23:28</a>
+续终后面小说都没看过，能问下这集抚子和神原说的上次多谢是什么事吗？是之后会说或者后续小说内容？还是前 ...</blockquote>
+化物语里就是历和神原去神社解除抚子诅咒的啊
+
+*****
+
+####  Yinacona  
+##### 520#       发表于 2024-7-27 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65718887&amp;ptid=2168085" target="_blank">狼王卢比奥 发表于 2024-7-27 23:40</a>
+
+化物语里就是历和神原去神社解除抚子诅咒的啊</blockquote>
+哦哦草，忘记作品跨度20年但里面实际将近1年，还以为是在这之中又哪里交际了
+
+
+*****
+
+####  loka  
+##### 521#       发表于 2024-7-28 00:16
+
+  私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+<img src="https://static.saraba1st.com/image/smiley/carton2017/155.png" referrerpolicy="no-referrer">：接电话，然后报上大名！
+  我一直都知道抚子傻，但没想到她这么傻，条件反射也就罢了，她甚至还是不知所措了一会儿之后才接的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不止人傻，反射弧也够长，这么长的反射时间里要是能思考一下的话该多好
+  她说之后要和月火解释，但垃圾家大门被破坏，地板戳了个洞，椅子翻在一边，衣服少了一套还多了一件，最后电话还挂在一边的这个情况到底要怎么解释？她真的有想过要怎么解释吗？一点整理现场的意识都没有吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rabbt  
+##### 522#       发表于 2024-7-28 00:55
+
+斧乃木也被剪头了，终究还是没逃过
+
+<img src="https://img.saraba1st.com/forum/202407/28/005523iyvfvs4o1pfs8z5l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 00:55 上传
+
+
+*****
+
+####  KDConan  
+##### 523#       发表于 2024-7-28 01:11
+
+这个se no就很灵性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  stickimbul  
+##### 524#       发表于 2024-7-28 01:15
+
+被肢解还在peacepeace笑死
+
+
+*****
+
+####  Tachikoma88  
+##### 525#       发表于 2024-7-28 01:18
+
+感觉这一季用了好多次鱼眼镜头，以前的物语有这么频繁用吗
+
+
+*****
+
+####  5353  
+##### 526#       发表于 2024-7-28 01:55
+
+感觉这一季脑子里那种声道用的比以前多不少。
+
+
+*****
+
+####  Atamaitai  
+##### 527#       发表于 2024-7-28 02:46
+
+这接op太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">同时这集让我深刻的认识到了斧乃木的重要性，没有她画面真的有点无聊
+
+
+*****
+
+####  tiro_finale  
+##### 528#       发表于 2024-7-28 03:02
+
+抚子推着斧乃木的头的画面实在太爆笑了，用画面带过纯聊天的祖传绝活还是有灵性
+
+这集香菜发挥真不错
+
+
+*****
+
+####  Atamaitai  
+##### 529#       发表于 2024-7-28 03:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  晋冠丘  
+##### 530#       发表于 2024-7-28 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65717562&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-27 21:27</a>
+ 看样子还能做两集呀，那抚物语是总共5集了？ 这集算过渡回了</blockquote>
+这一季有几集啊
+
+*****
+
+####  martinium  
+##### 531#       发表于 2024-7-28 03:35
+
+仔细听的话，对话里好多洗胃式文字游戏
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  moras2694  
+##### 532#       发表于 2024-7-28 04:08
+
+好看，无需多言
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 533#       发表于 2024-7-28 04:16
+
+这话太有物语的味道了
+
+
+*****
+
+####  smdzh2  
+##### 534#       发表于 2024-7-28 06:58
+
+短发抚子越来越有常守朱的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BigDaddyN0tail  
+##### 535#       发表于 2024-7-28 07:18
+
+<blockquote>晋冠丘 发表于 2024-7-28 03:33
+这一季有几集啊</blockquote>
+这季共有14集
+
+
+*****
+
+####  もも的洞洞鞋  
+##### 536#       发表于 2024-7-28 08:10
+
+香菜的逆抚子声线太魔性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及千和太太可以领工资了
+
+
+*****
+
+####  Vneeto  
+##### 537#       发表于 2024-7-28 08:47
+
+把式神收回了还要再出场了啊，接下来要3V2？
+
+
+*****
+
+####  鸣神  
+##### 538#       发表于 2024-7-28 10:46
+
+斧乃木这个和稀泥手能用Unlimited Rule Book吗？是不是只能用左手了
+
+
+*****
+
+####  神圣天使书记官  
+##### 539#       发表于 2024-7-28 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65719174&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-28 00:16</a>
+私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+：接电话，然后报上大名！
+  我一直都 ...</blockquote>
+无所谓，月火的神经更大条，随便怎么解释都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鬼谷ask  
+##### 540#       发表于 2024-7-28 12:31
+
+好看，很有趣，抚子和斧乃木对话的过程中用拼身体来保证画面的趣味度感觉很好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宝儿  
+##### 541#       发表于 2024-7-28 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65719174&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-28 00:16</a>
+
+私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+
+：接电话，然后报上大名！
+
+  我一直都 ...</blockquote>
+蠢的可爱才是抚子啊
+
+
+*****
+
+####  jaewoongh_  
+##### 542#       发表于 2024-7-28 14:17
+
+斧乃木的新造型还挺可爱的？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">神社的漫才不错，这季的精髓应该就是抚子和斧乃木斗嘴了吧
+
+
+*****
+
+####  Yugao  
+##### 543#       发表于 2024-7-28 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个想法， 是不是把月火灭口她就会失去这一天的记忆了
+
+
+*****
+
+####  kenqqex  
+##### 544#       发表于 2024-7-28 17:39
+
+新房135°
+
+
+*****
+
+####  zzyyyyppy  
+##### 545#       发表于 2024-7-28 17:54
+
+斧乃木似乎和初音一样
+
+越来越蓝了
+
+
+*****
+
+####  神圣天使书记官  
+##### 546#       发表于 2024-7-28 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65723127&amp;ptid=2168085" target="_blank">Yugao 发表于 2024-7-28 15:33</a>
+有个想法， 是不是把月火灭口她就会失去这一天的记忆了</blockquote>
+斧乃木不敢的，她一开始就是因为肘了正弦让阿良良木历产生了厌恶感，为了挽回关系她才被安排到了阿良良木历家，这会儿要是再敢动月火那这关系算是彻底完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  晋冠丘  
+##### 547#       发表于 2024-7-28 19:45
+
+说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对自己毕恭毕敬，原因是怕垃圾君看见荡漾这个样子对自己生气
+就目前第一集这个样子还有我之前一些模糊记忆来说，月火真的会有多怕垃圾君发火吗
+
+*****
+
+####  无证madam  
+##### 548#       发表于 2024-7-28 19:46
+
+<img src="https://img.saraba1st.com/forum/202407/28/194558lyllm1lz6rm1lmx1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 19:45 上传
+
+这十字固笑死我了 没头还怎么锁得住啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 549#       发表于 2024-7-28 20:21
+
+尾石达也说在做新电影了，还说会比伤物语更好
+
+
+*****
+
+####  Sliurus  
+##### 550#       发表于 2024-7-28 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725285&amp;ptid=2168085" target="_blank">晋冠丘 发表于 2024-7-28 19:45</a>
+
+说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对 ...</blockquote>
+客套话吧，fire sister对荡漾都很有好感，一种尊重的表现
+
+
+*****
+
+####  5353  
+##### 551#       发表于 2024-7-28 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725285&amp;ptid=2168085" target="_blank">晋冠丘 发表于 2024-7-28 19:45</a>
+
+说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对 ...</blockquote>
+我的理解是因为垃圾君并不是那种容易发火的人，应该可以说基本上就没发过火。
+
+对妹妹更是。她俩怎么闹腾垃圾君都不会真的发火。
+
+但这种人真发起火来也最吓人。
+
+
+*****
+
+####  oi99o  
+##### 552#       发表于 2024-7-28 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725572&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-28 20:21</a>
+尾石达也说在做新电影了，还说会比伤物语更好</blockquote>
+在哪说的？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  oi99o  
+##### 553#       发表于 2024-7-28 23:47
+
+找到了，怎么是蒙特利尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/28/234748qzcsctc59nz3dn4o.png" referrerpolicy="no-referrer">
+
+<strong>img_3546.png</strong> (332.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 23:47 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  winda  
+##### 554#       发表于 2024-7-28 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65719174&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-28 00:16</a>
+
+私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+
+：接电话，然后报上大名！
+
+  我一直都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer">没事，这些都是月火一个人在家就能搞出来的事情
+
+*****
+
+####  Junakr  
+##### 555#       发表于 2024-7-28 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">伤物语开头就发过火啊（物理，还挺容易着的（不是。
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 556#       发表于 2024-7-29 00:15
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫来所以兵不血刃解决了，真打起来谁能打过神抚子？
+
+*****
+
+####  Ollie  
+##### 557#       发表于 2024-7-29 00:17
+
+现在哪个字幕组翻译最好？喵萌奶茶？
+
+
+*****
+
+####  猫兔同笼  
+##### 558#       发表于 2024-7-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+完全体能刃下心呗，蛇再克制吸血鬼对规格之外的刃下心来说一点用都没有，抚子的事能拖这么久不就是垃圾和小忍俩人舍不得分开吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除此之外咩咩不会用暴力解决，而影缝大概率直接上去硬打，不过扇是直接把这俩人ban了
+
+
+*****
+
+####  Unlight  
+##### 559#       发表于 2024-7-29 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+忍直接开大就行了，但那样抚子估计也就寄了。
+
+垃圾不想把抚子干掉，也不想让忍恢复，所以一直僵持着。
+
+*****
+
+####  Unlight  
+##### 560#       发表于 2024-7-29 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728581&amp;ptid=2168085" target="_blank">猫兔同笼 发表于 2024-7-29 00:26</a>
+
+完全体的刃下心呗，蛇再克制吸血鬼对规格之外的刃下心来说一点用都没有，抚子的事能拖这么久不就是垃圾和 ...</blockquote>
+还有就是垃圾心软。忍恢复完全体的话，俩人不一定分离，但很有可能是忍直接把抚子吃了…所以一直没动真格。
+
+
+*****
+
+####  糖皮质激素  
+##### 561#       发表于 2024-7-29 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+神抚子智商很低的，专家组都能退治她，更别提本作战斗力顶点完全体忍了，斧乃木被神抚子秒了主要是因为她和月火住在一起的时间长了被影响变得不严谨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 562#       发表于 2024-7-29 07:20
+
+斧乃木这个近墨者黑的特质，没和羽川混到一起去算是不幸中的万幸了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oshinoshinobu  
+##### 563#       发表于 2024-7-29 11:11
+
+这两集感觉节奏有点单调了，缺了点画面上或者对话上的变奏
+
+
+*****
+
+####  商博良  
+##### 564#       发表于 2024-7-29 14:05
+
+还是好足的味道，不记得原作内容看的更加开心了。
+
+
+*****
+
+####  Tachikoma88  
+##### 565#       发表于 2024-7-29 15:17
+
+<blockquote>oshinoshinobu 发表于 2024-7-29 11:11
+这两集感觉节奏有点单调了，缺了点画面上或者对话上的变奏</blockquote>
+这两集分镜好像吉泽翠都没在，她可能重点在最后两集里
+
+
+*****
+
+####  sheshiro  
+##### 566#       发表于 2024-7-29 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+因为在下棋嘛
+
+抚子是纸面上战斗力最高的天花板，倾物语里面三专家都打不了完整版的刃下心，让小忍变成这个状态抚子必死，然后小忍变成新的神，这就算是黑方赢了
+
+所以只要牺牲一个棋子就行了
+
+
+*****
+
+####  Sliurus  
+##### 567#       发表于 2024-7-29 17:23
+
+ 本帖最后由 Sliurus 于 2024-7-29 17:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734097&amp;ptid=2168085" target="_blank">sheshiro 发表于 2024-7-29 15:44</a>
+
+因为在下棋嘛
+
+抚子是纸面上战斗力最高的天花板，倾物语里面三专家都打不了完整版的刃下心，让小忍变成这 ...</blockquote>
+这么看无论贝木是否插手抚子的事，专家们都是赢，毕竟就算垃圾君真死了下面也有人照应。那伊豆湖给贝木资金让他继续干是为了什么？总不能是学姐的爱吧
+
+
+*****
+
+####  sheshiro  
+##### 568#       发表于 2024-7-29 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735353&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-29 17:23</a>
+这么看无论贝木是否插手抚子的事，专家们都是赢，毕竟就算垃圾君真死了下面也有人照应。那伊豆湖给贝木资 ...</blockquote>
+战场原怎么搞到贝木电话的这点很重要，半个专家的班长怎么找到贝木也很重要
+
+因为恋物语很有可能是伪书（这不废话），再加上西尾老贼在后面的物语里明确了制造斧乃木之后各人的诅咒（咩咩居无定所贝木没有实话正弦余弦不能落地伊豆湖全知全能），很明显这就是为了骗垃圾君和读者的，说不定过程很简单——就像对付火怜一样，用个假怪异一招就撂倒了这个半吊子神明才像真的。
+
+但为了麻痹垃圾君，特意让他目睹抚子晕倒从而引出小扇才是真的任务，这个我觉得三百万日元报酬可以说是剥削学弟了，毕竟小扇可是直接把八九四送走了，还切断了小忍的建议，出手干净利索，只能兑子了
+
+这笔钱就是退场费，说不定花物语里面请猴子的烤肉钱还是从这里面拿出来的呢
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  糖皮质激素  
+##### 569#       发表于 2024-7-29 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735353&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-29 17:23</a>
+
+这么看无论贝木是否插手抚子的事，专家们都是赢，毕竟就算垃圾君真死了下面也有人照应。那伊豆湖给贝木资 ...</blockquote>
+卧烟不在乎谁当神，她在乎的是小镇必须有一个神，具体谁当不太重要，她本来想让忍去当但是阿良良木不同意，于是在扇的操作下变成了抚子当这个神，这个时候其实也没什么问题，但是神抚子的目标是做掉阿良良木和他的后宫团，其他人无所谓，阿良良木要是死了会放出完全体的忍然后走倾物语世界线，那这就有必要干涉一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 570#       发表于 2024-7-29 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735665&amp;ptid=2168085" target="_blank">糖皮质激素 发表于 2024-7-29 17:55</a>
+
+卧烟不在乎谁当神，她在乎的是小镇必须有一个神，具体谁当不太重要，她本来想让忍去当但是阿良良木不同意 ...</blockquote>
+神抚子时期垃圾君和伊豆湖、正弦已经认识了，有正弦打照应复活垃圾君应该不会变成倾物语的世界线，不然历物语也不会冒险把垃圾君切块
+
+我比较同意楼上的观点，伊豆湖是打算让贝木治退神抚子引出小扇
+
+
+*****
+
+####  noarch  
+##### 571#       发表于 2024-7-29 19:42
+
+看的很爽，就是西尾老贼太tm能续了，希望他真的想好个结局吧，别真写到挂了都没完结就难受了
+
+
+*****
+
+####  Junetheriver  
+##### 572#       发表于 2024-7-29 20:00
+
+ED拿着薙刀的月火酱好帅啊<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">，后面剧情有说法吗没看过原作
+
+
+*****
+
+####  马甲君  
+##### 573#       发表于 2024-7-29 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65736774&amp;ptid=2168085" target="_blank">Junetheriver 发表于 2024-7-29 20:00</a>
+ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</blockquote>
+不就是第一话的内容吗
+
+
+*****
+
+####  努斯万克  
+##### 574#       发表于 2024-7-30 12:18
+
+本季动画后面会有战场原出现吗
+
+
+*****
+
+####  oi99o  
+##### 575#       发表于 2024-7-30 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65742696&amp;ptid=2168085" target="_blank">努斯万克 发表于 2024-7-30 12:18</a>
+本季动画后面会有战场原出现吗</blockquote>
+忍物语会有
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  sylccll  
+##### 576#       发表于 2024-7-30 12:29
+
+已经觉得这系列不会完结了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">他要想完结终物语的时候就该结束了
+
+
+*****
+
+####  oi99o  
+##### 577#       发表于 2024-7-30 12:40
+
+吐槽一下，伤物语总集篇bd发售一周了还没有资源，我们物语现在这么凉的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tiro_finale  
+##### 578#       发表于 2024-7-30 12:44
+
+终已经算完结了啊，把伏线全收了
+现在是西尾逮着一只羊薅的番外篇了，类似童年经典的长大篇，整点烂活在意的人都不多了
+
+
+*****
+
+####  noarch  
+##### 579#       发表于 2024-7-30 12:47
+
+这系列现在可能也就很难有新人吧，前作堆的和山一样高了，不过也不是啥问题，光靠养老老粉就打遍99%的臭鱼烂虾了，本身也稳定的很，就像吃家乡老店经典菜一样安心
+
+
+*****
+
+####  努斯万克  
+##### 580#       发表于 2024-7-30 13:02
+
+终里面发生了啥我已经完全忘记了
+
+
+*****
+
+####  努斯万克  
+##### 581#       发表于 2024-7-30 13:16
+
+好多剧情都忘记了就想再看一遍，但是物语系列这么多集也是望而却步。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孟沁瑶  
+##### 582#       发表于 2024-7-30 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65742942&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-7-30 12:40</a>
+
+吐槽一下，伤物语总集篇bd发售一周了还没有资源，我们物语现在这么凉的吗
+
+论坛助手,iPhone ...</blockquote>
+因为是总集篇吧……
+
+
+*****
+
+####  Tachikoma88  
+##### 583#       发表于 2024-7-30 14:34
+
+<blockquote>oi99o 发表于 2024-7-30 12:40
+吐槽一下，伤物语总集篇bd发售一周了还没有资源，我们物语现在这么凉的吗
+
+论坛助手,iPhone ...</blockquote>
+那个总集篇好像就是把大量内心戏份删掉再加上部分重新配音，搞不懂尾石怎么六年就憋出个这玩意，我一开始还以为结尾有新的法语歌呢，结果好像并没有
+
+
+*****
+
+####  Sliurus  
+##### 584#       发表于 2024-7-30 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65743327&amp;ptid=2168085" target="_blank">努斯万克 发表于 2024-7-30 13:16</a>
+
+好多剧情都忘记了就想再看一遍，但是物语系列这么多集也是望而却步。</blockquote>
+当新动画慢慢看呗，其实中间好几部都是四五集一部，看起来很快的
+
+
+*****
+
+####  oi99o  
+##### 585#       发表于 2024-7-30 16:20
+
+2680，这种程度也不至于无人问津吧
+
+<img src="https://img.saraba1st.com/forum/202407/30/161948zckkqjjii3sij0z3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 16:19 上传
+
+
+*****
+
+####  阿虚家的三味  
+##### 586#       发表于 2024-7-31 04:48
+
+加油啊沙发套的大哥哥，不要做着做着又工期爆炸众叛亲离啊
+
+
+*****
+
+####  零壹贰叁  
+##### 587#       发表于 2024-7-31 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65743998&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-30 14:34</a>
+那个总集篇好像就是把大量内心戏份删掉再加上部分重新配音，搞不懂尾石怎么六年就憋出个这玩意，我一开始 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">知道尾石做了五六年总集篇我是非常震惊的
+到底怎么才能做这么久
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+
+*****
+
+####  Tachikoma88  
+##### 588#       发表于 2024-8-1 18:39
+
+好新潮的斧乃木
+
+<img src="https://img.saraba1st.com/forum/202408/01/183914d0o7qghgb0b0020y.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2u-ayk4ZlT3cSxc-ir.jpg</strong> (92.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 18:39 上传
+
+*****
+
+####  Tachikoma88  
+##### 589#       发表于 2024-8-1 18:41
+
+编辑
+
+
+*****
+
+####  Tachikoma88  
+##### 590#       发表于 2024-8-1 18:54
+
+这集的打斗应该可以期待一下，分镜和演出好像都是擅长打戏的
+
+
+*****
+
+####  Sliurus  
+##### 591#       发表于 2024-8-1 19:30
+
+斧乃木面无表情配合短发和中性装扮还挺飒的，可惜是个不靠谱式神
+
+
+*****
+
+####  Anonekoy  
+##### 592#       发表于 2024-8-1 20:04
+
+斧乃木短发有点帅了，要不和抚子搭伙过日子吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 593#       发表于 2024-8-1 20:05
+
+掉链子后面无表情地替自己挽尊也是萌点之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 594#       发表于 2024-8-1 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">过场插画里的迷你比基尼抚子就是出自有班长卡拉ok剪发名场面的伪物语后短篇：抚子泳池吧
+
+终于看到具体是啥样的了，也没西尾写的那么糟糕嘛
+
+
+*****
+
+####  Piano-Forest  
+##### 595#         楼主| 发表于 2024-8-2 13:02
+
+[https://x.com/hinari080812/status/1817190837773828365](https://x.com/hinari080812/status/1817190837773828365)
+
+『物語シリーズ　オフ＆モンスターシーズン』#04 #撫物語「なでこドロー其ノ参」、少しですがLO/原画で参加しました!
+
+４人動くの大変でしたが勉強になりました🙏
+
+是非ご覧下さい!
+<img src="https://p.sda1.dev/18/b3980a90393801ad771d92834aad47d8/20240802_130035.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/rira30855560/status/1817195345941799334](https://x.com/rira30855560/status/1817195345941799334)
+
+〈物語〉シリーズ オフ&amp;モンスターシーズン 4話
+
+原画やってました。
+
+ありがとうございます。
+<img src="https://p.sda1.dev/18/8363172c80c5e52e101cbc7cb615bb5f/20240802_130038.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 596#         楼主| 发表于 2024-8-2 23:40
+
+#05 撫物語 なでこドロー 其ノ肆
+
+今後の作戦を立てるため、一度千石家に戻った撫子と余接。残りの式神撫子を確保するために思案するも一歩踏み出せない撫子に対し、余接は当初の目的を思い出させる。事態を収拾するために、目的を達成するために、二人は決戦の地へと向かった。
+
+脚本：大嶋実句
+
+絵コンテ：松村幸治
+
+演出：宮本幸裕
+
+作画監督：伊藤良明・高野晃久・高橋みき・浅井昭人・鮫島寿志・ハンミンギ・宮嶋仁志・北島勇樹
+<img src="https://p.sda1.dev/18/3c13fe44bef026a9d6c3f576cf995ba1/story_3591_photo_1722502068625141922.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3609ee6995667b4781fc3aad4e142661/story_3591_photo_1722502068874728945.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/31055ee960e47d3afd660b0dbae0df07/story_3591_photo_1722502069110454384.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1317e9e0e8ef912a63b724dc61f12c05/story_3591_photo_1722502069343263177.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 597#       发表于 2024-8-3 21:18
+
+怎么bgm全是过去op的变奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫兔同笼  
+##### 598#       发表于 2024-8-3 22:59
+
+七分40秒就是妄想快车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sylccll  
+##### 599#       发表于 2024-8-3 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65786655&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-3 21:18</a>
+
+怎么bgm全是过去op的变奏</blockquote>
+狂卖情怀<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫兔同笼  
+##### 600#       发表于 2024-8-3 23:21
+
+结尾香菜的笑声，不敢想象录音时的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 601#       发表于 2024-8-3 23:32
+
+虽然BGM很棒，但是这话还是有点拖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  meailove  
+##### 602#       发表于 2024-8-4 00:01
+
+<img src="https://img.saraba1st.com/forum/202408/04/000116i655koa6ysczsgz5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 00:01 上传
+
+经典男主形象
+
+
+*****
+
+####  meailove  
+##### 603#       发表于 2024-8-4 00:19
+
+神抚子出场那段真好，笑的好带感，配的真好
+
+
+*****
+
+####  smdzh2  
+##### 604#       发表于 2024-8-4 02:25
+
+撫公是什么梗，战国梗吗
+
+*****
+
+####  tiro_finale  
+##### 605#       发表于 2024-8-4 02:29
+
+好气，要是二期按照这个感觉做就无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  晋冠丘  
+##### 606#       发表于 2024-8-4 02:34
+
+为什么神抚子结尾说要杀了她，以及为啥斧乃木要开例外规则啊，前面不是还在说要剪短逆抚子头发吗
+
+
+*****
+
+####  moras2694  
+##### 607#       发表于 2024-8-4 04:29
+
+每个抚子都好可爱。下集会很赶吗
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 608#       发表于 2024-8-4 04:44
+
+越来越像常守朱了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 609#       发表于 2024-8-4 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65789891&amp;ptid=2168085" target="_blank">大弹涂鱼潜伏 发表于 2024-8-4 04:44</a>
+越来越像常守朱了</blockquote>
+还真是，不仅声优现在连造型和行动都像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  鬼谷ask  
+##### 610#       发表于 2024-8-4 12:29
+
+不停用书构成白蛇还蛮带感的
+
+
+*****
+
+####  oi99o  
+##### 611#       发表于 2024-8-4 13:18
+
+<img src="https://img.saraba1st.com/forum/202408/04/131810ewtbtjwp5icgqbgq.png" referrerpolicy="no-referrer">
+
+<strong>[ANi] 物語系列 第外季＆第怪季 - 05 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snaps.png</strong> (165.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 13:18 上传
+
+kamimamita<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 612#       发表于 2024-8-4 13:36
+
+这集没太看懂，乖抚子就这么退场了？斧乃木为什么要开大？
+
+
+*****
+
+####  oi99o  
+##### 613#       发表于 2024-8-4 14:00
+
+ 本帖最后由 oi99o 于 2024-8-4 14:01 编辑 
+<blockquote>即使不愿意也会进入视野的一百具笼裤抚子，斧乃木之所以能够忽略，应该是切离情感的人偶怪异特有的优势吧。而且，无论想逃还是想躲，由于她的<strong>右手</strong>抓着目标的背，能借此确定所在位置的方向，所以斧乃木可以朝该处使出「例外较多之规则」。
+
+虽然不是惯用手，但她让<strong>左手</strong>食指膨胀，像是火箭砲一样射向依然罩著神祕面纱没现身的神抚子。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/04/135949qw3ygxzh2me3rhg8.png" referrerpolicy="no-referrer">
+
+<strong>[ANi] 物語系列 第外季＆第怪季 - 05 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snaps.png</strong> (158.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 13:59 上传
+
+小说写的左手，不知道怎么动画做成了右手
+
+
+*****
+
+####  Yinacona  
+##### 614#       发表于 2024-8-4 15:38
+
+不知道是过度解读还是这么回事，前两集bgm的恋爱循环只有鼓点和贝斯，这集旋律更丰富了，是不是和收复的式神数量有关？等全收复了是不是bgm连人声就有了
+
+
+*****
+
+####  1774565576  
+##### 615#       发表于 2024-8-4 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728519&amp;ptid=2168085" target="_blank">Ollie 发表于 2024-7-29 00:17</a>
+现在哪个字幕组翻译最好？喵萌奶茶？</blockquote>
+物语系列圈汉化组的版本最好，会对画面做分析标注，就是更新速度比较慢
+
+—— 来自 vivo V2031EA, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  57042711  
+##### 616#       发表于 2024-8-4 19:33
+
+香菜又笑啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 617#       发表于 2024-8-4 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65791725&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-4 13:18</a>
+
+kamimamita</blockquote>
+这谐音梗，894成神不会是早就内定了吧
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 618#       发表于 2024-8-4 21:30
+
+抚子和抚公是不是也是谐音
+
+
+*****
+
+####  oi99o  
+##### 619#       发表于 2024-8-4 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796339&amp;ptid=2168085" target="_blank">大弹涂鱼潜伏 发表于 2024-8-4 21:30</a>
+
+抚子和抚公是不是也是谐音</blockquote>
+公比子多一个长音
+
+
+*****
+
+####  strider_oy  
+##### 620#       发表于 2024-8-5 00:32
+
+余切换了衣服之后，连动作也变成像大姐姐了啊
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+
+*****
+
+####  宝儿  
+##### 621#       发表于 2024-8-5 02:41
+
+每个抚子都很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moras2694  
+##### 622#       发表于 2024-8-5 02:42
+
+抚物语的几首曲子真好啊，虽然两三首是以前抚子主题曲变奏，但经典还就是那个经典啊，就好这口情怀，抚物语的剧情也很适合用老曲变奏
+
