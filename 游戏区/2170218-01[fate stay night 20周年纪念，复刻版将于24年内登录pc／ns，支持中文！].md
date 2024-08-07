@@ -439,3 +439,336 @@ ps4给套新奖杯我都会买
 背景：下越
 <img src="https://p.sda1.dev/18/6b40aceb16d99d5d30037ec297276f3b/20240628_193615.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  空洞骑士  
+##### 49#       发表于 2024-8-3 12:44
+
+ 本帖最后由 空洞骑士 于 2024-8-3 12:45 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/03/124315bhkk30k0swhhkwk8.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-08-03_12-43-07.png</strong> (150.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-3 12:43 上传
+
+2024年8月8日发售。steam价格没出。日文版价格是3500日元
+[https://store.steampowered.com/a ... y_night_REMASTERED/](https://store.steampowered.com/app/2396980/Fatestay_night_REMASTERED/)
+
+
+*****
+
+####  LRSzwei  
+##### 50#       发表于 2024-8-3 13:01
+
+实体版都不愿意出，我买Steam版算了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  M_K  
+##### 51#       发表于 2024-8-3 13:03
+
+估计和魔夜价格差不多
+
+*****
+
+####  onemoment  
+##### 52#       发表于 2024-8-3 13:05
+
+fha也炒了
+
+
+*****
+
+####  takitaki  
+##### 53#       发表于 2024-8-3 13:13
+
+真没完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 54#         楼主| 发表于 2024-8-3 13:29
+
+《Fate/hollow ataraxia REMASTERED》制作决定。登陆 Steam/Switch 平台。 http://t.cn/A68OGhOx ​​​
+
+
+*****
+
+####  crosz1985  
+##### 55#       发表于 2024-8-3 13:35
+
+ns版没实体吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  找蟹男  
+##### 56#       发表于 2024-8-3 13:52
+
+没有18x不买
+
+
+*****
+
+####  alucardcz  
+##### 57#       发表于 2024-8-3 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梦里18x 也不想想cv阵容
+
+*****
+
+####  Shabadadoo  
+##### 58#       发表于 2024-8-3 13:57
+
+都仅数字版了，不给ps平台复制粘贴一份？
+
+
+*****
+
+####  社友者  
+##### 59#       发表于 2024-8-3 13:59
+
+remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  云梦泽岸  
+##### 60#       发表于 2024-8-3 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783381&amp;ptid=2170218" target="_blank">医生狼多 发表于 2024-8-3 13:29</a>
+《Fate/hollow ataraxia REMASTERED》制作决定。登陆 Steam/Switch 平台。 http://t.cn/A68OGhOx ​​​ ...</blockquote>
+锅还没擦就开始炒下一盘冷饭了。
+
+
+*****
+
+####  无动于衷  
+##### 61#       发表于 2024-8-3 14:41
+
+型月的18x有啥可看的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  噗呸破屁诚  
+##### 62#       发表于 2024-8-3 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783536&amp;ptid=2170218" target="_blank"> Shabadadoo 发表于 2024-8-3 13:57</a> 都仅数字版了，不给ps平台复制粘贴一份？ </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为人家移植就是psv版……来自: iPhone客户端
+
+
+*****
+
+####  ナルバレック  
+##### 63#       发表于 2024-8-3 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783536&amp;ptid=2170218" target="_blank">Shabadadoo 发表于 2024-8-3 13:57</a>
+
+都仅数字版了，不给ps平台复制粘贴一份？</blockquote>
+这就是小V版
+
+
+*****
+
+####  Shabadadoo  
+##### 64#       发表于 2024-8-3 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783860&amp;ptid=2170218" target="_blank">噗呸破屁诚 发表于 2024-8-3 14:58</a>
+因为人家移植就是psv版……</blockquote>
+对啊，那也给ps4复制一份啊
+
+
+*****
+
+####  jinxi42  
+##### 65#       发表于 2024-8-3 16:10
+
+我魔夜月姬都ps4，再来两个fateps4就收藏完了啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  SorroFrost  
+##### 66#       发表于 2024-8-3 16:17
+
+fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了
+
+
+*****
+
+####  M_K  
+##### 67#       发表于 2024-8-3 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839228&amp;ptid=2170218" target="_blank">罐子 发表于 2024-1-31 12:40</a>
+
+所以有没有R18中文版资源，求一个
+
+在手机上玩一下</blockquote>
+[krkr版](https://lzacg.org/2206)
+
+
+*****
+
+####  warjuggler  
+##### 68#       发表于 2024-8-3 18:01
+
+出个实体啊我擦 反正会买的都是月厨当贡品买来上贡的
+
+
+*****
+
+####  AeonsTorn  
+##### 69#       发表于 2024-8-3 19:36
+
+这是fha第一次复刻吗
+
+
+*****
+
+####  医生狼多  
+##### 70#         楼主| 发表于 2024-8-3 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65785794&amp;ptid=2170218" target="_blank">AeonsTorn 发表于 2024-8-3 19:36</a>
+这是fha第一次复刻吗</blockquote>
+也是psv版的
+
+
+*****
+
+####  清浦刹那  
+##### 71#       发表于 2024-8-3 19:59
+
+这次是没有豪华版吗？
+
+
+*****
+
+####  任天索尼子  
+##### 72#       发表于 2024-8-3 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65784411&amp;ptid=2170218" target="_blank">SorroFrost 发表于 2024-8-3 16:17</a>
+
+fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了</blockquote>
+淘个PSV版
+
+
+*****
+
+####  星花  
+##### 73#       发表于 2024-8-3 20:16
+
+刚发现e shop有这个，惊了。
+
+
+*****
+
+####  Acerola  
+##### 74#       发表于 2024-8-3 22:46
+
+竟然不出实体，还想收藏来着<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，只能凑活来份Steam版了
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  碎月  
+##### 75#       发表于 2024-8-3 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是能登演贝德维尔吗？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  760194962  
+##### 76#       发表于 2024-8-3 23:01
+
+<blockquote>SorroFrost 发表于 2024-8-3 16:17
+fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了</blockquote>
+空境有什么实体版
+
+*****
+
+####  760194962  
+##### 77#       发表于 2024-8-3 23:02
+
+买过ps2和psv两作的实体，不算贵，尤其ps2新星
+
+
+*****
+
+####  RPG-7  
+##### 78#       发表于 2024-8-3 23:45
+
+这次这个高清版有PS2那个加料结局吗
+
+
+*****
+
+####  噗呸破屁诚  
+##### 79#       发表于 2024-8-4 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65788511&amp;ptid=2170218" target="_blank"> RPG-7 发表于 2024-8-3 23:45</a> 这次这个高清版有PS2那个加料结局吗 </blockquote>
+有的，是12年psv版移植，甚至还有三个ufo做的酷酷的op来自: iPhone客户端
+
+
+*****
+
+####  千千千千鸟  
+##### 80#       发表于 2024-8-4 01:17
+
+2008年，我第一次在土豆网还是什么乱七八糟的网站上看到fate的动画片然后入宅了。确实有必要买一个
+
+
+*****
+
+####  SorroFrost  
+##### 81#       发表于 2024-8-4 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65788056&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-3 23:01</a>
+
+空境有什么实体版</blockquote>
+书啊zsbd
+
+
+*****
+
+####  南宫月汐  
+##### 82#       发表于 2024-8-4 10:46
+
+ha没h真不行吧
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 83#       发表于 2024-8-4 12:54
+
+实在不喜欢fha那个重制版op<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhouzongxing  
+##### 84#       发表于 2024-8-4 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除非重制，还是那种不砍h的重制，我这辈子估计不会再碰fsn和fha了
+
+至于语音，当年澄空就已经把ps的语音移植过了。当年花了一个暑假玩完的
+
