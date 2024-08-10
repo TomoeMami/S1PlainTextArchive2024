@@ -181,3 +181,1226 @@ B站上搜到她的live感觉有点录音室战神，但是现场还算可以，
 
 每次氪完都一阵空虚，告诉自己不要再氪了，结果出新角色还是忍不住，感觉自己已经被调教成一个立派的母猪了，手游真可怕
 
+*****
+
+####  Skyline_R  
+##### 1499#       发表于 2024-7-12 18:52
+
+BW展位的六个coser都好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BAKA林  
+##### 1500#       发表于 2024-7-14 11:19
+
+月歌coser有指路吗
+
+
+*****
+
+####  穗波殊  
+##### 1501#       发表于 2024-7-14 12:14
+
+司怜亲亲<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/42ba5d0e45756fd94aeb0e4259f237b2/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 1502#       发表于 2024-7-16 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65579659&amp;ptid=2050204" target="_blank">BAKA林 发表于 2024-7-14 11:19</a>
+
+月歌coser有指路吗</blockquote>
+小红书咪噜面面/抖音迷路面面，出片很少，而且小红书另一个号是美妆号，大概是随便找的搬砖的
+
+
+*****
+
+####  牙狼GARO  
+##### 1503#       发表于 2024-7-17 11:56
+
+公厕开了，抽卡教学的指定角色选哪个好一些，0氪蝗虫玩一段时间就丢了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  中已矣  
+##### 1504#       发表于 2024-7-17 12:13
+
+国服邀请互助有人填么：邀请码 jo9xldurawmbbv92
+
+
+*****
+
+####  英梨英梨梨  
+##### 1505#       发表于 2024-7-17 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65611143&amp;ptid=2050204" target="_blank">牙狼GARO 发表于 2024-7-17 11:56</a>
+
+公厕开了，抽卡教学的指定角色选哪个好一些，0氪蝗虫玩一段时间就丢了
+
+—— 来自 OnePlus LE2100, Android ...</blockquote>
+我看视频推荐国见玉
+
+*****
+
+####  英梨英梨梨  
+##### 1506#       发表于 2024-7-17 12:21
+
+cuj7h150i2vqt6vz
+
+输入好友邀请码~可以领1000钻~
+
+
+*****
+
+####  中已矣  
+##### 1507#       发表于 2024-7-17 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65611422&amp;ptid=2050204" target="_blank">英梨英梨梨 发表于 2024-7-17 12:21</a>
+
+cuj7h150i2vqt6vz
+
+输入好友邀请码~可以领1000钻~</blockquote>
+填了好友邀请，能回填么，在上面
+
+
+*****
+
+####  夫诸过处  
+##### 1508#       发表于 2024-7-17 12:46
+
+eh12npn30vs0pilq
+好友码，感谢，楼上的已填
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Aoye  
+##### 1509#       发表于 2024-7-17 13:08
+
+z6w71g7fvbsx4px2
+还没有填好友码，互助的话麻烦回复我一下～
+
+
+*****
+
+####  牙狼GARO  
+##### 1510#       发表于 2024-7-17 13:15
+
+g2g3l1ynqbz8r8jm
+我也来求个互助<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  CnIV  
+##### 1511#       发表于 2024-7-17 13:32
+
+h8t4a97if5pyl60o
+
+感谢，我填了楼上的
+
+
+*****
+
+####  叶雾  
+##### 1512#       发表于 2024-7-17 13:41
+
+如果只是过剧情随便打打，推荐星罗，是稀少的暴击拐，但后期会被淘汰完全用不上
+
+持续玩下去，强度上推荐选雷圣华
+
+
+*****
+
+####  月光的道标  
+##### 1513#       发表于 2024-7-17 13:54
+
+fu46e7q2liv4mhq2
+
+来互填一下~
+
+我把楼上的填了
+
+
+*****
+
+####  白首如新  
+##### 1514#       发表于 2024-7-17 15:01
+
+<img src="https://p.sda1.dev/18/627ea0df7b2cb35179dff736c0a87d4b/Snipaste_2024-07-17_14-59-28.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">混池捞旗袍圣华还是太难了，这几个咋组队
+
+
+*****
+
+####  bbyhxb  
+##### 1515#       发表于 2024-7-17 15:45
+
+不管什么游戏必得果然都是傻必<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qxs  
+##### 1516#       发表于 2024-7-17 17:20
+
+画的挺好看的，但是这个战斗和演出真的是，做成纸片人感觉观感能好一大截。另外，为什么8g3玩这游戏都卡卡的啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  柏木巡音  
+##### 1517#       发表于 2024-7-17 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65614990&amp;ptid=2050204" target="_blank">qxs 发表于 2024-7-17 17:20</a>
+
+画的挺好看的，但是这个战斗和演出真的是，做成纸片人感觉观感能好一大截。另外，为什么8g3玩这游戏都卡卡 ...</blockquote>
+草，我也是卡卡的
+
+
+*****
+
+####  三尖酸努努  
+##### 1518#       发表于 2024-7-17 18:44
+
+求个互助ykz4w9opukg5k2fn
+
+
+*****
+
+####  绯影汐岚  
+##### 1519#       发表于 2024-7-17 18:50
+
+楼上填了，snb6hz4rpzgib4f8来个互填
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  liu461  
+##### 1520#       发表于 2024-7-17 18:57
+
+已填楼上，互助iois0fj5cbp2p4g0 谢谢
+
+
+*****
+
+####  秦南心  
+##### 1521#       发表于 2024-7-17 19:07
+
+模拟器玩的也卡卡的，国服有没有像steam一样的pc端？
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1522#       发表于 2024-7-17 19:27
+
+不想把手机号送出去，于是B站买了个白号，进去游戏后强制要求实名，告辞。
+
+国产和国服代理手游这点真是太傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raimouse  
+##### 1523#       发表于 2024-7-17 19:34
+
+我就是因为强制实名不爱玩国产游戏
+
+而且也不方便刷初始号
+
+
+*****
+
+####  rp1993  
+##### 1524#       发表于 2024-7-17 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616071&amp;ptid=2050204" target="_blank">liu461 发表于 2024-7-17 18:57</a>
+已填楼上，互助iois0fj5cbp2p4g0 谢谢</blockquote>
+已填
+接龙 qbfxqcgsvvczvehx
+
+
+*****
+
+####  Vancion  
+##### 1525#       发表于 2024-7-17 19:51
+
+这邀请码只能填一次啊。。fu46e7q2liv4mhq2
+
+
+*****
+
+####  影之诱惑  
+##### 1526#       发表于 2024-7-17 20:13
+
+adzfh34hhi6xy15z
+
+
+*****
+
+####  zycilcy  
+##### 1527#       发表于 2024-7-17 21:02
+
+80s9r69cm0bx1fyr，互填谢谢
+
+
+*****
+
+####  darkendless  
+##### 1528#       发表于 2024-7-17 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617205&amp;ptid=2050204" target="_blank">zycilcy 发表于 2024-7-17 21:02</a>
+
+80s9r69cm0bx1fyr，互填谢谢</blockquote>
+已填，下面是我的
+
+xo7fkizra4wyql2h
+
+
+*****
+
+####  zycilcy  
+##### 1529#       发表于 2024-7-17 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617416&amp;ptid=2050204" target="_blank">darkendless 发表于 2024-7-17 21:19</a>
+
+已填，下面是我的
+
+xo7fkizra4wyql2h</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我填了楼上的
+
+*****
+
+####  zycilcy  
+##### 1530#       发表于 2024-7-17 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617416&amp;ptid=2050204" target="_blank">darkendless 发表于 2024-7-17 21:19</a>
+
+已填，下面是我的
+
+xo7fkizra4wyql2h</blockquote>
+我填了楼上的<[img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zukunes  
+##### 1531#       发表于 2024-7-17 22:27
+
+y5mee8zewkt7vzgv 来来互填
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  学长失格  
+##### 1532#       发表于 2024-7-17 22:43
+
+qa1udddlj38dbt4q  
+国服～大家来互填吧 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  游蜓  
+##### 1533#       发表于 2024-7-17 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618264&amp;ptid=2050204" target="_blank">zukunes 发表于 2024-7-17 22:27</a>
+y5mee8zewkt7vzgv 来来互填
+
+—— 来自 vivo V2301A, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+已填，27t0lbgw3tkwqecv，感谢
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  Toki_Ai  
+##### 1534#       发表于 2024-7-17 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618492&amp;ptid=2050204" target="_blank">游蜓 发表于 2024-7-17 22:47</a>
+已填，27t0lbgw3tkwqecv，感谢
+
+—— 来自 Xiaomi 2211133C, Android 14上的 S1Next-鹅版 v3.0.0.81-alph ...</blockquote>
+已填，zycqqzc6h7xjyth3，感谢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  saitohimea  
+##### 1535#       发表于 2024-7-18 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618593&amp;ptid=2050204" target="_blank">Toki_Ai 发表于 2024-7-17 22:57</a>
+
+已填，zycqqzc6h7xjyth3，感谢
+
+—— 来自 鹅球 v3.0.87-alpha</blockquote>
+wkf6lnkps2wknbst 已填
+
+
+*****
+
+####  mashino  
+##### 1536#       发表于 2024-7-18 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619660&amp;ptid=2050204" target="_blank">saitohimea 发表于 2024-7-18 00:42</a>
+wkf6lnkps2wknbst 已填</blockquote>
+xdsmjypwr01dv349 已填，感谢
+话说这游戏玩起来感觉有点卡卡的啊
+
+
+*****
+
+####  ardito  
+##### 1537#       发表于 2024-7-18 04:15
+
+卡就是原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AliceMilky  
+##### 1538#       发表于 2024-7-18 08:16
+
+yzvgxp7ei07dncam
+互填~
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  chivalry  
+##### 1539#       发表于 2024-7-18 08:59
+
+ 本帖最后由 chivalry 于 2024-7-18 09:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">求加好友，日服打到四章，国服肯定也要打下去的
+
+ek1xobuftbcgwln7
+
+
+*****
+
+####  amaori  
+##### 1540#       发表于 2024-7-18 09:16
+
+<blockquote>chivalry 发表于 2024-7-18 08:59
+求加好友，日服打到四章，国服肯定也要打下去的
+
+ek1xobuftbcgwln7</blockquote>
+ev15hhkk07ez2qj7
+
+求互填
+
+*****
+
+####  Acerola  
+##### 1541#       发表于 2024-7-18 09:17
+
+国服应该再有一两个月就是大岛姐妹了吧，直接攒石到时候抽个火队，能不能玩一年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  HinataY  
+##### 1542#       发表于 2024-7-18 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621316&amp;ptid=2050204" target="_blank">Acerola 发表于 2024-7-18 09:17</a>
+国服应该再有一两个月就是大岛姐妹了吧，直接攒石到时候抽个火队，能不能玩一年
+
+—— 来自 HONOR BVL-AN16 ...</blockquote>
+先拿下孔明和六妹
+
+
+*****
+
+####  cayon  
+##### 1543#       发表于 2024-7-18 09:36
+
+f2k34hlyhrfiopym 互助
+
+
+*****
+
+####  lightingstar  
+##### 1544#       发表于 2024-7-18 09:42
+
+a3hyzldb4s26pd0m
+
+互助，谢谢各位
+
+
+*****
+
+####  Acerola  
+##### 1545#       发表于 2024-7-18 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621329&amp;ptid=2050204" target="_blank">HinataY 发表于 2024-7-18 09:18</a>
+先拿下孔明和六妹</blockquote>
+原来现在不是和国际服刚出中文的版本一样啊，孔明还没出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  AliceMilky  
+##### 1546#       发表于 2024-7-18 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621504&amp;ptid=2050204" target="_blank">cayon 发表于 2024-7-18 09:36</a>
+f2k34hlyhrfiopym 互助</blockquote>
+已填
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  HinataY  
+##### 1547#       发表于 2024-7-18 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622095&amp;ptid=2050204" target="_blank">Acerola 发表于 2024-7-18 10:27</a>
+原来现在不是和国际服刚出中文的版本一样啊，孔明还没出
+
+—— 来自 HONOR BVL-AN16, Android 14上的 S1N ...</blockquote>
+说是一个月内会出，所以都说到时候再刷初始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  markava  
+##### 1548#       发表于 2024-7-18 11:56
+
+sjjgrb7jd56vju73 求互助，感谢
+
+*****
+
+####  markava  
+##### 1549#       发表于 2024-7-18 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621559&amp;ptid=2050204" target="_blank">lightingstar 发表于 2024-7-18 09:42</a>
+
+a3hyzldb4s26pd0m
+
+互助，谢谢各位</blockquote>
+已填，求互助
+
+
+*****
+
+####  上坂莲华  
+##### 1550#       发表于 2024-7-18 13:06
+
+楼上的我填了，我的baxzz91dlktautor求互助
+
+
+*****
+
+####  学长失格  
+##### 1551#       发表于 2024-7-18 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623969&amp;ptid=2050204" target="_blank">上坂莲华 发表于 2024-7-18 13:06</a>
+
+楼上的我填了，我的baxzz91dlktautor求互助</blockquote>
+你的我填了哦  <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+求互助：qa1udddlj38dbt4q
+
+
+*****
+
+####  精神  
+##### 1552#       发表于 2024-7-18 16:32
+
+n9mv44glrw5q9c25 来互注吧～
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ammoconda  
+##### 1553#       发表于 2024-7-18 18:49
+
+<blockquote>精神 发表于 2024-7-18 16:32
+n9mv44glrw5q9c25 来互注吧～
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+已填，470tad4erfyoialu 求互填谢谢
+
+
+*****
+
+####  YMS16M  
+##### 1554#       发表于 2024-7-18 20:41
+
+玩了一圈感觉还行
+
+但是月哥哥你怎么逮个人就洗澡的
+
+全院的女生都要被你看光了啊！
+
+
+*****
+
+####  见子Miko  
+##### 1555#       发表于 2024-7-18 21:38
+
+a70oovsk34mgfv25  有互填的吗
+
+
+*****
+
+####  Arson=desu  
+##### 1556#       发表于 2024-7-18 21:46
+
+ 本帖最后由 Arson=desu 于 2024-7-18 21:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629098&amp;ptid=2050204" target="_blank">见子Miko 发表于 2024-7-18 21:38</a>
+
+a70oovsk34mgfv25  有互填的吗</blockquote>
+td0rdakn8zuym6kk已填，诚信互刷<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  见子Miko  
+##### 1557#       发表于 2024-7-18 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629178&amp;ptid=2050204" target="_blank">Arson=desu 发表于 2024-7-18 21:46</a>
+
+td0rdakn8zuym6kk已填，诚信互刷</blockquote>
+填了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sycllxz  
+##### 1558#       发表于 2024-7-18 22:52
+
+cipyct808ecct1ze 有互填的吗
+
+
+*****
+
+####  zukunes  
+##### 1559#       发表于 2024-7-19 09:47
+
+五步池现在推荐抽吗？
+
+
+*****
+
+####  天气天气天气  
+##### 1560#       发表于 2024-7-19 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632181&amp;ptid=2050204" target="_blank">zukunes 发表于 2024-7-19 09:47</a>
+五步池现在推荐抽吗？</blockquote>
+不建议，这里有wiki可以去看一下
+https://www.gamekee.com/hbr/
+
+
+*****
+
+####  ArgentDawn  
+##### 1561#       发表于 2024-7-19 14:59
+
+如果是作为完全的新号起步状态，当前是只推荐投入AB联动池抽卡吗
+
+（也不能完全不抽，一边等签到赠送一边用A卡推图吧）
+
+
+*****
+
+####  chivalry  
+##### 1562#       发表于 2024-7-19 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说国服这个超加速系统有没有改，我当初日服就是因为 sb 宝石迷宫和装备迷宫太痛苦了要自己走自动也难打才含泪弃坑的
+
+
+*****
+
+####  虚数存在感  
+##### 1563#       发表于 2024-7-19 20:31
+
+国服这几个用券抽的池子后面会更新吗?还是直接用掉就好
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  秦南心  
+##### 1564#       发表于 2024-7-19 20:47
+
+<img src="https://img.saraba1st.com/forum/202407/19/204703aw052glwswgs57ij.png" referrerpolicy="no-referrer">
+
+<strong>8C94745C6C111206A0814C73DBF081A8.png</strong> (942.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 20:47 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skyline_R  
+##### 1565#       发表于 2024-7-19 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65566375&amp;ptid=2050204" target="_blank">Skyline_R 发表于 2024-7-12 18:52</a>
+
+BW展位的六个coser都好可爱</blockquote>
+整理了六位coser的帐号，除了月歌以外都是bilibili的ID，B站直接搜ID就能关注
+
+【月歌】@迷路面面
+[https://www.xiaohongshu.com/user/profile/5a6f4490e8ac2b69f82f8f9f](https://www.xiaohongshu.com/user/profile/5a6f4490e8ac2b69f82f8f9f)
+
+【Yuki】@一束阿束
+[https://www.xiaohongshu.com/user/profile/5e22fe3b0000000001002265](https://www.xiaohongshu.com/user/profile/5e22fe3b0000000001002265)
+[https://www.douyin.com/user/MS4w ... Llt3Cj2PVvMKFxLU4u8](https://www.douyin.com/user/MS4wLjABAAAAphhAsaM46qAHryIlNtB0ZTGKLlt3Cj2PVvMKFxLU4u8)
+
+【司】@兔x2
+[https://weibo.com/u/3586120705](https://weibo.com/u/3586120705)
+[https://www.xiaohongshu.com/user/profile/5bf967d151783a602452f0c2](https://www.xiaohongshu.com/user/profile/5bf967d151783a602452f0c2)
+
+【可怜】@十万个小陆
+[https://weibo.com/1828704871](https://weibo.com/1828704871)
+[https://www.xiaohongshu.com/user/profile/5b858c9909b2740001dc8780](https://www.xiaohongshu.com/user/profile/5b858c9909b2740001dc8780)
+[https://www.douyin.com/user/MS4w ... D7UjwTpZQXGiLk-x0EA](https://www.douyin.com/user/MS4wLjABAAAAIfqg8Ti2rI87TZU9nVWkVbBfD7UjwTpZQXGiLk-x0EA)
+
+【惠】@夏芽yaya
+[https://weibo.com/u/1750515841](https://weibo.com/u/1750515841)
+[https://www.xiaohongshu.com/user/profile/64b0b6c4000000000b0163f7](https://www.xiaohongshu.com/user/profile/64b0b6c4000000000b0163f7)
+[https://www.douyin.com/user/MS4w ... 6Q-AxXPaRWlCCmH0hRg](https://www.douyin.com/user/MS4wLjABAAAA4uxH0wWn9e-X_o1lYpET37_m6Q-AxXPaRWlCCmH0hRg)
+
+【玉】@鲨鱼SAME
+[https://weibo.com/u/2815614110](https://weibo.com/u/2815614110)
+[https://www.douyin.com/user/MS4w ... QmmRXwcM-mSEF4cCcTA](https://www.douyin.com/user/MS4wLjABAAAAH5jhXqjsdy131SptJiOzMD4eQmmRXwcM-mSEF4cCcTA)
+
+
+*****
+
+####  Acerola  
+##### 1566#       发表于 2024-7-19 23:51
+
+出了小奏，安心等孔明了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  居于月上伊莫库  
+##### 1567#       发表于 2024-7-20 01:28
+
+试着蝗一波<img src="https://static.saraba1st.com/image/smiley/face2017/228.gif" referrerpolicy="no-referrer">：qad8jss0v6jrr9er
+
+*****
+
+####  居于月上伊莫库  
+##### 1568#       发表于 2024-7-20 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629771&amp;ptid=2050204" target="_blank">sycllxz 发表于 2024-7-18 22:52</a>
+
+cipyct808ecct1ze 有互填的吗</blockquote>
+已填<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  6833041  
+##### 1569#       发表于 2024-7-20 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641498&amp;ptid=2050204" target="_blank">居于月上伊莫库 发表于 2024-7-20 01:28</a>
+
+试着蝗一波：qad8jss0v6jrr9er</blockquote>
+47b8728evjfddo8q，来互填
+
+
+*****
+
+####  6030sylar  
+##### 1570#       发表于 2024-7-20 08:24
+
+zovs743j7t1byv07，我也来求一个互填
+
+*****
+
+####  6030sylar  
+##### 1571#       发表于 2024-7-20 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641625&amp;ptid=2050204" target="_blank">6833041 发表于 2024-7-20 02:11</a>
+
+47b8728evjfddo8q，来互填</blockquote>
+      已填
+
+
+*****
+
+####  -Vanitas-  
+##### 1572#       发表于 2024-7-20 09:59
+
+多久能攒一井？
+
+
+*****
+
+####  zero31415  
+##### 1573#       发表于 2024-7-20 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642189&amp;ptid=2050204" target="_blank">6030sylar 发表于 2024-7-20 08:24</a>
+
+zovs743j7t1byv07，我也来求一个互填</blockquote>
+已填，vs3y4667i20m0jtj
+
+
+*****
+
+####  怪叔叔木易  
+##### 1574#       发表于 2024-7-21 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642651&amp;ptid=2050204" target="_blank">-Vanitas- 发表于 2024-7-20 09:59</a>
+多久能攒一井？</blockquote>
+半年左右
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  Skyline_R  
+##### 1575#       发表于 2024-7-21 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642651&amp;ptid=2050204" target="_blank">-Vanitas- 发表于 2024-7-20 09:59</a>
+
+多久能攒一井？</blockquote>
+国服一井降到了日服80%，而且送得多一点，四个半月左右？愿意氪月卡应该能干到4个月内，甚至有人说3个月就行，但我没氪也没算过，你自己看看吧
+
+
+*****
+
+####  2017.05.04  
+##### 1576#       发表于 2024-7-21 21:26
+
+下了个玩玩，AB这个联动也太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集预告没把我笑死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：绷不住了要笑出来了
+
+
+*****
+
+####  liu461  
+##### 1577#       发表于 2024-7-21 23:29
+
+麻子搞笑功力还是在的，虽然你油现在凉的不行，但意外的还挺对我这种老人的胃口。。<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+希望叔叔能多撑一会吧
+
+
+*****
+
+####  HinataY  
+##### 1578#       发表于 2024-7-21 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658577&amp;ptid=2050204" target="_blank">liu461 发表于 2024-7-21 23:29</a>
+麻子搞笑功力还是在的，虽然你油现在凉的不行，但意外的还挺对我这种老人的胃口。。
+
+希望叔叔能多撑一会吧 ...</blockquote>
+来国际服或日服啊，进度一样都是fjs直营的，现在2.5周年送的太多了，很容易就能搞出暗队或雷队两位爷✌️
+
+
+*****
+
+####  HDRorz  
+##### 1579#       发表于 2024-7-22 00:29
+
+求互助
+ko004ex4ij6dj347
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  chivalry  
+##### 1580#       发表于 2024-7-22 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658706&amp;ptid=2050204" target="_blank">HinataY 发表于 2024-7-21 23:40</a>
+来国际服或日服啊，进度一样都是fjs直营的，现在2.5周年送的太多了，很容易就能搞出暗队或雷队两位爷✌️ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">之前从日服退的，主要就是氪金太费劲了，玩还是想好好玩的
+
+
+*****
+
+####  Raven314  
+##### 1581#       发表于 2024-7-22 10:05
+
+e341kwz8cvkmo11o
+已过二章day10求互助<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zukunes  
+##### 1582#       发表于 2024-7-22 11:09
+
+这游戏叔叔代理的我都怕<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，叔叔代理日服游戏，能坚持一年吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 1583#       发表于 2024-7-22 18:33
+
+馋牢苍身子了，牢苍那些皮什么时候出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sin.yugi  
+##### 1584#       发表于 2024-7-23 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65666515&amp;ptid=2050204" target="_blank">上坂莲华 发表于 2024-7-22 05:33</a>
+
+馋牢苍身子了，牢苍那些皮什么时候出来</blockquote>
+牢苍原皮国服已经有了，女仆皮 参考日服2月开始联动AB，黄金周出的女仆，算算时间
+
+
+*****
+
+####  无聊者X  
+##### 1585#       发表于 2024-7-23 18:09
+
+刚开始玩，感觉活动商店搬不完，有什么刷起来很快的办法吗
+
+
+*****
+
+####  chivalry  
+##### 1586#       发表于 2024-7-23 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675871&amp;ptid=2050204" target="_blank">无聊者X 发表于 2024-7-23 18:09</a>
+刚开始玩，感觉活动商店搬不完，有什么刷起来很快的办法吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能打高难的就好刷，但是我当时日服入坑的时候已经有孔明和星罗了，活动 boss 好打的一逼，现在完全不会了
+
+
+*****
+
+####  genki  
+##### 1587#       发表于 2024-7-23 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661232&amp;ptid=2050204" target="_blank">Raven314 发表于 2024-7-22 10:05</a>
+
+e341kwz8cvkmo11o
+
+已过二章day10求互助</blockquote>
+avnum0cun2qsc74k
+
+已过已填<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Raven314  
+##### 1588#       发表于 2024-7-23 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65676864&amp;ptid=2050204" target="_blank">genki 发表于 2024-7-23 20:01</a>
+avnum0cun2qsc74k
+
+已过已填</blockquote>
+谢谢 已经也给你填了
+
+
+*****
+
+####  Raven314  
+##### 1589#       发表于 2024-7-23 20:28
+
+b站填邀请码一堆白嫖，写的互助结果都填了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+这机制叔叔就没优化一下，小号又不好开
+
+
+*****
+
+####  国立凛凛  
+##### 1590#       发表于 2024-7-23 20:35
+
+这玩意日服基本都是tb解决的吧
+
+
+*****
+
+####  影之诱惑  
+##### 1591#       发表于 2024-7-24 01:24
+
+哪位哥哥不小心填了我我可以回填的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bbyhxb  
+##### 1592#       发表于 2024-7-24 13:51
+
+之前付费必得黑的要死，结果今天免费石抽buffer池一发就出了旗袍圣华。
+傻必果然是傻必<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+
+*****
+
+####  disinter  
+##### 1593#       发表于 2024-7-24 19:38
+
+ycwnwnj1nrotu9x9
+试玩一下
+
+—— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  chivalry  
+##### 1594#       发表于 2024-7-25 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">继续求互助
+
+ek1xobuftbcgwln7
+
+*****
+
+####  Toki_Ai  
+##### 1595#       发表于 2024-7-25 08:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">没井别下池，炸了
+
+
+*****
+
+####  lightingstar  
+##### 1596#       发表于 2024-7-25 12:30
+
+玩起来体验感觉挺好的，希望国服能坚持住
+
+国际服是不是需要谷歌框架?我这华为手机就没办法了，能有国服还是挺好的
+
+
+*****
+
+####  柏木巡音  
+##### 1597#       发表于 2024-7-25 21:05
+
+这池子太毒了，小号狂保底，S都不多发一个
+
+
+*****
+
+####  chivalry  
+##### 1598#       发表于 2024-7-27 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">麻了，当初日服开坑就有旗袍圣华+孔明的豪华配置，玩起来非常舒服，这次想自己抽一个沉的我快弃坑了，这旗袍圣华多久贬值，能等到西服小玉吗
+
+
+*****
+
+####  Acerola  
+##### 1599#       发表于 2024-7-28 17:26
+
+高难等级上来能抗住还挺好打的，这联动BOSS算是小奏为数不多的售后吧，印象里去年日服联动活动刚过就给了个光抗性的BOSS，一点面子都不给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/28/172546ol9jqhrj7haa7r79.png" referrerpolicy="no-referrer">
+
+<strong>b34b7ca63fdcad2426eaf6e33ec4b468.png</strong> (429.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 17:25 上传
+
+
+*****
+
+####  ardito  
+##### 1600#       发表于 2024-7-29 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715195&amp;ptid=2050204" target="_blank">chivalry 发表于 2024-7-27 17:16</a>
+
+麻了，当初日服开坑就有旗袍圣华+孔明的豪华配置，玩起来非常舒服，这次想自己抽一个沉的我快弃坑了，这旗 ...</blockquote>
+还是能用到西装玉上线的，够保值了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chivalry  
+##### 1601#       发表于 2024-7-29 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65731377&amp;ptid=2050204" target="_blank">ardito 发表于 2024-7-29 11:14</a>
+还是能用到西装玉上线的，够保值了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">buff 池除了圣华都出来了，我真的日了狗
+
+
+*****
+
+####  catcoffee  
+##### 1602#       发表于 2024-7-29 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">国服这ab联动活动时间给这么短, 奖励真的拿的完?
+
+
+*****
+
+####  Toki_Ai  
+##### 1603#       发表于 2024-7-29 15:17
+
+下半也是ab的池子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YMS16M  
+##### 1604#       发表于 2024-7-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65733403&amp;ptid=2050204" target="_blank">catcoffee 发表于 2024-7-29 14:34</a>
+
+国服这ab联动活动时间给这么短, 奖励真的拿的完?</blockquote>
+没问题啊。一天送12体力呢。
+
+你全刷了肯定拿完了。
+
+
+*****
+
+####  bbyhxb  
+##### 1605#       发表于 2024-7-29 17:18
+
+AB活动先别刷完，下期打分给的还是AB的币
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+
+*****
+
+####  catcoffee  
+##### 1606#       发表于 2024-7-30 15:32
+
+推完第二章, 阶梯池正好出个aoi
+
+杀人诛心了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  中已矣  
+##### 1607#       发表于 2024-8-1 12:24
+
+打完两次高分挑战基本ab池子就拿的差不多了吧，最后打几把棱镜战就空了
+
+
+*****
+
+####  上坂莲华  
+##### 1608#       发表于 2024-8-1 23:06
+
+职阶池把牢苍捞出来了，牢苍，我的牢苍<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 1609#       发表于 2024-8-2 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poor  
+##### 1610#       发表于 2024-8-2 22:42
+
+话说国际服的打分章BUG修好没有？体力石溢出了不太想点进去看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chivalry  
+##### 1611#       发表于 2024-8-3 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">哎日服来了一遍，而且后面异时层好几遍应该脱敏了，国服又来了一遍 aoi 还是绷不住。我一直觉得 2 章是个分水岭，如果打完二章还没什么感觉就应该抛弃这个垃圾游戏了……
+分享麻枝准/やなぎなぎ的单曲《White Spell》[http://163cn.tv/v86UxcI](http://163cn.tv/v86UxcI) (@网易云音乐)
+再来一遍次aoi 入阵曲
+
+
+*****
+
+####  lxshhh  
+##### 1612#       发表于 2024-8-4 22:33
+
+懒人图nice
+
+<img src="https://img.saraba1st.com/forum/202408/04/223014zc1gpcfipyllp1wp.png" referrerpolicy="no-referrer">
+
+<strong>20240804222948.png</strong> (96.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/223014wsm813818wcgk7g8.png" referrerpolicy="no-referrer">
+
+<strong>20240804222955.png</strong> (82.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:30 上传
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 1613#       发表于 2024-8-5 21:54
+
+今天抽到了原皮水濑莓和雷白河学姐，因为都是雷属性就上wiki看了眼数值。想请教一下为什么这俩一个单体一个群体，大招倍率却差不多？
+<img src="https://p.sda1.dev/18/40c876c8fd3ef9834f7df6abef59dcb7/CMP_20240805215130851.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c715dfed28a2958ff6c7866781229274/CMP_20240805215130930.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Edward0901  
+##### 1614#       发表于 2024-8-6 17:29
+
+明天8月7日12点buffer卡池要关闭了，要井旗袍圣华的朋友抓紧了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+主线、邀请、交流剧情、记忆之庭记忆修复、活动代码兑换，都可以获得大量石头，
+
+缺的不多可以试着肝肝看
+
+
+*****
+
+####  Edward0901  
+##### 1615#       发表于 2024-8-8 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">b服这加速的这么狠，四妹六妹-雷tama-孔明，扎堆了
+
