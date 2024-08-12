@@ -1522,3 +1522,117 @@ Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的
 
 复播咯
 
+*****
+
+####  Map-2  
+##### 135#       发表于 2024-8-5 21:51
+
+ 本帖最后由 Map-2 于 2024-8-5 21:53 编辑 
+
+<img src="https://p.sda1.dev/18/5a7df8a39f80f38e9e594aa5ff9f1bc2/IMG_CMP_162329488.png" referrerpolicy="no-referrer">要B限了
+又是乐府带路的吗？
+
+
+*****
+
+####  tansapple  
+##### 136#       发表于 2024-8-6 11:55
+
+龟龟那边时差和这里差7小时的，搞不了b限吧，最多就是同步分流。
+
+
+*****
+
+####  与天争锋_L  
+##### 137#       发表于 2024-8-6 19:10
+
+我超，乐府买的推广太足了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  帕林马哲理  
+##### 138#       发表于 2024-8-6 22:45
+
+讲真，这才是真正的virtual UTuber.俺今天才知道有Vedal这种堂吉诃德，已经被neuro迷住了。
+
+
+*****
+
+####  病態極端  
+##### 139#       发表于 2024-8-7 14:26
+
+<img src="https://p.sda1.dev/18/46ced232789aa0c570ba60dcf985474a/neuro3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f8bd683dbf1e1eb806d0dfb6e5a83e89/neuro2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/838d13a4908884c07b38b80b8bce065a/neuro4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/877fc5f9ee097fdc490f002b6950e6f0/neuro5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c5fa6395537df4a948b8bee53e632f5e/neuro0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e8fb6c5e1ff8aef270ddfe060bd392db/neuro1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tansapple  
+##### 140#       发表于 2024-8-7 16:21
+
+昨天半夜直播我还奇怪b站啥时候那么多牛肉粉了，明明平时切片都没几个人留言，后来想想这应该是官方推广引流的结果，乐府这推广力度也太猛了，龟龟到底开了个什么价？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  与天争锋_L  
+##### 141#       发表于 2024-8-8 13:56
+
+哈人，已经40万粉了，再过几天别把t台超了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  tansapple  
+##### 142#       发表于 2024-8-8 16:22
+
+T台都是活人，b站这关注人数水分太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Wondering  
+##### 143#         楼主| 发表于 2024-8-8 18:14
+
+好久没看这里了，尼楼要火了吗
+
+
+*****
+
+####  kykawaiii  
+##### 144#       发表于 2024-8-9 12:10
+
+明显没火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  Totokei  
+##### 145#       发表于 2024-8-9 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢感觉最近入驻b站有毒
+
+filian感觉同时入驻和爆炸
+mr beast入驻没几天也炸了
+
+现在牛肉？
+
+
+*****
+
+####  Vneeto  
+##### 146#       发表于 2024-8-9 19:43
+
+才想起这里有专楼，我还占过前排
+
