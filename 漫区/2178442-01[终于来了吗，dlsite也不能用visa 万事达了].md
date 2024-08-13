@@ -1570,3 +1570,30 @@ jcb 测试的2日元没事, 买点的时候就不成了. 有意思.
 
 最近换了jcb，已经完全无障碍了。欧米鬼畜真的不做人。
 
+*****
+
+####  yone00000  
+##### 150#       发表于 2024-8-9 20:15
+
+fantia不能用vias mastercard的时候我还以为虎穴就不能用了，结果到今天才官宣
+
+[https://news.toranoana.jp/notification/290574](https://news.toranoana.jp/notification/290574)
+
+
+*****
+
+####  飞叶  
+##### 151#       发表于 2024-8-10 03:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">fantia好像绑不上国内的JCB，不过已经断了 再续也没意义了
+
+
+*****
+
+####  猫坤  
+##### 152#       发表于 2024-8-10 14:39
+
+<blockquote>飞叶 发表于 2024-8-10 03:38
+fantia好像绑不上国内的JCB，不过已经断了 再续也没意义了</blockquote>
+没有啊，我还在用呢
+
