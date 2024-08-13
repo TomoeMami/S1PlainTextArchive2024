@@ -717,3 +717,12 @@ xbox不配拥有吗？</blockquote>
 
 目前这个试玩就是中规中矩吧，独立游戏魂游水平
 
+*****
+
+####  n5965315  
+##### 73#       发表于 2024-8-10 16:54
+
+看了ign新发的上手前瞻也说是魂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+国区魂类 欧美枪车球类
+
