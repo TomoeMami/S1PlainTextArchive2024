@@ -3283,3 +3283,1190 @@ zelda.jpg
 
 盲猜表世界塞尔达，里世界林克<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  佛罗伦萨  
+##### 322#       发表于 2024-8-5 21:08
+
+牛啊，看完新预告可以放心预定了
+
+*****
+
+####  mishizuo  
+##### 323#       发表于 2024-8-5 21:11
+
+新预告片顶顶
+
+
+*****
+
+####  crosz1985  
+##### 324#       发表于 2024-8-5 21:15
+
+等不及了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 325#       发表于 2024-8-5 21:16
+
+同步这个性能太牛逼了，怎么还有两个月啊等不了了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  king520kyo  
+##### 326#       发表于 2024-8-5 21:16
+
+同步这个系统有点意思啊
+
+*****
+
+####  ace8848  
+##### 327#       发表于 2024-8-5 21:21
+
+这都散装，秋直没了？
+
+
+*****
+
+####  sslink  
+##### 328#       发表于 2024-8-5 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65807792&amp;ptid=2188108" target="_blank">ace8848 发表于 2024-8-5 21:21</a>
+
+这都散装，秋直没了？</blockquote>
+9月就发售了，等秋直再宣传这游戏还要不要卖了
+
+*****
+
+####  ace8848  
+##### 329#       发表于 2024-8-5 21:24
+
+<blockquote>sslink 发表于 2024-8-5 21:23
+9月就发售了，等秋直再宣传这游戏还要不要卖了</blockquote>
+忘了发售日，我的错。。。
+
+
+*****
+
+####  冷泉夜月  
+##### 330#       发表于 2024-8-5 21:28
+
+2D究极手<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  thez  
+##### 331#       发表于 2024-8-5 21:34
+
+同步技能惊了，这可比究极手用处多
+
+*****
+
+####  医生狼多  
+##### 332#         楼主| 发表于 2024-8-5 21:35
+
+#塞尔达传说智慧的再现# 漫游海拉鲁的方法ー「大地篇」公布 http://t.cn/A68YlOJk ​​​
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+
+*****
+
+####  孔方兄  
+##### 333#       发表于 2024-8-5 21:38
+
+看上去好棒啊
+
+*****
+
+####  佛罗伦萨  
+##### 334#       发表于 2024-8-5 21:40
+
+感觉明天会有下一个预告，介绍地底迷宫的。应该不用等一星期吧，还有Amiibo没公布呢
+
+
+*****
+
+####  karastar  
+##### 335#       发表于 2024-8-5 21:51
+
+感觉还有两个能力要介绍
+
+
+*****
+
+####  血狂毘沙门  
+##### 336#       发表于 2024-8-5 21:54
+
+这次的地图感觉会很开放？都能拽着鸟上天了
+
+
+*****
+
+####  leonlink  
+##### 337#       发表于 2024-8-5 22:01
+
+究极究极手
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  s32244153  
+##### 338#       发表于 2024-8-5 22:07
+
+什么究极懒人能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  敏感词好多  
+##### 339#       发表于 2024-8-5 22:09
+
+爽死了，复制加同步，不敢想象到时候有多好玩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  三尖酸努努  
+##### 340#       发表于 2024-8-5 22:13
+
+新宣传片介绍了地图各个区域，最重要是介绍了新功能同步，自由度高还能随意切换，看着就有意思啊，进一步丰富了玩法。最后还实锤了有里世界，太想玩了
+
+*****
+
+####  SakuraAyane  
+##### 341#       发表于 2024-8-5 22:13
+
+没有利特族？可能是因为在众神的三角力量的时间线还没有这个种族？
+
+*****
+
+####  downnote  
+##### 342#       发表于 2024-8-5 22:16
+
+但丰富了我又有些担心最后又变成实操就靠一两个惯用搭配，而一大堆是没啥用就增加列表数量过干瘾的。
+
+
+*****
+
+####  胶布  
+##### 343#       发表于 2024-8-5 22:19
+
+塞尔达不会真的没有普通攻击能力吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  西多士  
+##### 344#       发表于 2024-8-5 22:28
+
+<blockquote>血狂毘沙门 发表于 2024-8-5 21:54
+这次的地图感觉会很开放？都能拽着鸟上天了</blockquote>
+4个气候的区域仍然不分先后吧
+
+*****
+
+####  西多士  
+##### 345#       发表于 2024-8-5 22:29
+
+<blockquote>胶布 发表于 2024-8-5 22:19
+塞尔达不会真的没有普通攻击能力吧
+
+—— 来自 S1Fun</blockquote>
+射箭怎么也会有吧，这传统设定啊
+
+*****
+
+####  hu794  
+##### 346#       发表于 2024-8-5 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808429&amp;ptid=2188108" target="_blank">三尖酸努努 发表于 2024-8-5 22:13</a>
+新宣传片介绍了地图各个区域，最重要是介绍了新功能同步，自由度高还能随意切换，看着就有意思啊，进一步丰 ...</blockquote>
+里世界可能对应神庙，感觉不要过度期待。
+
+
+*****
+
+####  iqbsh38  
+##### 347#       发表于 2024-8-5 22:41
+
+希望有更多好看的衣服 默认的村姑装确实不好看
+
+*****
+
+####  holomoon  
+##### 348#       发表于 2024-8-5 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808436&amp;ptid=2188108" target="_blank">SakuraAyane 发表于 2024-8-5 22:13</a>
+
+没有利特族？可能是因为在众神的三角力量的时间线还没有这个种族？</blockquote>
+PV开始大地图左上有颗大树，大概跟利特族有关吧
+
+
+*****
+
+####  chdhdhd  
+##### 349#       发表于 2024-8-5 22:55
+
+我觉得预告不太行。
+
+虽然显然游戏不差，但没有特别燃起期待的要素，大概是还没上正菜
+
+另外就是本来期待作为2d塞作品，相对更回归传统的路线，结果看起来反而好像是把2d塞也改成往野炊/王泪路线做了
+
+希望下个预告可以看到迷宫要素的介绍
+
+
+*****
+
+####  woui003woui  
+##### 350#       发表于 2024-8-5 23:03
+
+鉴于野炊纪录片就提了做野炊是先做2d玩法验证再做3d，我觉得智慧复现本来就是为了使用野炊/王泪开发期间的2d资料（）比新2d往野炊王泪方向做概率更大
+
+*****
+
+####  downnote  
+##### 351#       发表于 2024-8-5 23:07
+
+2D作里面都没有利特族？像小人帽这种有天空神殿的都没有利特族
+
+
+*****
+
+####  windhawind2  
+##### 352#       发表于 2024-8-5 23:20
+
+这预告nb了 能在2d里把高度玩出花来
+
+
+*****
+
+####  nancygreenlife  
+##### 353#       发表于 2024-8-5 23:31
+
+这能力可太有意思了
+
+
+*****
+
+####  Wondering  
+##### 354#       发表于 2024-8-5 23:42
+
+我去，好有意思的功能，同步绝对比复制有意思太多了，复制功能出的时候我还以为老任没活了，又出这种类似功能，已经品鉴太多了，同步功能简直打了我的脸，刚开始还以为是究极手复刻，没想到上限这么高，属实惊人
+
+*****
+
+####  Wondering  
+##### 355#       发表于 2024-8-5 23:43
+
+妈的怎么还有两个月才能玩到，急急急
+
+
+*****
+
+####  天风绯炎  
+##### 356#       发表于 2024-8-5 23:46
+
+能刷前代塞尔达Amiibo，整出天剑塞、野炊塞、王泪塞的皮肤吗
+
+*****
+
+####  kuarwbwe  
+##### 357#       发表于 2024-8-5 23:47
+
+ 本帖最后由 kuarwbwe 于 2024-8-5 23:51 编辑 
+
+发重了，同下
+
+Screenshot_20240805_234612.jpg
+(35.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 23:46 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/234637g1vfz8f82xpc92t2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Wondering  
+##### 358#       发表于 2024-8-5 23:49
+
+ 本帖最后由 Wondering 于 2024-8-5 23:50 编辑 
+
+说真的，同步能力有王泪pv第一次看见通天术，马惊pv第一次看见惊奇种子那感觉了，那是真的震撼到我了，可惜王泪对通天术这个上限极高的能力应用还是有点有限，并没有我想象的能完美利用通天术的超大型迷宫，挺失望的，而这个pv所展示的同步能力的应用就感觉牛逼疯了
+
+*****
+
+####  kuarwbwe  
+##### 359#       发表于 2024-8-5 23:49
+
+ 本帖最后由 kuarwbwe 于 2024-8-5 23:50 编辑 
+
+发重了，编辑
+
+*****
+
+####  kuarwbwe  
+##### 360#       发表于 2024-8-5 23:50
+
+**的鬼佬也说这作应该叫林克传说。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 361#       发表于 2024-8-5 23:56
+
+游戏官网里出现了一些pv没有出现过的新图和短视频，有兴趣的可以去看看。
+
+
+*****
+
+####  kuarwbwe  
+##### 362#       发表于 2024-8-6 00:09
+
+看完了，我急了。好想玩，塞尔达传说智慧的再现啊。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SAKURAJIMAI  
+##### 363#       发表于 2024-8-6 00:56
+
+急急急急急急
+
+*****
+
+####  hl氏  
+##### 364#       发表于 2024-8-6 00:56
+
+预想外的大制作，本以为可能是比梦见岛大点的规模，从PV看来地图意外的很大，还用上了马
+
+
+*****
+
+####  liekong  
+##### 365#       发表于 2024-8-6 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808877&amp;ptid=2188108" target="_blank">downnote 发表于 2024-8-5 23:07</a>
+
+2D作里面都没有利特族？像小人帽这种有天空神殿的都没有利特族</blockquote>
+小人帽毕竟在官方时间线中很靠前，利特族在设定中出现的官方时间线的位置很晚...
+
+
+*****
+
+####  日日日日日野  
+##### 366#       发表于 2024-8-6 01:44
+
+看上去，这个塞尔达就完全不能战斗了，只能靠召唤
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 367#       发表于 2024-8-6 02:08
+
+双向究极手！
+
+
+*****
+
+####  岸波  
+##### 368#       发表于 2024-8-6 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808877&amp;ptid=2188108" target="_blank">downnote 发表于 2024-8-5 23:07</a>
+2D作里面都没有利特族？像小人帽这种有天空神殿的都没有利特族</blockquote>
+按照官方给的时间线走的话，利特族是直到风之杖才由佐拉族进化而来的。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  xbhuang  
+##### 369#       发表于 2024-8-6 08:14
+
+看到同步我想到了一个玩法
+就是同步林克，然后林克和塞尔达切换解密
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  heseran  
+##### 370#       发表于 2024-8-6 08:16
+
+急急急急急
+
+
+*****
+
+####  嘉术2015  
+##### 371#       发表于 2024-8-6 08:35
+
+看到2d版王泪我突然想到，任天堂什么时候能把野吹访谈里提到过的2d野吹demo放出来让大家瞧瞧
+
+*****
+
+####  林檎  
+##### 372#       发表于 2024-8-6 08:37
+
+同步这个点子有意思
+
+
+*****
+
+####  kuarwbwe  
+##### 373#       发表于 2024-8-6 08:58
+
+说起来这作不会有专属直面会了吧？感觉几个视频基本说的七七八八了啊。这么看感觉这作给的资源应该到不了惊奇的的程度吧。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 374#       发表于 2024-8-6 09:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">居然需要马？这么大？而且不光主世界，还有缝隙世界呢
+
+
+*****
+
+####  JOJOROY  
+##### 375#       发表于 2024-8-6 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810454&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-8-6 08:58</a>
+说起来这作不会有专属直面会了吧？感觉几个视频基本说的七七八八了啊。这么看感觉这作给的资源应该到不了惊 ...</blockquote>
+有没有专属直面会又不是判断有没有资源的标准，宣发的大头是核心玩家不太关心的广告投放
+
+
+*****
+
+####  kuarwbwe  
+##### 376#       发表于 2024-8-6 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810479&amp;ptid=2188108" target="_blank">JOJOROY 发表于 2024-8-6 09:02</a>
+
+有没有专属直面会又不是判断有没有资源的标准，宣发的大头是核心玩家不太关心的广告投放 ...</blockquote>
+懂了，不太了解老任的宣发和标准。感谢。
+
+
+*****
+
+####  克里斯邓恩  
+##### 377#       发表于 2024-8-6 09:12
+
+有一说一，不是用手上的机子玩，还是想玩到稳60帧的，梦见岛的开图25-45帧犹在眼前
+
+
+*****
+
+####  bill910  
+##### 378#       发表于 2024-8-6 09:21
+
+第一个宣传片有说过林克就在里世界，萨尔达到了里世界应该可以与林克产生互动的吧？结合同步能力，说不定公主也有林克的剑术能力
+
+
+*****
+
+####  otakun  
+##### 379#       发表于 2024-8-6 09:28
+
+塞尔达公主去到里世界发现林克已经阵亡，悲伤万分过后跟林克尸体进行同步，打败盖农<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ubiquity  
+##### 380#       发表于 2024-8-6 09:48
+
+<img src="https://img.saraba1st.com/forum/202408/06/094647glmmbmrqr0qbk0r3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240806_094344.jpg</strong> (143.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 09:46 上传
+
+<img src="https://img.saraba1st.com/forum/202408/06/094647oii709uqfux6kxv2.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240806_094526.jpg</strong> (181.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 09:46 上传
+
+pv一开始有一个地图全貌，大致能看到展示的地方在地图右下角位置，有城堡的一角和右下角的爱心湖
+
+*****
+
+####  Muteki_Link  
+##### 381#       发表于 2024-8-6 09:49
+
+看到这个同步能力第一反应是老2d塞尔达里面那种会跟你同步动作的怪物，然后在一个迷宫里通过解密遥控它踩机关
+
+不过现在这个同步功能可自由太多了
+
+
+*****
+
+####  折翼的秀吉  
+##### 382#       发表于 2024-8-6 10:02
+
+急急急，我是急急人
+
+
+*****
+
+####  otakun  
+##### 383#       发表于 2024-8-6 10:08
+
+看到有用潜入城堡的迷宫关卡，个人多么希望能复刻个时之笛小林克潜入城堡的那段经典迷宫，然后这次用新手法玩老地图<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  矩形冰块  
+##### 384#       发表于 2024-8-6 10:16
+
+当年那个2D的demo我觉得应该做进之后发布的那个Game Watch里，成本低 说不定能卖的更好。
+
+
+*****
+
+####  whfnet  
+##### 385#       发表于 2024-8-6 10:21
+
+又看了一遍pv1，原来裂缝里是碎片化的，这样裂缝里能连成一整张地图的可能性就小了一些，可能每个裂缝相当于一个小神庙，然后大裂缝就是大神庙
+
+
+*****
+
+####  星花  
+##### 386#       发表于 2024-8-6 10:22
+
+<blockquote>whfnet 发表于 2024-8-6 10:21
+又看了一遍pv1，原来裂缝里是碎片化的，这样裂缝里能连成一整张地图的可能性就小了一些，可能每个裂缝相当 ...</blockquote>
+还是希望双地图。
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 387#       发表于 2024-8-6 10:35
+
+看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 388#       发表于 2024-8-6 10:39
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-8-6 10:35
+看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的 ...</blockquote>
+四个太少了。不太行。
+
+*****
+
+####  whfnet  
+##### 389#       发表于 2024-8-6 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811401&amp;ptid=2188108" target="_blank">Kiyohara_Yasuke 发表于 2024-8-6 10:35</a>
+ 看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的 ...</blockquote>
+小三角的数量上限应该是可以提升的，虽然也不会太高就是了
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 390#       发表于 2024-8-6 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811439&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-8-6 10:39</a>
+四个太少了。不太行。</blockquote>
+演示的是同一个复制品有4个上限，还是等更多情报吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  kuarwbwe  
+##### 391#       发表于 2024-8-6 10:46
+
+ 本帖最后由 kuarwbwe 于 2024-8-6 10:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811471&amp;ptid=2188108" target="_blank">Kiyohara_Yasuke 发表于 2024-8-6 10:41</a>
+
+演示的是同一个复制品有4个上限，还是等更多情报吧
+
+论坛助手,iPhone</blockquote>
+反正希望最好能增加上限，只有4个肯定是不行的，4个肯定和王泪的究极手只有21个拼接上限一样，属于给一个上限极高的系统设计了一个限制玩家发挥上限的东西。这东西至少得有个10个才合适。<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 392#       发表于 2024-8-6 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811523&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-8-6 10:46</a>
+
+反正希望最好能增加上限，只有4个肯定是不行的，4个肯定和王泪的究极手只有21个拼接上限一样，属于给一个 ...</blockquote>
+2D可以发挥的空间没那么大，画面显示大小、聊胜于无的Z轴空间，给10个是完全溢出了
+
+
+*****
+
+####  lilod  
+##### 393#       发表于 2024-8-6 13:11
+
+这一作怕不是主要玩 Z 轴了。。。
+
+
+*****
+
+####  渺小小  
+##### 394#       发表于 2024-8-6 14:31
+
+室外大概率是能力没有限制的，我看不仅是“一招鲜”而是“招招鲜”怎么爽怎么来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就是剑鞘  
+##### 395#       发表于 2024-8-6 14:56
+
+平时关注的好多游戏自媒体都没提这个宣传片，差点错过
+
+
+*****
+
+####  佛罗伦萨  
+##### 396#       发表于 2024-8-6 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813550&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-8-6 14:56</a>
+
+平时关注的好多游戏自媒体都没提这个宣传片，差点错过</blockquote>
+一般都会发的，除非是只发steam打折消息的那种。
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 397#       发表于 2024-8-6 18:00
+
+2D作现在应该不存在时间线问题吧
+
+
+*****
+
+####  chaos7  
+##### 398#       发表于 2024-8-6 20:42
+
+如果裂缝下面是跟王泪地底一样联通大地图就爽了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 399#       发表于 2024-8-6 21:55
+
+<img src="https://img.saraba1st.com/forum/202408/06/215329q9umeckk509unn99.jpg" referrerpolicy="no-referrer">
+
+<strong>3333.jpg</strong> (8.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 21:53 上传
+
+左上角这个降落伞角色有点神秘，我首先想到的是奥德赛里的路易吉。感觉是负责通关后要素的
+
+
+*****
+
+####  巴尔干炮  
+##### 400#       发表于 2024-8-6 22:24
+
+<img src="https://img.saraba1st.com/forum/202408/06/222242h2sw28u8g0g6ck6f.jpg" referrerpolicy="no-referrer">
+
+<strong>ZELDA.jpg</strong> (42.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 22:22 上传
+
+左上角能看到塞尔达的画像，结合PV1中的地牢场景，塞尔达应该是越狱后被通缉了。
+
+
+*****
+
+####  Link213  
+##### 401#       发表于 2024-8-6 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817823&amp;ptid=2188108" target="_blank">牛奶笛 发表于 2024-8-6 21:55</a>
+
+左上角这个降落伞角色有点神秘，我首先想到的是奥德赛里的路易吉。感觉是负责通关后要素的 ...</blockquote>
+地球冒险？
+
+
+*****
+
+####  星花  
+##### 402#       发表于 2024-8-6 22:39
+
+我明白了，每次有3角力量的人降生就会有灾难发生 所以老国王决定大义灭亲。但其实老国王是加隆假扮的。
+
+
+*****
+
+####  liekong  
+##### 403#       发表于 2024-8-6 22:53
+
+也不一定是通缉吧，公主失踪了，张贴寻人启事也正常
+
+
+*****
+
+####  tsubasa9  
+##### 404#       发表于 2024-8-6 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818437&amp;ptid=2188108" target="_blank">liekong 发表于 2024-8-6 22:53</a>
+
+也不一定是通缉吧，公主失踪了，张贴寻人启事也正常</blockquote>
+别忘了公主一开始在监狱
+
+
+*****
+
+####  skypiea  
+##### 405#       发表于 2024-8-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818437&amp;ptid=2188108" target="_blank">liekong 发表于 2024-8-6 22:53</a>
+
+也不一定是通缉吧，公主失踪了，张贴寻人启事也正常</blockquote>
+这看着不像寻人启示吧 
+
+006OLR7Hgy1hse05znoj6j307208uwfq.jpg
+(9.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202408/06/230808l1jhjzu1uju111dz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 406#       发表于 2024-8-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818553&amp;ptid=2188108" target="_blank">skypiea 发表于 2024-8-6 23:12</a>
+
+这看着不像寻人启示吧</blockquote>
+通缉令下面不应该标赏金么
+
+
+*****
+
+####  孔方兄  
+##### 407#       发表于 2024-8-6 23:38
+
+我觉得任天堂还藏了一种能力没有公布，你们信不信
+
+*****
+
+####  karastar  
+##### 408#       发表于 2024-8-6 23:41
+
+四个按键你说有四个能力我都信
+
+
+*****
+
+####  holomoon  
+##### 409#       发表于 2024-8-6 23:47
+
+只有2种能力我觉得不大可能
+
+可能有3-4种吧
+
+至于使用率是不是设计得平均就另外一回事
+
+就像是野炊王泪，四种能力使用率也不大一样
+
+
+*****
+
+####  天堂大法  
+##### 410#       发表于 2024-8-7 08:08
+
+<img src="https://img.saraba1st.com/forum/202408/07/080724icva25azvciiii67.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9824.jpeg</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 08:07 上传
+
+老外已经把已知地点给标注出来了，另外还有人推算出了地图比织梦岛大四倍。
+
+
+*****
+
+####  佛罗伦萨  
+##### 411#       发表于 2024-8-7 08:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么外星科技容量差不多的情况下，地图大四倍，还有里世界
+
+
+*****
+
+####  星花  
+##### 412#       发表于 2024-8-7 09:30
+
+<blockquote>佛罗伦萨 发表于 2024-8-7 08:47
+什么外星科技容量差不多的情况下，地图大四倍，还有里世界</blockquote>
+前作是外包的，正常。
+
+
+*****
+
+####  天堂大法  
+##### 413#       发表于 2024-8-7 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820347&amp;ptid=2188108" target="_blank">星花 发表于 2024-8-7 09:30</a>
+前作是外包的，正常。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这作也是啊，也是Grezzo负责制作，任天堂出点人监督
+
+
+*****
+
+####  星花  
+##### 414#       发表于 2024-8-7 09:55
+
+<blockquote>天堂大法 发表于 2024-8-7 09:46
+这作也是啊，也是Grezzo负责制作，任天堂出点人监督</blockquote>
+那还真，奇迹了。
+
+
+*****
+
+####  liekong  
+##### 415#       发表于 2024-8-7 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820564&amp;ptid=2188108" target="_blank">星花 发表于 2024-8-7 09:55</a>
+
+那还真，奇迹了。</blockquote>
+看来是重复使用 水银蒸气 的套路了，先用新引擎复刻一款旧作练手，然后同样引擎做新作，
+
+水银蒸气是复刻萨姆斯归来，做生存恐惧，
+
+Grezzo则是复刻织梦岛，做智慧再现
+
+
+*****
+
+####  JOJOROY  
+##### 416#       发表于 2024-8-7 10:18
+
+这作任天堂的参与度肯定是皮克敏4级别共同开发的而不是生存恐惧级别的出监工，Grezzo之前开发的三剑客的设计岗基本都是任天堂的这作肯定也不会少。
+
+
+*****
+
+####  Zeno_5  
+##### 417#       发表于 2024-8-7 10:32
+
+我看Grezzo官推都不转发这次新作，确实是他们开发？
+
+
+*****
+
+####  天堂大法  
+##### 418#       发表于 2024-8-7 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820930&amp;ptid=2188108" target="_blank">Zeno_5 发表于 2024-8-7 10:32</a>
+我看Grezzo官推都不转发这次新作，确实是他们开发？</blockquote>
+百分百是Grezzo，EPD3出设计、监督之类的，Grezzo当苦力。
+
+
+*****
+
+####  uanlice  
+##### 419#       发表于 2024-8-7 10:45
+
+要不把Grezzo收编了吧，以后当2D塞专业户
+
+*****
+
+####  牛奶笛  
+##### 420#       发表于 2024-8-7 10:46
+
+本作的总监是谁挺值得关注的，藤林应该没空吧，总监是实职一般不挂名。到底是培养新人还是老人还愿
+
+
+*****
+
+####  Sutrid  
+##### 421#       发表于 2024-8-7 12:24
+
+萨姆斯归来→生存恐惧
+
+继承人身后少女→笑脸男Emio
+
+究极复刻版←→究极4
+
+织梦岛→智慧的再现
+
+
+*****
+
+####  jtwing  
+##### 422#       发表于 2024-8-7 13:19
+
+任：我们不收购公司，我们只是找外包打工<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  渺小小  
+##### 423#       发表于 2024-8-7 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来到现在也没见地狱提过有限定和首发特典之类的消息···········
+
+天剑好歹还有铁盒版呢，那个NSL限定机实在下不去手啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天堂大法  
+##### 424#       发表于 2024-8-7 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822565&amp;ptid=2188108" target="_blank">jtwing 发表于 2024-8-7 13:19</a>
+任：我们不收购公司，我们只是找外包打工
+
+—— 来自 S1Fun</blockquote>
+这种不比盲目收购强多了，NLG合作了20多年因为创始人退休不得不收购了，Grezzo这也合作14年负责了三款塞尔达重制，一款塞尔达移植，两款新2D塞制作。好用的很<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  清浦刹那  
+##### 425#       发表于 2024-8-7 14:06
+
+会有amiibo吗？
+
+
+*****
+
+####  liekong  
+##### 426#       发表于 2024-8-7 14:37
+
+ 本帖最后由 liekong 于 2024-8-7 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822933&amp;ptid=2188108" target="_blank">天堂大法 发表于 2024-8-7 14:05</a>
+
+这种不比盲目收购强多了，NLG合作了20多年因为创始人退休不得不收购了，Grezzo这也合作14年负责了三款塞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">老任：我要狠狠注入DNA，让你变成我的形状！
+
+*****
+
+####  ace8848  
+##### 427#       发表于 2024-8-7 14:39
+
+现在也没几家大厂做游戏不用外包的，只不过含量多少而已
+
+
+*****
+
+####  clyde-wang  
+##### 428#       发表于 2024-8-7 14:43
+
+外包用得好比收购划算很多，微软索尼收购的工作室效果真的不算太好
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Zeno_5  
+##### 429#       发表于 2024-8-7 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823339&amp;ptid=2188108" target="_blank">clyde-wang 发表于 2024-8-7 14:43</a>
+
+外包用得好比收购划算很多，微软索尼收购的工作室效果真的不算太好
+
+—— 来自 samsung SM-S9280, Android  ...</blockquote>
+外包搞砸了下次不找他们了，外包做得不错就长期合作，后面变成任的形状以后再收购，确实高明<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佛罗伦萨  
+##### 430#       发表于 2024-8-9 11:41
+
+官网更新了大量短视频和图片。
+
+几个亮点：沙漠也能骑马，床在水里能浮上来，有简单的属性克制，比如遇火可以用水和冰解决
+
+几个担忧：没有直接攻击手段，显得一切都很间接。不过也看到有雷电和龙卷风这种能直接杀敌的。跟织梦岛一样远景虚化模糊，树很多的地方明显掉帧
+
+
+*****
+
+####  扭曲论坛  
+##### 431#       发表于 2024-8-9 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65842464&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-8-9 11:41</a>
+官网更新了大量短视频和图片。
+
+几个亮点：沙漠也能骑马，床在水里能浮上来，有简单的属性克制，比如遇火可 ...</blockquote>
+虚化模糊的担忧的点是什么，模拟景深的效果实现的不好？
+
+
+*****
+
+####  冷泉夜月  
+##### 432#       发表于 2024-8-9 12:06
+
+用水和床做电梯也太骚了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chaos7  
+##### 433#       发表于 2024-8-9 12:50
+
+看了一下官网,这个再现能力好像没有冷却时间,
+
+召唤的魔物消失后,消耗的费用就立即回复,可以再次召唤,无限连续。
+
+
+*****
+
+####  leonlink  
+##### 434#       发表于 2024-8-9 14:25
+
+<img src="https://p.sda1.dev/18/56eb4d5d6e05c8f2a97196d78f60b345/image.jpg" referrerpolicy="no-referrer">
+
+众神3是吧，林克你家没了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  雾时  
+##### 435#       发表于 2024-8-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65843805&amp;ptid=2188108" target="_blank">leonlink 发表于 2024-8-9 14:25</a>
+众神3是吧，林克你家没了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+空地还特地做了土路连通过去。感觉可以塞个自定义房屋的玩法进去<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  otakun  
+##### 436#       发表于 2024-8-9 15:28
+
+林克这次会变兔子吗
+
+
+*****
+
+####  佛罗伦萨  
+##### 437#       发表于 2024-8-9 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65842546&amp;ptid=2188108" target="_blank">扭曲论坛 发表于 2024-8-9 11:50</a>
+
+虚化模糊的担忧的点是什么，模拟景深的效果实现的不好？</blockquote>
+织梦岛的效果不是很好，虚化模糊的面积很大，仿佛每时每刻都在迷雾森林。本作看几个片段会好一些，不知道实机如何
+
+
+*****
+
+####  扭曲论坛  
+##### 438#       发表于 2024-8-9 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845736&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-8-9 17:27</a>
+织梦岛的效果不是很好，虚化模糊的面积很大，仿佛每时每刻都在迷雾森林。本作看几个片段会好一些，不知道 ...</blockquote>
+感觉和微缩模型的美术风格绑定了，有点难解决<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hl氏  
+##### 439#       发表于 2024-8-9 18:52
+
+众神+时之笛+狂吹，三大塞尔达元素在此集结
+
+
+*****
+
+####  清浦刹那  
+##### 440#       发表于 2024-8-9 21:52
+
+<img src="https://img.saraba1st.com/forum/202408/09/215053fa4e0rzveeavr0sa.png" referrerpolicy="no-referrer">
+
+<strong>215026.png</strong> (774.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 21:50 上传
+
+兽王猎！
+
+<img src="https://img.saraba1st.com/forum/202408/09/215154rtascb8t41osbcbj.jpg" referrerpolicy="no-referrer">
+
+<strong>snipaste20240809_215135.jpg</strong> (89.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 21:51 上传
+
+
+*****
+
+####  佛罗伦萨  
+##### 441#       发表于 2024-8-9 23:15
+
+<img src="https://img.saraba1st.com/forum/202408/09/231516cdebnda1brbnbab5.jpg" referrerpolicy="no-referrer">
+
+<strong>yume3.jpg</strong> (60.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 23:15 上传
+
+不知道还是不是他们
+
+
+*****
+
+####  VVhaleVoice  
+##### 442#       发表于 2024-8-12 00:18
+
+这种时候总是会想起创世小玩家要是能有新作就好了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
