@@ -1566,3 +1566,80 @@ DoomE枪有点多了呀，手指不够用，按不过来
 
 少两个刚好，打的很爽，全用上就全乱套了
 
+*****
+
+####  JOJO42  
+##### 158#       发表于 2024-8-11 10:44
+
+估摸QUAKECON的实机演示是线下特供......未会必线上放出了，红迪doom板块放了点文字描述
+
+DOOM: The Dark Ages | New details from QuakeCon:
+
+World is much more open than previous games
+
+Three melee weapons: Flail (collects ammunition), Mace, and Fists (creates chains of electricity)
+
+The saw shield can be used to traverse the map
+
+Saw Shield can be thrown at enemies
+
+Less verticality than Doom Eternal; jumping is weightier and heavier now (comparable to Power Armor in FO4)
+
+Glory Kill system has been reinvented
+
+New weapons revealed; Double-barrel Plasma Ehotgun, Single-barrel shotgun
+
+You can nail enemies to the wall with the Nail Gun
+
+The giant mech can be used several times throughout the Campaign
+
+The mech fights with its fists and a double cannon
+
+Mech can perform Glory Kills and has a specialized HUD
+
+世界比以前的游戏更加开放▪️ 三种近战武器：连枷（收集弹药）、狼牙棒和拳头（产生电流链）
+
+▪️ 锯盾可用于穿越地图
+
+▪️ 锯盾可以扔向敌人
+
+▪️ 垂直度比 Doom Eternal 低；跳跃现在更重更重（堪比 FO4 中的动力装甲）
+
+▪️ 荣耀杀戮系统已被彻底改造▪️ 揭晓新武器；双管等离子电枪、单管霰弹枪
+
+▪️ 你可以用钉枪将敌人钉在墙上
+
+▪️ 巨型机甲可以在整个战役过程中多次使用
+
+▪️ 机甲用拳头和双管大炮战斗
+
+▪️ 机甲可以进行荣耀杀戮并拥有专门的 HUD
+
+另外，壮烈击杀现在是输出足够伤害后，敌人会闪出个紫色光圈，然后通过近战击杀——据说整个设计相比前两作已经完全大改，几乎可以视作壮烈击杀不存在了
+
+
+*****
+
+####  DawnGuardian  
+##### 159#       发表于 2024-8-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65860378&amp;ptid=2184766" target="_blank">JOJO42 发表于 2024-8-11 10:44</a>
+
+估摸QUAKECON的实机演示是线下特供......未会必线上放出了，红迪doom板块放了点文字描述
+
+DOOM: The Dark Ag ...</blockquote>
+链锯盾这个设计真的太酷了，希望能多玩点花样；机甲战斗这种感觉偶尔作为调剂还行，太多了感觉就有点喧宾夺主了；壮烈击杀这是改成啥了？没看明白
+
+
+*****
+
+####  JOJO42  
+##### 160#       发表于 2024-8-11 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65861114&amp;ptid=2184766" target="_blank">DawnGuardian 发表于 2024-8-11 12:21</a>
+
+链锯盾这个设计真的太酷了，希望能多玩点花样；机甲战斗这种感觉偶尔作为调剂还行，太多了感觉就有点喧宾 ...</blockquote>
+机甲和飞龙据说是都有独立的战斗系统，有专门对应的敌人和boss设计
+
+壮烈击杀....我其实也没看大明白，我个人理解或许是进一步削弱了观赏演出性，进一步突出功能性；毕竟相当一部分玩家打高难度时候觉得壮烈击杀的演出动画过长了，有些影响节奏
+
