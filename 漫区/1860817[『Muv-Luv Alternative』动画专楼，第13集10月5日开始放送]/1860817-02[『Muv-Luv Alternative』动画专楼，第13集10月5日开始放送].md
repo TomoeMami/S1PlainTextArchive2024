@@ -340,3 +340,12 @@ age的C104展台太缺德了……</blockquote>
 
 SLG会有美少女对抗小型种的战斗吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+*****
+
+####  再买自检星剁手  
+##### 2308#       发表于 2024-8-16 13:36
+
+脸修了，好
+
+<img src="https://p.sda1.dev/19/2afed177f6bfc15c6b3d1bfe8ab3cbf6/image.jpg" referrerpolicy="no-referrer">
+
