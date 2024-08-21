@@ -633,3 +633,10 @@ PV基本上都修正了
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+*****
+
+####  仟音一心  
+##### 7527#       发表于 2024-8-18 11:18
+
+<img src="https://p.sda1.dev/19/4b2461e0061e15e25d0467a827080b5a/image.jpg" referrerpolicy="no-referrer">
+
