@@ -760,3 +760,19 @@ Release in 2024
 制作：サイエンスSARU
 <img src="https://p.sda1.dev/18/b3443170691c8d187c0a5b9b57241d05/20240706_115300.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 54#         楼主| 发表于 2024-8-19 16:30
+
+「Garden of Remembrance」正式PV：
+[https://youtu.be/aFBzJsYiFq0y](https://youtu.be/aFBzJsYiFq0y)
+
+配信情報
+
+アニメタイムズ（Prime Video）、Lemino、ABEMA、dアニメストア、dアニメストア for Prime Video、DMM TV、Hulu、U-NEXT、アニメ放題：2024年8月30日（金）10:00～配信開始
+
+FOD：2024年9月9日（月）より配信　
+
+バンダイチャンネル：2024年10月7日（月）より配信
+
