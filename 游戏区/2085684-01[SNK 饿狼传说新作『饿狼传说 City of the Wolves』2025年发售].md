@@ -3650,3 +3650,44 @@ SNK开发定律是不是守恒的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  人生オワタ  
+##### 331#       发表于 2024-8-21 02:57
+
+不知火舞登场，2025年4月24日发售，第一季5个DLC角色。
+
+*****
+
+####  医生狼多  
+##### 332#       发表于 2024-8-21 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65962992&amp;ptid=2085684" target="_blank">人生オワタ 发表于 2024-8-21 02:57</a>
+不知火舞登场，2025年4月24日发售，第一季5个DLC角色。</blockquote>
+比我想的晚，甚至没有赶上财年
+
+*****
+
+####  Piano-Forest  
+##### 333#         楼主| 发表于 2024-8-21 02:59
+
+25年4月14日发售
+<img src="https://p.sda1.dev/19/a101bcf43f98c7eabe1a95eee9c81a2b/20240821_025725.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/17a36cd5d02fa49494ec95755bc9a0d6/20240821_025727.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/17ecbcda8a11809d5eefe127c3ce10e6/20240821_025730.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 334#       发表于 2024-8-21 02:59
+
+感觉还是太廉价了
+
+
+*****
+
+####  琴酒  
+##### 335#       发表于 2024-8-21 07:46
+
+街霸那放了特瑞pv 饿狼这里放了不知火舞pv<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
