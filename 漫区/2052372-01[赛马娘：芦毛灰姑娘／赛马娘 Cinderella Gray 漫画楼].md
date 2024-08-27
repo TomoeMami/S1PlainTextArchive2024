@@ -1498,3 +1498,169 @@ md看到鸡腿就想到圣夜，想起圣夜就是帽门ptsd<img src="https://st
 北原终于进中央特雷森和小栗再会了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 但是赢下安田之后就得是好长的胃疼剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+*****
+
+####  wfhtony  
+##### 140#       发表于 2024-8-23 20:49
+
+ 本帖最后由 wfhtony 于 2024-8-23 20:51 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/23/204901v6oozakga4m54o4a.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h45m38s737.jpg</strong> (126.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204902ww7jf7wwiflv7hn8.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h45m52s501.jpg</strong> (110.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204903eooen22oso85t789.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h45m54s979.jpg</strong> (199.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204903ozuzqqsbq8i0ci70.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h45m56s905.jpg</strong> (148.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204904cln7z4lx2a71flvk.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h45m59s296.jpg</strong> (45.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204910wg3n7n3dpldq9d7p.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-08-23_18-47-38.ts_snapshot_01.58.12.517.jpg</strong> (203.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204920m63x3qhdd3bzb8cd.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h48m19s613.jpg</strong> (273.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/204920e4zh6b611fcrcqm4.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-23-20h48m48s611.jpg</strong> (251.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:49 上传
+
+动画化确定，明年播出。
+
+配音工作近期刚开始。
+
+*****
+
+####  zechins  
+##### 141#       发表于 2024-8-23 20:53
+
+好好好！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Arrogate  
+##### 142#       发表于 2024-8-23 20:55
+
+居然动画化了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 143#       发表于 2024-8-23 20:57
+
+希望能做好一点，能像马2那样吗
+
+*****
+
+####  Todds_lies  
+##### 144#       发表于 2024-8-23 20:59
+
+小栗帽本马的高人气和芦毛灰姑娘的高人气，应该能做到马二那样<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">。
+
+啥也别动，跟着漫画改编的节奏就行了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  wfhtony  
+##### 145#       发表于 2024-8-23 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994775&amp;ptid=2052372" target="_blank">Arrogate 发表于 2024-8-23 20:57</a>
+
+希望能做好一点，能像马2那样吗</blockquote>
+只要动画组不魔改漫画剧情，理论上一个季度没啥问题。
+
+*****
+
+####  DOACAON  
+##### 146#       发表于 2024-8-23 21:04
+
+但是这个导演的履历……还是先质疑再质疑吧
+
+
+*****
+
+####  zechins  
+##### 147#       发表于 2024-8-23 21:10
+
+<img src="https://img.saraba1st.com/forum/202408/23/211008nfc76jvg9q0096kd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 21:10 上传
+
+
+*****
+
+####  傘木希美  
+##### 148#       发表于 2024-8-23 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">家里的猫猫就起名叫小栗帽，一样的能吃
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+
+
+*****
+
+####  isummon  
+##### 149#         楼主| 发表于 2024-8-24 11:47
+
+新卷封面，希望动画的表情越狰狞越好，保持最大特色
+
+<img src="https://img.saraba1st.com/forum/202408/24/114707g45c558ofnzl8ylw.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="580" zoomfile="https://img.saraba1st.com/forum/202408/24/114707g45c558ofnzl8ylw.png">
+
+<strong>image.png</strong> (153.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 11:47 上传
+
