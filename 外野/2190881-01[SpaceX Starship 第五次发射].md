@@ -758,3 +758,44 @@ B14.1也重回发射台，准备进行筷子升级后的回收测试
 
 2024-8-9 11:22 上传
 
+*****
+
+####  commcody  
+##### 51#         楼主| 发表于 2024-8-24 19:36
+
+双塔奇兵，德州星舰基地第二发射塔已结构封顶。
+
+<img src="https://img.saraba1st.com/forum/202408/24/193437tg2vvubzwuff6cbk.jpg" referrerpolicy="no-referrer">
+
+<strong>GVhtbz7XQAEQrji.jpg</strong> (559.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202408/24/193356razc1zctvtncatca.jpg" referrerpolicy="no-referrer">
+
+<strong>GVhtbz4XAAA9tx0.jpg</strong> (328.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/24/193437txk9we4okeftze4x.jpg" referrerpolicy="no-referrer">
+
+<strong>GVhtbzha0AAtGZw.jpg</strong> (604.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 19:34 上传
+
+首艘V2版Starship舰身即将完成合拢。
+
+<img src="https://img.saraba1st.com/forum/202408/24/193357wkb41keheqhbdgb3.jpg" referrerpolicy="no-referrer">
+
+<strong>GVtsGoeXIAAWdMk.jpg</strong> (809.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 19:33 上传
+
