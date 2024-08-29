@@ -1455,3 +1455,25 @@ ABARA的6寸可动开始预售
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这莉莉森和犹巴的互动是真乐了，还被天降偷袭，二叔写这个还真是看不腻
 
+*****
+
+####  stair楼梯  
+##### 94#       发表于 2024-8-26 03:15
+
+最新话分镜有点牛逼，半夜给我看精神了，虽然这漫画画的有点草，但是感受到了贰叔画的很认真
+
+
+*****
+
+####  smdzh2  
+##### 95#       发表于 2024-8-27 06:51
+
+什么王之力，后面会有梶裕贵式断手吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 96#       发表于 2024-8-27 06:55
+
+还是蛮好看的，希望不要再腰斩了
+
