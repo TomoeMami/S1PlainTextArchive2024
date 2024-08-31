@@ -640,3 +640,10 @@ PV基本上都修正了
 
 <img src="https://p.sda1.dev/19/4b2461e0061e15e25d0467a827080b5a/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 7528#       发表于 2024-8-28 21:25
+
+公开纪念PV：[https://youtu.be/Efa5uE7q7So](https://youtu.be/Efa5uE7q7So)
+
