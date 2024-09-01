@@ -1515,3 +1515,69 @@ debuff是敌人行动一次结束，你开od可以行动多次。破盾手只是
 
 初见单破甲没有od打了15万，在考虑要不要打16万了。自选应该选东城的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  爱拯救  
+##### 1626#       发表于 2024-8-28 14:27
+
+这点更新居然要维护4小时，有点菜的
+攒着就等孔明真神了，急急急
+
+
+*****
+
+####  中已矣  
+##### 1627#       发表于 2024-8-28 19:53
+
+果然还是井了
+
+
+*****
+
+####  liu461  
+##### 1628#       发表于 2024-8-28 22:53
+
+进了46，但复明手术还是挺成功的<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zl78cn  
+##### 1629#       发表于 2024-8-29 09:27
+
+一发10连出了孔明，又50连出了4妹，作为休闲玩家是不是可以继续存水等下个池子了？
+
+顺便问下，如何把SS孔明的大招转移到S卡上？
+
+
+*****
+
+####  catcoffee  
+##### 1630#       发表于 2024-8-29 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049758&amp;ptid=2050204" target="_blank">zl78cn 发表于 2024-8-29 09:27</a>
+
+一发10连出了孔明，又50连出了4妹，作为休闲玩家是不是可以继续存水等下个池子了？
+
+顺便问下，如何把SS孔明 ...</blockquote>
+ss卡技能强化里有个通用化, 点完就能放s卡上
+
+
+*****
+
+####  爱拯救  
+##### 1631#       发表于 2024-8-29 10:05
+
+抽完了孔明和六妹，下个必抽的角色是哪个呀
+
+
+*****
+
+####  学长失格  
+##### 1632#       发表于 2024-8-29 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050269&amp;ptid=2050204" target="_blank">爱拯救 发表于 2024-8-29 10:05</a>
+
+抽完了孔明和六妹，下个必抽的角色是哪个呀</blockquote>
+雷苍井吧，再往后还有别的强卡，这段时间正好屯石头。
+
