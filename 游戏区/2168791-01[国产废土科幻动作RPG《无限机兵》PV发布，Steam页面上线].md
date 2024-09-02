@@ -726,3 +726,58 @@ xbox不配拥有吗？</blockquote>
 
 国区魂类 欧美枪车球类
 
+*****
+
+####  医生狼多  
+##### 74#       发表于 2024-8-30 17:07
+
+版号发了，过审了
+
+*****
+
+####  kyonkoism  
+##### 75#         楼主| 发表于 2024-8-30 17:11
+
+过审是，要上国行PS5？要不要上wegame啊？
+
+
+*****
+
+####  医生狼多  
+##### 76#       发表于 2024-8-30 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66065833&amp;ptid=2168791" target="_blank">kyonkoism 发表于 2024-8-30 17:11</a>
+过审是，要上国行PS5？要不要上wegame啊？</blockquote>
+wegame应该吧？国行ps5好像摆烂了过审归过审但国区没上新游戏
+
+
+*****
+
+####  Lokad  
+##### 77#       发表于 2024-8-30 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646737&amp;ptid=2168791" target="_blank">SchwarzX 发表于 2024-7-20 19:17</a>
+
+看了视频评论区都说是魂，不会又是魂类吧</blockquote>
+国单动作类很多都是魂，想要摆脱狼与魂的就一款失落之魂。
+
+
+*****
+
+####  rainsheep  
+##### 78#       发表于 2024-8-30 19:03
+
+国内不同平台的审核要单独过吧
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  oahcihs  
+##### 79#       发表于 2024-8-30 21:19
+
+<img src="https://p.sda1.dev/19/af155aaa0b42ce05abf7389bb3ec8d62/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
