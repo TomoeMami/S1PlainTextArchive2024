@@ -3483,3 +3483,31 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 6号这次更新完了我都不认识这游戏了
 
+*****
+
+####  darkfall  
+##### 274#       发表于 2024-9-2 11:50
+
+之前PC版坑在沙漠，这次主机版白金了。虽说改了不少但是这股子Jank味道还是那样，感觉更简单了？拿个小镰刀吸血Combo Master全程随便顶着砍，除了那傻逼隐藏Boss用邪道射死。再打一遍感觉在类魂里探索感真是头牌，一周目有几个大水晶藏得太好了。可惜感觉最终区域地图设计虽说呼应之前走过的地图很巧妙，但是能捡的不是药品就是碎片也太水了，不如把几个要刷红骑士的装备扔这呢。
+
+
+*****
+
+####  qappip  
+##### 275#         楼主| 发表于 2024-9-2 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088843&amp;ptid=2123540" target="_blank">darkfall 发表于 2024-09-02 11:50:43</a>
+之前PC版坑在沙漠，这次主机版白金了。虽说改了不少但是这股子Jank味道还是那样，感觉更简单了？拿个小镰刀 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这制作组是真的有强迫症的，我是一点点看着远景为了提现高低层不同感觉能相互联动看到下层或者上层标志性建筑，至少改了七八版。吸血流一直很强，实际上已经是砍过一轮了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  苦瓜师傅  
+##### 276#       发表于 2024-9-2 13:16
+
+主机板什么垃垃圾画质 这UI……
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
