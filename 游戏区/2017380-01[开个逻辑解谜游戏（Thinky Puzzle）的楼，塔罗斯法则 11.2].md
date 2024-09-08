@@ -3189,3 +3189,111 @@ leap year 小而精的知识锁神作，1个半小时左右的游戏时长，建
 想买一个午休玩， bean and nothingness和can of wormholes哪个比较推荐哇</blockquote>
 我觉得bean好玩些，但是bean和虫洞不太能算一类的，bean和baba，drod这些算是一卦的，这类里还是最近出的leaf's odyssey平易近人；虫洞和烤肠怪兽远征篝火这些是一类的。还是看你喜欢哪一类。
 
+*****
+
+####  weiyun  
+##### 213#         楼主| 发表于 2024-8-31 17:58
+
+Maxwell's puzzling demon出了，大概率今年最佳解谜，但难度超高。
+
+https://store.steampowered.com/app/2770160/Maxwells_puzzling_demon/
+
+
+*****
+
+####  BRAVADO  
+##### 214#       发表于 2024-8-31 19:54
+
+ 本帖最后由 BRAVADO 于 2024-8-31 19:56 编辑 
+<blockquote>weiyun 发表于 2024-8-31 17:58
+Maxwell's puzzling demon出了，大概率今年最佳解谜，但难度超高。
+
+https://store.steampowered.com/app/27 ...</blockquote>
+
+昨天买了，草草清了world 1，我感觉作为一个类推箱，rule set稍稍有点平淡，后面有玩得很花的rule set吗？还是就是靠非常扎实的level design脱颖而出的。
+
+
+*****
+
+####  weiyun  
+##### 215#         楼主| 发表于 2024-9-1 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66075038&amp;ptid=2017380" target="_blank">BRAVADO 发表于 2024-8-31 19:54</a>
+
+昨天买了，草草通了world 1，我感觉作为一个类推箱，rule set稍稍有点平淡，后面有玩得很花的rule set吗 ...</blockquote>
+有很多其他机制，第三大关就开始meta了，我才打到第四大关，感觉全通可能要50小时以上，有的字母关进入都挺难的。
+
+
+*****
+
+####  infinitesimal7  
+##### 216#       发表于 2024-9-1 08:13
+
+Maxwell真好玩，很有可能是年度最佳了
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  莉可厨  
+##### 217#       发表于 2024-9-1 11:50
+
+在第一大关就疯狂卡关……<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">怎么感觉比bean还难，明明规则没bean复杂结果死活想不通
+
+
+*****
+
+####  BRAVADO  
+##### 218#       发表于 2024-9-1 12:13
+
+<blockquote>weiyun 发表于 2024-9-1 00:27
+有很多其他机制，第三大关就开始meta了，我才打到第四大关，感觉全通可能要50小时以上，有的字母关进入都 ...</blockquote>
+好好，那可以先往前快速推进度了，谢谢！
+
+
+*****
+
+####  莉可厨  
+##### 219#       发表于 2024-9-1 12:42
+
+好像渐入佳境了，普通关比sokobond原版后期关卡还简单些
+
+
+*****
+
+####  铃森冬  
+##### 220#       发表于 2024-9-2 00:24
+
+很多关暂时没做先突突到 world5 了，ruleset 的展开相当意料之外情理之中非常漂亮，以及才到第五大关就放出这种机制后面四个大关还有什么已经不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  weiyun  
+##### 221#         楼主| 发表于 2024-9-2 01:32
+
+<blockquote>铃森冬 发表于 2024-9-2 00:24
+很多关暂时没做先突突到 world5 了，ruleset 的展开相当意料之外情理之中非常漂亮，以及才到第五大关就放出 ...</blockquote>
+我也跳了好多关，现在在world 6各种卡关
+
+
+*****
+
+####  铃森冬  
+##### 222#       发表于 2024-9-3 03:43
+
+ 本帖最后由 铃森冬 于 2024-9-3 03:47 编辑 
+
+world7 终于跳了倒数第三个 tips, 后面不会还有更大的活吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+以及终于明白为啥 reset 的时候要做一个复位的动画了，跟这等着呢
+
+
+*****
+
+####  weiyun  
+##### 223#         楼主| 发表于 2024-9-5 17:20
+
+后面还有一堆meta内容，估计要100小时以上了
+
