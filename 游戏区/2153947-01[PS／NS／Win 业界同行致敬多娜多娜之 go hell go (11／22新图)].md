@@ -810,3 +810,259 @@ A社游戏性顶流，但是真的不是很实用啊，至少对我来说<img sr
 
 Entergram的基本盘在主机那边吧，pc版做成r18那谁还买主机版
 
+*****
+
+####  新HGCG  
+##### 52#       发表于 2024-8-30 00:36
+
+买到了
+
+<img src="https://img.saraba1st.com/forum/202408/30/003626uax659azqfm3zap3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (521.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 00:36 上传
+
+
+*****
+
+####  refiver  
+##### 53#       发表于 2024-8-30 00:43
+
+等放流，这种游戏曾经psp psv上一大把，leaf的迷宫也卖的还行，leaf那个子品牌就是专门做主机擦边全年龄的，这个entergram还发行了海猫和寒蝉的主机最新版，是老朋友了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  COLEETE  
+##### 54#       发表于 2024-8-30 01:41
+
+不是  连个中文都没鬼买啊   多娜都有中文吧
+
+
+*****
+
+####  新HGCG  
+##### 55#       发表于 2024-8-30 21:44
+
+第一个BOSS6级左右去打结果差点团灭
+
+一看通关后新加的人是9级别
+
+原来也是要可以刷图练级的啊
+
+
+*****
+
+####  达达葱2  
+##### 56#       发表于 2024-8-31 00:53
+
+没有中文啊
+
+*****
+
+####  DARK_HGCG  
+##### 57#       发表于 2024-8-31 00:57
+
+随便发几张过场CG
+
+<img src="https://img.saraba1st.com/forum/202408/31/005502t0j39xe2axx00bb6.jpg" referrerpolicy="no-referrer">
+
+<strong>2024083100313200-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (193.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/005502k03b8m537dq5qebd.jpg" referrerpolicy="no-referrer">
+
+<strong>2024083100323900-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (200.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/005503gf1nfwf9fpnh38h2.jpg" referrerpolicy="no-referrer">
+
+<strong>2024083023364700-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (177.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/005504jhvnbsuzwwshtivb.jpg" referrerpolicy="no-referrer">
+
+<strong>2024083101292200-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (170.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:55 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/005502k2q0fnkconini7id.jpg" referrerpolicy="no-referrer">
+
+<strong>2024083021535000-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (176.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:55 上传
+
+
+*****
+
+####  达达葱2  
+##### 58#       发表于 2024-8-31 09:32
+
+这是有NTR？
+
+
+*****
+
+####  DARK_HGCG  
+##### 59#       发表于 2024-9-2 00:37
+
+哪里有穿成这样的外卖送货员啊
+
+<img src="https://img.saraba1st.com/forum/202409/02/003400eok74dxkbk0nzbqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (389.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/003418zdeutrgrghwow7f4.jpg" referrerpolicy="no-referrer">
+
+<strong>2024090201090100-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (168.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+一共有七个特殊女鬼，每个人有1-3个剧情，触发方式是按一定顺序扔到指定地点受刑
+
+<img src="https://img.saraba1st.com/forum/202409/02/003435jxbopzmk1061gskz.jpg" referrerpolicy="no-referrer">
+
+<strong>2024090201175100-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (183.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/003443n94t3fapff4z0caa.jpg" referrerpolicy="no-referrer">
+
+<strong>2024090201180200-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (170.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+现在就不知道特殊女鬼没了能不能再捡回来……
+
+
+*****
+
+####  萝卜迷  
+##### 60#       发表于 2024-9-2 06:57
+
+这游戏至今没有攻略站吧
+
+
+*****
+
+####  新HGCG  
+##### 61#       发表于 2024-9-2 11:19
+
+哦哦官方推特有UR女鬼能触发剧情的地点
+
+<img src="https://img.saraba1st.com/forum/202409/02/111321nmkmknsjyqggsvnw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111517x68d76uz75u8v8hp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111650c67xg0zqe76ese80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111740jtz4842t4r2lyj2r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111801omr6kwfh60k00hg0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (173.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111843lzpehc0e5phh9tm5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111906sdai7zryx3df77x7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:19 上传
+
+
+*****
+
+####  达达葱2  
+##### 62#       发表于 2024-9-2 12:37
+
+怎么有个肥婆
+
+
+*****
+
+####  新HGCG  
+##### 63#       发表于 2024-9-5 01:00
+
+通关了通关了
+
+看提示似乎有三个结局分支……
+
+
+*****
+
+####  whzfjk  
+##### 64#       发表于 2024-9-6 17:28
+
+<img src="https://img.saraba1st.com/forum/202409/06/172804gyixgpj05zi9x4xx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 17:28 上传
+
