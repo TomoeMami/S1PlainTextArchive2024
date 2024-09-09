@@ -5096,3 +5096,34 @@ DA2就是最好的处理方法了，保持基础系统不变大幅强化动作�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">后来打了那么多wotr，bg3，还是最想da2的战斗
 
+*****
+
+####  back57992  
+##### 514#       发表于 2024-9-6 10:51
+
+看了下最新系统介绍啥的 感觉不错啊。。。
+
+
+*****
+
+####  zzy516232108  
+##### 515#       发表于 2024-9-6 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该不会烂吧……感觉好像还过得去的样子，马马虎虎吧……
+
+
+*****
+
+####  西弗  
+##### 516#       发表于 2024-9-6 11:11
+
+我只是觉得同样是暂停弹UI放队友技能，这UI实在是丑得花里胡哨了些，质量效应那种不是挺好的，不过该买还得买，圣歌我都首发了黄金还有什么不能买的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PROCAINUM  
+##### 517#       发表于 2024-9-6 12:07
+
+战斗系统看上去好像还过得去，但生软的游戏主要还是看剧情和队友塑造，这作lead writer都换了，不知道咋样。预购就预购，如果褒姒大不了成生软最后一作，留作纪念也好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
