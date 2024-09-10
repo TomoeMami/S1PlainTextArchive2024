@@ -790,3 +790,20 @@ Porsche ：911[不确定] 964 930
 Honda：NSX（NA1、NA2）
 Mazda：FD3S FC3S
 
+*****
+
+####  Tnsbilws  
+##### 43#         楼主| 发表于 2024-9-7 09:33
+
+这周的开发日志发了
+
+除了一些眼前一亮的套件好像没啥了……
+
+<img src="https://img.saraba1st.com/forum/202409/07/093303kgw9cab45gy5bb4z.jpg" referrerpolicy="no-referrer">
+
+<strong>DA314CCD15F4E1B1B9BA27FAC5838E39.jpg</strong> (450.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 09:33 上传
+
