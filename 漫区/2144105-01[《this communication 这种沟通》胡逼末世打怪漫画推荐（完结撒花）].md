@@ -2086,3 +2086,65 @@ http://m.weibo.cn/status/5050982306418937?
 
 要是动画化，男主CV找森川智之如何
 
+*****
+
+####  KDConan  
+##### 205#       发表于 2024-9-9 00:18
+
+科学家们脑子都有病<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/509cff63f3d10668f480c67b90305d22/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  TiiTiiLL  
+##### 206#       发表于 2024-9-9 01:18
+
+后期男主战斗力确实有点成谜了，有点“只要让身体忽略限制就能变成超人”的感觉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  redsouris  
+##### 207#       发表于 2024-9-9 08:26
+
+ 本帖最后由 redsouris 于 2024-9-9 08:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66150121&amp;ptid=2144105" target="_blank">TiiTiiLL 发表于 2024-9-9 01:18</a>
+后期男主战斗力确实有点成谜了，有点“只要让身体忽略限制就能变成超人”的感觉
+
+—— 来自 S1Fun ...</blockquote>
+德鲁哈点的PVP专精，对人经验比这群小鬼多多了，他是真下杀手，小鬼并不想杀他
+
+
+*****
+
+####  ストック  
+##### 208#       发表于 2024-9-9 09:26
+
+又浮上来了发点六内最近在推上贴的图
+给粉丝回信用印的明信片用图<img src="https://p.sda1.dev/19/cdc35a13b7dba5958bb8c3b3174a47fe/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/6d6211e33f147bcebf53d5082762a435/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/158e5c3cbab3380b75283770869f1b42/image.jpg" referrerpolicy="no-referrer">
+全员泳装
+<img src="https://p.sda1.dev/19/8477c8a7db7f051550b0b70ad82318cb/image.jpg" referrerpolicy="no-referrer">
+和卡拉OK铁人联动的预告
+<img src="https://p.sda1.dev/19/f5c736165a11baf5856c2505605ea2e2/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lzz  
+##### 209#       发表于 2024-9-9 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66151140&amp;ptid=2144105" target="_blank">ストック 发表于 2024-9-9 09:26</a>
+
+又浮上来了发点六内最近在推上贴的图
+
+给粉丝回信用印的明信片用图</blockquote>
+好看好看
+
