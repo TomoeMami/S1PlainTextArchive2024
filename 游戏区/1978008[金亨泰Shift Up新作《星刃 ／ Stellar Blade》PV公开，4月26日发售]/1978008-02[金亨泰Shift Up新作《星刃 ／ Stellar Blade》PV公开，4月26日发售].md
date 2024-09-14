@@ -2471,3 +2471,143 @@ OK，感谢，那我就不急了，先专心把老头环通了
 
 —— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Piano-Forest  
+##### 1698#         楼主| 发表于 2024-9-7 13:22
+
+The 「First EVE」 design, drawn in 2020.
+<img src="https://p.sda1.dev/19/1e5aacc0de27468e0573a60743c0e73b/20240907_132108.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nagitoY  
+##### 1699#       发表于 2024-9-10 08:56
+
+买衣服和首饰的比特币怎么刷？好缺
+
+另外这游戏支线和告示板任务可以不做吗？这通马桶的支线任务也太多了。刚进废土全清一波，拿到二段跳后又出来一堆支线。会影响结局吗？
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 1700#       发表于 2024-9-10 09:18
+
+ 本帖最后由 袄_偶滴小乔 于 2024-9-10 09:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161323&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-10 08:56</a>
+
+买衣服和首饰的比特币怎么刷？好缺
+
+另外这游戏支线和告示板任务可以不做吗？这通马桶的支线任务也太多了。 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是清支线送维特币啊
+
+设置里把自动拾取开一下，地图上遇到了会自动捡
+
+特定支线和物品拾取影响百合好感度，会影响特定路线的两个结局分支，对另一个路线不影响
+
+*****
+
+####  nagitoY  
+##### 1701#       发表于 2024-9-10 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161543&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-9-10 09:18</a>
+
+当然是清支线送维特币啊
+
+设置里把自动拾取开一下，地图上遇到了会自动捡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+废土支线全清再下的卢瓦高层，上来后经过一段剧情，城市里有刷新了一堆支线感叹号，实在是顶不住了。
+
+支线全是到某个地方杀几只怪、找个东西，这破地图传送又只能定点传，麻烦又无聊
+
+*****
+
+####  nagitoY  
+##### 1702#       发表于 2024-9-10 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161543&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-9-10 09:18</a>
+
+当然是清支线送维特币啊
+
+设置里把自动拾取开一下，地图上遇到了会自动捡</blockquote>
+牵手必须百合100%好感？如何判断支线是否增加好感？
+
+
+*****
+
+####  jxzeroga0  
+##### 1703#       发表于 2024-9-10 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161568&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-10 09:20</a>
+
+废土支线全清再下的卢瓦高层，上来后经过一段剧情，城市里有刷新了一堆支线感叹号，实在是顶不住了。
+
+支 ...</blockquote>
+支线刷新都是根据剧情阶段整批出，并且没有时间限制。每次推进主线到一定阶段，把能接都接了，大地图扫一遍最后一个支线传送回去就行了，实际流程大约就4-5批支线而已。大地图基本不需要特地去探索，跟着支线逛一圈就差不多全收集了。真结局要求很低，不需要焦虑。
+
+
+*****
+
+####  nagitoY  
+##### 1704#       发表于 2024-9-10 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161628&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-9-10 09:26</a>
+
+支线刷新都是根据剧情阶段整批出，并且没有时间限制。每次推进主线到一定阶段，把能接都接了，大地图扫一 ...</blockquote>
+现在我箱子也不怎么开了。
+
+发现箱子给的东西好垃圾，全是什么升级脊髓、制作衣服的材料。问题是制作衣服的材料可以直接去姐妹废品站买，简单又便宜
+
+*****
+
+####  jxzeroga0  
+##### 1705#       发表于 2024-9-10 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66161655&amp;ptid=1978008" target="_blank">nagitoY 发表于 2024-9-10 09:28</a>
+
+现在我箱子也不怎么开了。
+
+发现箱子给的东西好垃圾，全是什么升级脊髓、制作衣服的材料。问题是制作衣服 ...</blockquote>
+目标是全服装制作材料还是有点紧张。但总的来说一周目资源包括各种生命上限武器升级材料之类都是溢出的，主要是给二周目升级版插件和新衣服留的余地。一周目多开点二周目会舒服一些就是，以宝箱为目标也不容易错过一些地图探索。
+
+*****
+
+####  Schwarzess  
+##### 1706#       发表于 2024-9-10 09:34
+
+这都9月了，亨泰哟西吧说好的照片模式呢牙医shake it。<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nagitoY  
+##### 1707#       发表于 2024-9-11 10:38
+
+剑星开箱子给的奖励实在是太搞笑了。
+
+埃多斯7号有个箱子必须在后期升级了无人机技能才能开，要玩家专门回去一趟开箱子，发现里面给的只有钱。钱在这游戏里应该是最溢出的资源了。
+
+
+*****
+
+####  nagitoY  
+##### 1708#       发表于 2024-9-12 00:24
+
+11号矩阵这部分的游戏体验非常好啊。线性关卡的节奏控制的不错，而且不需要反复跑重复的路线，再加上过场动画cg，玩家一点都不感觉枯燥无聊。
+
+这游戏还是适合做成线性关卡，保证玩家的游戏体验。
+
+
+*****
+
+####  隔壁老黄  
+##### 1709#       发表于 2024-9-12 01:19
+
+说起来剑星我觉得最搞笑的是孽奇拔这个名字，一眼看出是native原住民的意思，核心世界观设定一开始就透得体无完肤，好歹用个小语种吧，居然直接用英文<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
