@@ -2991,3 +2991,131 @@ jmtt用不了了？
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 同样的问题，但firefox没问题，估计插件该更新了。
 
+*****
+
+####  Artanis  
+##### 267#       发表于 2024-9-12 12:28
+
+漫画柜刷不出图是代理问题吗
+
+
+*****
+
+####  社美胡  
+##### 268#       发表于 2024-9-12 12:33
+
+拷贝的仓库好像删了
+
+
+*****
+
+####  3三稻  
+##### 269#       发表于 2024-9-12 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182676&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 12:33</a>
+拷贝的仓库好像删了</blockquote>
+没啊
+https://github.com/stevenyomi/copymanga
+
+*****
+
+####  3三稻  
+##### 270#       发表于 2024-9-12 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182612&amp;ptid=2167901" target="_blank">Artanis 发表于 2024-9-12 12:28</a>
+漫画柜刷不出图是代理问题吗</blockquote>
+我这可以
+试试非日本的节点？
+
+
+*****
+
+####  社美胡  
+##### 271#       发表于 2024-9-12 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182760&amp;ptid=2167901" target="_blank">3三稻 发表于 2024-9-12 12:42</a>
+
+没啊
+
+https://github.com/stevenyomi/copymanga</blockquote>
+就留了个readme
+
+
+*****
+
+####  3三稻  
+##### 272#       发表于 2024-9-12 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182802&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 12:47</a>
+就留了个readme</blockquote>
+有发布界面啊
+
+
+*****
+
+####  gofbayrf  
+##### 273#       发表于 2024-9-12 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182802&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 12:47</a>
+
+就留了个readme</blockquote>
+最近掛在上面是v1.4.53  1月份的 現在還能用
+
+*****
+
+####  pgain2004  
+##### 274#         楼主| 发表于 2024-9-12 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182802&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 12:47</a>
+就留了个readme</blockquote>
+就算是移动版也有releases入口，你不会只会看GitHub项目首页吧……
+
+
+*****
+
+####  社美胡  
+##### 275#       发表于 2024-9-12 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184590&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-9-12 15:50</a>
+
+就算是移动版也有releases入口，你不会只会看GitHub项目首页吧……</blockquote>
+只是留了releases，以后估计就没有维护了
+
+*****
+
+####  社美胡  
+##### 276#       发表于 2024-9-12 16:12
+
+<img src="https://img.saraba1st.com/forum/202409/12/161202hhfynabwbzxhy1lb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240912_160947_app_mihon_MainActivity.jpg</strong> (17.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-12 16:12 上传
+
+mihon已经显示废弃了
+
+
+*****
+
+####  Artanis  
+##### 277#       发表于 2024-9-12 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66182764&amp;ptid=2167901" target="_blank">3三稻 发表于 2024-9-12 12:43</a>
+我这可以
+试试非日本的节点？</blockquote>
+开WebView能看，但是app里打不开
+
+
+*****
+
+####  pgain2004  
+##### 278#         楼主| 发表于 2024-9-12 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66184808&amp;ptid=2167901" target="_blank">社美胡 发表于 2024-9-12 16:12</a>
+mihon已经显示废弃了</blockquote>
+我把仓库删了，刷新后显示了废弃字样
+再把仓库添加回去，重启应用，刷新插件列表，废弃字样去掉了
+不是很懂你那边的情况，偶尔访问出问题后在插件里换个域名就能继续用，目前为止都还能用啊
+
