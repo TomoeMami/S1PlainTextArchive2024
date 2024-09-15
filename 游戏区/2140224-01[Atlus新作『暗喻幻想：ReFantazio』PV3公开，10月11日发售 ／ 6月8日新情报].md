@@ -8755,3 +8755,11 @@ IGN 前瞻又暗戳戳地暗示了一下，这没有超展开大活我不信，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">A家游戏购买的最大障碍永远都是-家人们 还是看看远处的皇家版吧
 
+*****
+
+####  Piano-Forest  
+##### 706#         楼主| 发表于 2024-9-12 20:48
+
+【《暗喻幻想：ReFantazio》横尾太郎游玩采访视频】 
+[https://b23.tv/Z4H9NLN](https://b23.tv/Z4H9NLN)
+
