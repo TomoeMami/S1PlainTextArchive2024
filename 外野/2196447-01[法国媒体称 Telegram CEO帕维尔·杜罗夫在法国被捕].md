@@ -1591,3 +1591,12 @@ HK是 这种安人眼里的“地缘政治”大国里啊<img src="https://stati
 
 别这样，前有汤不热现有tele，小姐诶微什么时候出app啊，这香火不能断啊
 
+*****
+
+####  dpdwx  
+##### 141#       发表于 2024-9-13 11:24
+
+Telegram CEO Pavel Durov pledges tighter moderation after money laundering probe
+
+所以这货是挨了资本主义铁拳准备投降了吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
