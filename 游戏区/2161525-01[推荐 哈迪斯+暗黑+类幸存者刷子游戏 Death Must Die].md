@@ -370,3 +370,18 @@ halls of torment 爽不爽不好评价，局外成长是很多，够刷了
 
 最近大更了一波 多了一个新神体 系多了一张新地图(新怪有点变态) 重做了天赋树 有点肝
 
+*****
+
+####  saynie  
+##### 42#       发表于 2024-9-16 08:44
+
+黑猴通关后一直沉迷这个
+
+现在游玩体验有点像手游迷雾大陆
+
+都是简化操作+刷宝+天赋树
+
+开一局——掉了新装备——组一套新build——再开一局试试强度，一套循环下来两小时没了，摸鱼利器<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+玩了冲刺法、召唤法、力量蛮子、暴击刺客都还行，但都不如新角色弓手一根毛，满屏强击特效视觉效果断档性的强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
