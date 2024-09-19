@@ -3555,3 +3555,88 @@ fz也是完结了几年才做动画，
 
 要是12年刚看完zero的阿宅穿越到十二年后的现在，看到这般制作的fate最新动画，人估计直接就嗷的一声疯掉了
 
+*****
+
+####  ナルバレック  
+##### 357#       发表于 2024-9-16 14:17
+
+<img src="https://img.saraba1st.com/forum/202409/16/141735ms3ksynsgwgz6knx.png" referrerpolicy="no-referrer">
+
+<strong>8BAF4F93B50932478902B5D05185DA9F.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 14:17 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/141735y3louufj2if5lldz.png" referrerpolicy="no-referrer">
+
+<strong>2B82EE890D26912775A0741FF714C264.png</strong> (596.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 14:17 上传
+
+
+*****
+
+####  zechins  
+##### 358#       发表于 2024-9-16 14:24
+
+<img src="https://img.saraba1st.com/forum/202409/16/142305va2zlu6l7qqiufhx.jpg" referrerpolicy="no-referrer">
+
+<strong>GXk8NsjakAAVcn9.jpg.jpg</strong> (220.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202409/16/142306ntwwiwvazo9l5r71.jpg" referrerpolicy="no-referrer">
+
+<strong>GXk8NskaAAA8g1Q.jpg.jpg</strong> (194.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 14:23 上传
+
+最先公开的怎么是闪恩，不知道的以为你俩才是主角呢
+
+
+*****
+
+####  ナルバレック  
+##### 359#       发表于 2024-9-16 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66219896&amp;ptid=2086574" target="_blank">zechins 发表于 2024-9-16 14:24</a>
+
+最先公开的怎么是闪恩，不知道的以为你俩才是主角呢</blockquote>
+最终卷AE闪估计确实戏份不少（和A闪还不是同一个人），但是中间几乎掉线了半本书的二人组<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 360#         楼主| 发表于 2024-9-16 15:59
+
+◤　　　　　　　　◥ 
+
+　　アニメ最新話
+
+　　放送決定！  
+
+◣　　　　　　　　◢
+
+2024年年末の放送に向けて鋭意制作中！
+
+続報をお楽しみに！
+
+<img src="https://p.sda1.dev/19/9a017c1143c5b3fd66ce3e409a33f53e/20240916_154726.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/d9fdf14a3c4ec8ebd4628167515b46b3/20240916_154728.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  03026829  
+##### 361#       发表于 2024-9-17 01:00
+
+变成年番了
+
