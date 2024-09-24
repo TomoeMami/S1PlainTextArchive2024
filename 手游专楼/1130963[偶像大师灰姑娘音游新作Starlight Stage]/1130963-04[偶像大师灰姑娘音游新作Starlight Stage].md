@@ -441,3 +441,41 @@ V豚入坑干嘛，不给亲亲管人打钱给万南打钱来吗？小剧场漫�
 
 更新出bug是为了刷KPI吗？没活可以咬打火机啊
 
+*****
+
+####  darkangel0224  
+##### 5453#       发表于 2024-9-20 22:21
+
+这兰子好难出啊。大号近200多抽不出，开小号30抽出了，淦
+
+
+*****
+
+####  华蝶风雪  
+##### 5454#       发表于 2024-9-21 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223138&amp;ptid=1130963" target="_blank">darkangel0224 发表于 2024-9-16 22:32</a>
+
+这万代做游戏果然不行啊，挂机运营的队伍，第二天接着收菜就记不住配置，还得重新选人
+
+更新出bug是为了刷K ...</blockquote>
+原来的运营项是很多天的换一轮，现在全改成一天，我觉得是故意的
+
+
+*****
+
+####  a1370303  
+##### 5455#       发表于 2024-9-21 12:02
+
+营业这个改版属实是没活硬整，可能是为了凑周年的更新吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  klushyo  
+##### 5456#       发表于 2024-9-21 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260645&amp;ptid=1130963" target="_blank">darkangel0224 发表于 2024-9-20 22:21</a>
+这兰子好难出啊。大号近200多抽不出，开小号30抽出了，淦</blockquote>
+吐血，290出了…再井个芙芙芙吧…
+
