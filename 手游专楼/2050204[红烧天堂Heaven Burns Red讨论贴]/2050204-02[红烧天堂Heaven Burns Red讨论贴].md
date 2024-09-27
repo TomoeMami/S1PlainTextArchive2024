@@ -1626,3 +1626,12 @@ ss卡技能强化里有个通用化, 点完就能放s卡上
 
 大姐这张新S卡，好温馨一家人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+*****
+
+####  pf67  
+##### 1639#       发表于 2024-9-24 13:29
+
+无属性原来这么强，夏目随便凑点乘区就打百万了
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
