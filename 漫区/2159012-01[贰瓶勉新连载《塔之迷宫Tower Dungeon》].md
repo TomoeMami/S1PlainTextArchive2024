@@ -1526,3 +1526,12 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 看了前两话（单行本），魔法师的技能特效——身上几圈光环好像希波LV9<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+*****
+
+####  smdzh2  
+##### 103#       发表于 2024-9-27 13:42
+
+<img src="https://p.sda1.dev/19/fc9d112473f601f87b9d29713ee189f5/image.jpg" referrerpolicy="no-referrer">
+镜头暂时转到新队伍身上，残缺龙化人和哑巴随从、鼠鼠公主和鼠鼠无口最强战士、晕船女骑士、吃药卡住喉咙的神秘老头
+不知道后面会不会和尤巴他们有交集
+
