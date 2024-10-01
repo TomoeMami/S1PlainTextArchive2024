@@ -2697,3 +2697,26 @@ KONAMI的世界级ip现在能拿多少出来？
 
 继续NS版好了……
 
+*****
+
+####  缺德猫  
+##### 301#       发表于 2024-9-28 14:01
+
+看来是重新翻译的，简繁文本一样。
+
+<img src="https://img.saraba1st.com/forum/202409/28/140122gv26zcmqrt974ty3.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (78.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 14:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/140127inr8a1o6idodd9dd.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (100.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 14:01 上传
+
