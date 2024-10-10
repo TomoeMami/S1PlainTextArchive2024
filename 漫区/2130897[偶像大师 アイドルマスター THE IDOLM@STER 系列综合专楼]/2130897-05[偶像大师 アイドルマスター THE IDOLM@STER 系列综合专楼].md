@@ -5176,3 +5176,2784 @@ LisAni 学马怎么只上一个，而且连爱马仕的title都没有，直接fr
 
 9个人里年纪最大的应该是薄井吧
 
+*****
+
+####  zhwpjy  
+##### 6373#       发表于 2024-9-11 17:45
+
+<img src="https://img.saraba1st.com/forum/202409/11/174419mplp50xkkxhlh5w8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6161.jpeg</strong> (101.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202409/11/174419pclya6ysyckyyn26.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6162.jpeg</strong> (77.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202409/11/174419pac4l8j3hif3bg48.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6163.jpeg</strong> (69.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 17:44 上传
+
+磷羽看样子也满颠的 总感觉他们这个团有点摇滚？
+
+
+*****
+
+####  oznark  
+##### 6374#       发表于 2024-9-11 23:00
+
+<img src="https://img.saraba1st.com/forum/202409/11/080020aaamfqkqvqbuq1xo.jpg" referrerpolicy="no-referrer">
+
+<strong>『アイドルマスター』シリーズ-全国プロデューサー検定-【公式】アイドルマスター-ポ.jpg</strong> (515.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-11 23:00 上传
+
+
+*****
+
+####  RedSpecial  
+##### 6375#       发表于 2024-9-12 16:47
+
+考试不及格的结果是去初星当进修生
+
+
+*****
+
+####  wfhtony  
+##### 6376#       发表于 2024-9-14 16:46
+
+今天的役割：
+
+<img src="https://img.saraba1st.com/forum/202409/14/164604qc0vc0cccz22tj2z.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h35m56s802.jpg</strong> (291.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164604bffke2sv5zzhqgjm.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m01s813.jpg</strong> (271.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164605fvockt3vpy7l4yol.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m07s646.jpg</strong> (270.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164605jkoc3cc435ozok4b.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m13s118.jpg</strong> (274.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164606kcyw3le6i0zijjvh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m19s192.jpg</strong> (275.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164607giptp61pxto6wlt9.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m24s731.jpg</strong> (270.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/164607krfzlcr0n5r5sstz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-16h36m30s637.jpg</strong> (276.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 16:46 上传
+
+
+*****
+
+####  wfhtony  
+##### 6377#       发表于 2024-9-14 17:09
+
+<blockquote>06. スバル // 中島由貴、大木咲絵子、松井恵理子、青木瑠璃子（＊「占星師」組+Nao，開場有唸白）
+
+07. さよならアンドロメダ // 藍原ことみ、原涼子、星希成奏、佐倉薫（＊「天使」組）
+
+08. あの子が街に来なサンタ // 松永あかね</blockquote>從仙女座來的聖誕老人(
+
+
+*****
+
+####  wfhtony  
+##### 6378#       发表于 2024-9-14 18:11
+
+ 本帖最后由 wfhtony 于 2024-9-14 18:12 编辑 
+
+17. Fin[e]～美しい終焉～ // 佐倉薫、藍原ことみ（＊新曲）
+
+
+*****
+
+####  wfhtony  
+##### 6379#       发表于 2024-9-14 18:49
+
+魔王「明天Day2見。」
+
+<img src="https://img.saraba1st.com/forum/202409/14/184911gbdl27rqql7hxf7g.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h47m57s688.jpg</strong> (368.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/184912nz11xe5x24atartr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h48m20s407.jpg</strong> (292.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 18:49 上传
+
+
+*****
+
+####  wfhtony  
+##### 6380#       发表于 2024-9-14 19:03
+
+mobamas的設定集將限量發售，共9冊。
+
+<img src="https://img.saraba1st.com/forum/202409/14/190155fklk31zbfkrclodk.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m10s921.jpg</strong> (274.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190155dsett3tsytk5otps.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m20s336.jpg</strong> (301.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190156b20wk5suxkw8awax.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m26s772.jpg</strong> (314.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190157qz77mmhfq5qqwiwz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m30s642.jpg</strong> (315.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190158lqh7uqbjgwzhjquq.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m34s618.jpg</strong> (277.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190158krorien1oxlrgeln.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m42s420.jpg</strong> (279.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190159im1ly49kkg944mu1.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-18h59m49s965.jpg</strong> (303.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190200f1mo4mlfpl1icfec.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h00m00s743.jpg</strong> (344.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190200fy9nhrhtkg5gjg95.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h00m13s321.jpg</strong> (333.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190201mljtbwtim1aqlbtm.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h00m26s466.jpg</strong> (305.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190202w9aa92u0jmltbqhj.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h00m38s688.jpg</strong> (383.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190203c3henoyohto3t383.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h00m41s609.jpg</strong> (234.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:02 上传
+
+明天有樣品展出。
+
+慣例的：
+
+<img src="https://img.saraba1st.com/forum/202409/14/190304i6q8nu800lgo000d.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h02m12s674.jpg</strong> (386.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190305umdc9p1chvld8hhv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h02m27s786.jpg</strong> (324.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190306bmgddzdbbd1ksal2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h02m32s529.jpg</strong> (395.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190306ofn2dqdqggjmecjq.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h02m43s811.jpg</strong> (344.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190307mmk5u5fi5zd47fmy.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h02m47s377.jpg</strong> (337.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:03 上传
+
+vlcsnap-2024-09-14-19h00m33s509.jpg
+(264.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/190202epaqzeqo62e8mxaa.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6381#       发表于 2024-9-14 19:23
+
+<img src="https://img.saraba1st.com/forum/202409/14/192245pzyeo081g110pf1h.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h21m10s804.jpg</strong> (216.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/192246nqrhjqh79bbfj7ih.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h21m13s669.jpg</strong> (202.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202409/14/192246hzddvhn3njnh2diz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-14-19h21m19s707.jpg</strong> (133.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-14 19:22 上传
+
+「「「大好きだ！！！」」」
+
+「「「ME TOO です！！！」」」
+
+→ Day1結束。
+
+
+*****
+
+####  oznark  
+##### 6382#       发表于 2024-9-15 01:51
+
+<img src="https://img.saraba1st.com/forum/202409/14/105104n4mzbir9ca1t0b6z.png" referrerpolicy="no-referrer">
+
+<strong>T78RX)7ZQP)RE(}X)NV81T8.png</strong> (517.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 01:51 上传
+
+
+*****
+
+####  wfhtony  
+##### 6383#       发表于 2024-9-15 16:37
+
+今天的役割：
+
+<img src="https://img.saraba1st.com/forum/202409/15/163719m0ob20w43251b5rb.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m25s001.jpg</strong> (300.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163719qwl73wvsos07ww66.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m29s872.jpg</strong> (270.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163720pm8cnzcqsonho544.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m35s844.jpg</strong> (275.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163721dbb3cbbbme34g4bt.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m41s515.jpg</strong> (285.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163721r3chh98u5dvmfofi.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m47s455.jpg</strong> (291.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163722vde7bbydlowpsyok.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m53s093.jpg</strong> (275.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/163723sj34bvg5vls2e2ko.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-16h35m59s102.jpg</strong> (311.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 16:37 上传
+
+
+*****
+
+####  wfhtony  
+##### 6384#       发表于 2024-9-15 17:00
+
+06. オレンジタイム // 井上ほの花、長江里加、藤本彩花、高田憂希、深川芹亜（＊142s+9週年=151cm）
+
+
+*****
+
+####  wfhtony  
+##### 6385#       发表于 2024-9-15 19:13
+
+<img src="https://img.saraba1st.com/forum/202409/15/191149iwezebwlewexx5xf.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h04m10s836.jpg</strong> (158.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+=====
+
+快閃店和週邊：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191149kztvg00bqyvha0he.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m20s311.jpg</strong> (356.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191150yq1zq1qduu5qaeqa.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m29s218.jpg</strong> (370.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+昨天的recap：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191151qegm1x5bq5a5xcp5.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m48s308.jpg</strong> (408.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191151seieg186ieg6tsw9.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h07m55s241.jpg</strong> (314.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+幾個聯動：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191152mdoyxozmp08o0dom.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m16s099.jpg</strong> (323.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191153ri3a4498v4s4svy3.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m22s770.jpg</strong> (322.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191153iv7ffvekebervefp.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m30s145.jpg</strong> (270.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191154zetfax6vdi0y3bfb.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m36s616.jpg</strong> (273.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+デレステ慣例：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191154djj0mb0jidxqpxjv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m44s058.jpg</strong> (338.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191155ejrrn5t803wx3znr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m50s593.jpg</strong> (306.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191155zu4p0u846p0zbb44.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h08m57s668.jpg</strong> (284.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191156zhe4qzgb4qgyzc48.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h09m04s408.jpg</strong> (264.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191156qzz5cvzc5cbxzctv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h09m11s382.jpg</strong> (234.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+新SOLO曲確定製作：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191157xnvnaap79y9lfznr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h09m18s593.jpg</strong> (327.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+接下來的LIVE：
+
+<img src="https://img.saraba1st.com/forum/202409/15/191157nz4eti52aiatdx53.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m01s963.jpg</strong> (187.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191158jlo8odntmqn8gtq8.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m06s566.jpg</strong> (216.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191159rfbzzbm5eaniambm.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m17s145.jpg</strong> (253.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202409/15/191159thchdycy118o3mz2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m22s883.jpg</strong> (208.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:11 上传
+
+是紀念デレステ运營十週年的巡演。
+
+<img src="https://img.saraba1st.com/forum/202409/15/191200rpuawuwlail0hhfh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-15-19h10m31s294.jpg</strong> (226.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-15 19:12 上传
+
+Day2情報環節結束。
+
+
+*****
+
+####  yuuuuuuuu  
+##### 6386#       发表于 2024-9-15 19:29
+
+不知道会不会找豪哥来给圣写solo
+
+
+*****
+
+####  冰寒之月  
+##### 6387#       发表于 2024-9-15 19:37
+
+不知道千岁和志希新歌mv会拍成啥样 能像千岁以前参与的歌一样有足够神秘感就好了
+
+
+*****
+
+####  陆久舟  
+##### 6388#       发表于 2024-9-16 18:04
+
+小高怎么回事，定好闹钟准时上线就是看你搞这行为艺术吗，loop一个小时吗
+
+
+*****
+
+####  magicc  
+##### 6389#       发表于 2024-9-16 18:06
+
+小高还是吃点药早点睡觉去吧
+
+
+*****
+
+####  Alleyht  
+##### 6390#       发表于 2024-9-16 18:27
+
+到底还是让小高赚到钱了搞这种烂活<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真不如循环播放エビ揉め
+
+该运营中止了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  magicc  
+##### 6391#       发表于 2024-9-16 19:03
+
+这是三期动画吗
+
+*****
+
+####  wfhtony  
+##### 6392#       发表于 2024-9-16 19:05
+
+新的對邦
+
+
+*****
+
+####  陆久舟  
+##### 6393#       发表于 2024-9-16 19:08
+
+唉，唉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 6394#       发表于 2024-9-16 19:10
+
+一开始看到奈落还以为是ジムシャニ动画化，期待还是太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lunaticfool  
+##### 6395#       发表于 2024-9-16 19:12
+
+米组的曲够吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 6396#       发表于 2024-9-16 19:15
+
+<img src="https://img.saraba1st.com/forum/202409/16/191508fbsod7fdpii9p89o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6220.jpeg</strong> (142.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-16 19:15 上传
+
+
+*****
+
+####  66367749  
+##### 6397#       发表于 2024-9-16 19:34
+
+可能有点火星，不过揉虾真的好好笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 6398#       发表于 2024-9-16 19:35
+
+给人感觉不是单纯唱歌的live活动
+
+而是用3d模型复刻SC嘘组米组活动剧情啥的？
+
+有日花拿走儿力口红吗？
+
+
+*****
+
+####  wfhtony  
+##### 6399#       发表于 2024-9-16 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221782&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2024-9-16 19:35</a>
+
+给人感觉不是单纯唱歌的live活动
+
+而是用3d模型复刻SC嘘组米组活动剧情啥的？
+
+有日花拿走儿力口红吗？ ...</blockquote>
+看到[官博發的通告](https://idolmaster-official.jp/news/01_12666)了，確認本場公演爲xRlive。
+
+具體可參考本家今年的兩場xRlive（三月的「半月」和八月的「961 ReFLAME」）。
+
+*****
+
+####  magicc  
+##### 6400#       发表于 2024-9-16 19:41
+
+感觉其他几家接下来也会有xRlive了
+
+
+*****
+
+####  wfhtony  
+##### 6401#       发表于 2024-9-16 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66221834&amp;ptid=2130897" target="_blank">magicc 发表于 2024-9-16 19:41</a>
+
+感觉其他几家接下来也会有xRlive了</blockquote>
+灰的话疫情前搞过一次（[虽然不是xRlive名义，是与VR ZONE合作的](https://prtimes.jp/main/html/rd/p/000000031.000033062.html)），不知道之后万南会不会自己专门再搞一次。
+
+
+*****
+
+####  Ask_10A  
+##### 6402#       发表于 2024-9-17 20:37
+
+<img src="https://img.saraba1st.com/forum/202409/17/203705xz4nojpc4dd1on1a.png" referrerpolicy="no-referrer">
+
+<strong>L9OBE($(`5L67W31Q@5%F_tmb.png</strong> (254.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+BL_DI3VR9L1PN(K(MQJY$6V.jpg
+(217.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/203709ydy7gltu7zo66gr6.jpg" referrerpolicy="no-referrer">
+
+L13_`}9ERGU@{MX]VGED)(1_tmb.jpg
+(229.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/203711ot39xlcxaaooe9xe.jpg" referrerpolicy="no-referrer">
+
+K6C03%]E)9(VOF]G}ZKYDJ0_tmb.jpg
+(179.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202409/17/203713wksk8nzxh1b009n7.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acacaclove  
+##### 6403#       发表于 2024-9-17 23:21
+
+<img src="https://img.saraba1st.com/forum/202409/17/232053c2sbss6s6ttiz212.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (249.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 23:20 上传
+
+回来吧876<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6404#       发表于 2024-9-17 23:43
+
+作爲DS（876）15週年紀念，原作的人物設計 田宮清高 重新繪製了876三位偶像的新立繪。
+
+<img src="https://img.saraba1st.com/forum/202409/17/234302t1kw7h8qwbt2k1ni.png" referrerpolicy="no-referrer">
+
+<strong>GXr-2GKaMAA3900.png</strong> (372.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 23:43 上传
+
+這是2009年的原版宣傳立繪（by 田宮清高）：
+
+<img src="https://img.saraba1st.com/forum/202409/17/234301ycv1ylceljdxklkr.jpg" referrerpolicy="no-referrer">
+
+<strong>GXmzd8DbEAAbxNK.jpg</strong> (155.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-17 23:43 上传
+
+
+*****
+
+####  zhwpjy  
+##### 6405#       发表于 2024-9-18 19:12
+
+<img src="https://img.saraba1st.com/forum/202409/18/191231ud0dqcpdqdl0cp8d.png" referrerpolicy="no-referrer">
+
+<strong>CDEA2603DB5D45C37F5A6A9F9CB2DB61.png</strong> (161.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202409/18/191231jtbsobnfo6nkbb3o.png" referrerpolicy="no-referrer">
+
+<strong>682583B9597C78D254CA3CCBA7E53869.png</strong> (867.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 19:12 上传
+
+<img src="https://img.saraba1st.com/forum/202409/18/191231zixb5hiuzbwzuthr.png" referrerpolicy="no-referrer">
+
+<strong>96D5EC6A3C9673457255A869B2678C67.png</strong> (145.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 19:12 上传
+
+
+*****
+
+####  kykawaiii  
+##### 6406#       发表于 2024-9-18 19:20
+
+雌小鬼+病娇<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  oznark  
+##### 6407#       发表于 2024-9-18 22:33
+
+<img src="https://img.saraba1st.com/forum/202409/18/073045kghk3ktqrx44z4o4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202409/18/073228o6kgb8fbkwpbmwkg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (285.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-18 22:32 上传
+
+
+*****
+
+####  Seeley  
+##### 6408#       发表于 2024-9-19 08:39
+
+星梨花爸爸现在是什么表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhwpjy  
+##### 6409#       发表于 2024-9-19 09:58
+
+<blockquote>Seeley 发表于 2024-9-19 08:39
+星梨花爸爸现在是什么表情</blockquote>
+星梨花 还有张坏女孩的卡吧 还经常染发 爸爸要昏过去了
+
+
+*****
+
+####  zhwpjy  
+##### 6410#       发表于 2024-9-19 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66242498&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-9-19 08:39</a>
+
+星梨花爸爸现在是什么表情</blockquote>你看打牌染发都学会了 变成坏女孩雌小鬼了
+
+生き残りゲーム_富豪_箱崎星梨花 .png
+(702.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/100530l2rvn2tll3d29cv9.png" referrerpolicy="no-referrer">
+
+SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
+(1.38 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/100532cu29v59yy9k7ubcy.png" referrerpolicy="no-referrer">
+
+SSR_シアワセなイタズラ_ver.SH_箱崎星梨花.png
+(1.38 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/100553d9cij7j94n07kkzp.png" referrerpolicy="no-referrer">
+
+生き残りゲーム_富豪_箱崎星梨花 .png
+(702.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-19 10:06 上传
+
+<img src="https://img.saraba1st.com/forum/202409/19/100605ru52nortdlu99nfl.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王九的哥哥  
+##### 6411#       发表于 2024-9-19 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66243415&amp;ptid=2130897" target="_blank">zhwpjy 发表于 2024-9-19 10:07</a>
+你看打牌染发都学会了 变成坏女孩雌小鬼了</blockquote>
+就这个剧中剧的剧情，最后是被沙煲大的钻头正面破胸干死的……
+
+もちょ自己都在リリイベ上吐槽说你们765让人演这么个电影就没有考虑过爸爸的感受么<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oznark  
+##### 6412#       发表于 2024-9-21 02:52
+
+<img src="https://img.saraba1st.com/forum/202409/20/115213slp2g1s2so1a62g5.png" referrerpolicy="no-referrer">
+
+<strong>CNIEIVQY(E[%8~)EGV3$)@L.png</strong> (299.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-21 02:52 上传
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 6413#       发表于 2024-9-21 08:13
+
+【麻仓桃惨叫-哔哩哔哩】 https://b23.tv/Q9tGlPZ
+就这个剧中剧，mocho美味的惨叫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  王九的哥哥  
+##### 6414#       发表于 2024-9-22 14:43
+
+今日朗读活动……
+
+547117faea1fc82560ef6e6cef69c01d.jpeg
+(480.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 14:42 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/144251qfy7qyln5gn1fdd7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+69e24a048b113e099989dc5ff0013c99.jpeg
+(943.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-22 14:43 上传
+
+<img src="https://img.saraba1st.com/forum/202409/22/144316dqvq4qqq4qnq4u0q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 6415#       发表于 2024-9-23 14:42
+
+看来是有去特训过了，这次表情好很多，偶尔还是有一些太用劲，不过导播有打配合切镜头
+
+*****
+
+####  天羽木子  
+##### 6416#       发表于 2024-9-23 14:44
+
+这次的白线对味道了，现场感觉很好
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  天羽木子  
+##### 6417#       发表于 2024-9-23 15:02
+
+真好想听L.U.V.的录音棚版<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">莉波啊啊啊啊啊啊
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  麻巳巳  
+##### 6418#       发表于 2024-9-23 15:04
+
+白线真的好多了，用心练和连唱三次还那个样还是有很大区别的
+
+
+*****
+
+####  Seeley  
+##### 6419#       发表于 2024-9-23 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">冠菊这收音是不是有点问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  BQlin  
+##### 6420#       发表于 2024-9-23 18:36
+
+被两张卡坑到live才有新曲听，幽默万代
+
+*****
+
+####  wfhtony  
+##### 6421#       发表于 2024-9-23 18:38
+
+10. 歌声は君いろ // 薄井友里(*新曲)
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  wfhtony  
+##### 6422#       发表于 2024-9-23 18:38
+
+風怒，編輯
+
+*****
+
+####  BQlin  
+##### 6423#       发表于 2024-9-23 18:42
+
+问题又来了，为什么莉莉娅要用生日曲凑数，其他人有生日曲也没见拿出来唱
+
+姐姐都能有两首存货了，不信莉莉娅没有
+
+
+*****
+
+####  BQlin  
+##### 6424#       发表于 2024-9-23 19:11
+
+我小美野呢
+
+*****
+
+####  wfhtony  
+##### 6425#       发表于 2024-9-23 19:11
+
+ 本帖最后由 wfhtony 于 2024-9-23 19:13 编辑 
+
+本場有小美野（不過和第一場一樣是口述消息）。
+
+・本週五的生放基本以萬聖節活動爲主。
+
+
+*****
+
+####  BQlin  
+##### 6426#       发表于 2024-9-23 19:21
+
+下一批live有得等了，快一个月，急急急
+
+
+*****
+
+####  水莲寺流歌  
+##### 6427#       发表于 2024-9-24 11:51
+
+未解之谜之小高究竟是多喜欢透鸽
+
+
+*****
+
+####  天堂懵懂人  
+##### 6428#       发表于 2024-9-24 13:01
+
+【露娜：难说】 [https://www.bilibili.com/video/B ... 0f3238707fa1889bb10](https://www.bilibili.com/video/BV1CdsCeDEeD/?share_source=copy_web&amp;vd_source=9157d1f14cedb0f3238707fa1889bb10)
+
+
+*****
+
+####  冰寒之月  
+##### 6429#       发表于 2024-9-24 13:42
+
+我记得前几天还看到张瞳瞳和优模仿透鸽站位的照片
+
+
+*****
+
+####  acacaclove  
+##### 6430#       发表于 2024-9-24 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66290284&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2024-9-24 13:42</a>
+
+我记得前几天还看到张瞳瞳和优模仿透鸽站位的照片</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/24/170752lqa5iggzuuugu8cu.jpg" referrerpolicy="no-referrer">
+
+<strong>3]KDC88RF24]ZVVRUDIY.jpg</strong> (591.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 17:07 上传
+
+
+*****
+
+####  wfhtony  
+##### 6431#       发表于 2024-9-24 18:56
+
+萬南的前社長 石川祝男（南夢宮出身）[於本月9日去世，享年69歲](https://www.sankei.com/article/20240924-JL3REKMQ6JOE3OMPSAZFAPYU3E/)。
+<img src="https://p.sda1.dev/19/fec2616d94e3f5ed4e19a30eb761e949/image.jpg" referrerpolicy="no-referrer">
+
+履歷（節選自日文維基）：<img src="https://p.sda1.dev/19/40ce5d380948db3f1cb95cfa52f27117/image.jpg" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  天堂懵懂人  
+##### 6432#       发表于 2024-9-24 22:55
+
+<img src="https://img.saraba1st.com/forum/202409/24/225507ucs5yskk86p3ck5y.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-09-24_22-54-46.jpg</strong> (226.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-24 22:55 上传
+
+wiki资料加的真快  
+
+
+*****
+
+####  magicc  
+##### 6433#       发表于 2024-9-26 20:11
+
+sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alleyht  
+##### 6434#       发表于 2024-9-26 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66315163&amp;ptid=2130897" target="_blank">magicc 发表于 2024-9-26 20:11</a>
+
+sfp以后好像不用培育就能直接打歌了,这不就变成普通的音游了吗</blockquote>
+有一种小高终于意识到了自己在做垃圾游戏的滑稽感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  magicc  
+##### 6435#       发表于 2024-9-26 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66316971&amp;ptid=2130897" target="_blank">Alleyht 发表于 2024-9-26 23:21</a>
+
+有一种小高终于意识到了自己在做垃圾游戏的滑稽感</blockquote>
+那之前培育的不就变废纸了吗
+
+
+*****
+
+####  Alleyht  
+##### 6436#       发表于 2024-9-26 23:58
+
+ 本帖最后由 Alleyht 于 2024-9-27 00:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66317022&amp;ptid=2130897" target="_blank">magicc 发表于 2024-9-26 23:27</a>
+
+那之前培育的不就变废纸了吗</blockquote>
+换个思路，不这么改你SCSP留不住新人估计很快就要被万南强制サ終了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+都是变成废纸现在不还起码留了点念想，虽然日推的部分闪P们也都在边骂边槽你早在开服的时候这么干不就好了
+
+
+*****
+
+####  冰风血羽  
+##### 6437#       发表于 2024-9-27 03:17
+
+ 本帖最后由 冰风血羽 于 2024-9-27 03:20 编辑 
+
+我就是开服玩了几周被劝退的，页游挖矿P卡就够累的了到了手机上还来这套我可受不了，我只想看看小偶像们动起来享受给她们换衣服的乐趣啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  oznark  
+##### 6438#       发表于 2024-9-27 22:46
+
+<img src="https://img.saraba1st.com/forum/202409/27/074649o6smrwywy9djywww.jpg" referrerpolicy="no-referrer">
+
+<strong>CY.jpg</strong> (99.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 22:46 上传
+
+
+*****
+
+####  藤田琴音  
+##### 6439#       发表于 2024-9-27 23:27
+
+难道说<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">是万众期待（并没有）的土豆2吗？
+
+
+*****
+
+####  王九的哥哥  
+##### 6440#       发表于 2024-9-28 00:00
+
+最大胆的猜想是难道不是剧场版片尾的这颗卫星么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/27/235831iexzo6o8t64tt4ge.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-27 23:58 上传
+
+当然了，现实一点的话我觉得80%的可能性也就是765 All Stars天体公演最后一弹，还剩春香雪歩伊織貴音……
+
+
+*****
+
+####  wfhtony  
+##### 6441#       发表于 2024-9-28 15:41
+
+ 本帖最后由 wfhtony 于 2024-9-28 15:42 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/28/154053c7z59jhotntomgyg.jpg" referrerpolicy="no-referrer">
+
+<strong>PROJECT IM@S vα-liv PRODUCER MEETING 2024 -FROM NOW ON!!!- 昼公演（生放送）.mk.jpg</strong> (227.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 15:40 上传
+
+Setlist（PROJECT IM@S vα-liv PRODUCER MEETING 2024 -FROM NOW ON!!!- 晝場）：
+
+・Overture + Opening<blockquote>[開演前注意事項 // 全員]
+
+[Overture]
+
+01. リローディング // 全員
+
+→ 開場MC（MC①）</blockquote>
+・Interactive (1st) block<blockquote>[互動環節①（MC：勝股春樹）：みんなでヴイアラミーティング!!!]
+
+--互動環節中途，免費冒頭部分結束--
+
+[互動環節②（MC：勝股春樹）：アイドル対抗、ヴイア“ラウド”バトル！]</blockquote>
+・Single Live (Cover, 2nd) block<blockquote>02. 焼ケ鮭（《電音部》） // レトラ（＊原唱：りむる (真新宿GR学園，CV.をとは)）
+
+03. スペードのQ（《アイドルマスター Million Live!》） // 灯里愛夏（＊原唱：永吉 昴 (CV.斉藤佑圭)、双海亜美 (CV.下田麻美)、エミリー スチュアート (CV.郁原ゆう)、北沢志保 (CV.雨宮 天)）
+
+04. Next Live（《アイドルマスター》） // 上水流宇宙（＊原唱：我那覇響 (CV.沼倉愛美)）
+
+→ MC②</blockquote>
+・Single Live (Original, 3rd) + End block<blockquote>05. ともすれば、(中略)アイドル // 灯里愛夏
+
+--曲目結束後遭遇設備故障（可能是演出需要？），製作人 勝股春樹 上臺救場--
+
+06. 公転周期 // 上水流宇宙
+
+07. 群青イニシエーション // レトラ
+
+→ MC③
+
+08. ハッピース（《アイドルマスター Dearly Stars》） // 全員（＊原唱：日高愛 (CV.戸松遥), 水谷絵理 (CV.花澤香菜), 秋月涼 (CV.三瓶由布子)）
+
+[終演後留言 // 全員]</blockquote>
+以下内容需要积分高于 500 才可浏览
+
+Resilio: B6WZP4BLAVQNZOV4L5EBSOTS4G47HZRLV
+
+
+*****
+
+####  鳄鱼头  
+##### 6442#       发表于 2024-9-28 17:25
+
+va现地归来，一本满足<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+3个人都相当给力，能唱能跳，下个月头准备加订阅支持
+
+
+*****
+
+####  wfhtony  
+##### 6443#       发表于 2024-9-28 18:12
+
+怪文書環節 X
+
+股東大會（feat.怪文書） 〇
+
+上半年TLS的圓盤化還在檢討中（勝股P「看現場反響這麼熱烈，幾百張賣出去應該是沒問題了。」）。
+
+管馬仕方面今後還會有聯動案件。
+
+
+*****
+
+####  magicc  
+##### 6444#       发表于 2024-9-28 19:08
+
+<img src="https://img.saraba1st.com/forum/202409/28/190820vl60eolzkkelm2hm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:08 上传
+
+是龙宫小町
+
+
+*****
+
+####  wfhtony  
+##### 6445#       发表于 2024-9-28 19:20
+
+ 本帖最后由 wfhtony 于 2024-9-28 19:26 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/28/192001tnbsbanzeidqqav7.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h19m41s677.png</strong> (2.7 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192003am9pe11qqop3ph1u.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h19m46s670.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+管馬仕接下來會和愛活學院那邊聯動。
+
+<img src="https://img.saraba1st.com/forum/202409/28/192033a68szxxnv66av87s.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m01s397.png</strong> (87.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192034zy0z0z555vg6v05z.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m04s171.png</strong> (142.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192035nqjpp3mykp330ffu.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m07s975.png</strong> (109.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192036gicyvlifvzv4zr9t.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m12s007.png</strong> (140.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192036ko2wyyw33keogyks.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m17s322.png</strong> (313.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192037m60pd6fs01kd3b1n.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m22s997.png</strong> (392.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/28/192038bi0iia6wei07axj7.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m27s097.png</strong> (116.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+明年會有ONE-MAN LIVE，且有多首新曲製作中。
+
+<img src="https://img.saraba1st.com/forum/202409/28/192053vnvuuzxjusiijilg.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-09-28-19h20m31s098.png</strong> (146.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-28 19:20 上传
+
+「最終目標是上Arena，但現在的目標是粉絲數十萬人。」
+
+
+*****
+
+####  天堂懵懂人  
+##### 6446#       发表于 2024-9-28 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66332619&amp;ptid=2130897" target="_blank">magicc 发表于 2024-9-28 19:08</a>
+
+是龙宫小町</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">那接下来应该是泳装回
+
+
+*****
+
+####  粉儿alice  
+##### 6447#       发表于 2024-9-28 20:12
+
+果然和爱活搞联动了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6448#       发表于 2024-9-29 21:49
+
+<img src="https://img.saraba1st.com/forum/202409/29/214837bujq8xbyrqjutae9.jpg" referrerpolicy="no-referrer">
+
+<strong>PA00164491.jpg</strong> (859.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 21:48 上传
+
+ <blockquote>01. <strong>仮装狂騒曲</strong> ([MV@YouTube](https://www.youtube.com/watch?v=8YNzp2vRS9I))
+
+　作詞：TOPHAMHAT-KYO (FAKE TYPE.)
+
+　作曲：FAKE TYPE.　編曲：DYES IWASAKI (FAKE TYPE.)
+
+　歌：倉本千奈 (CV. 伊藤舞音)、篠澤 広 (CV. 川村玲奈)、月村手毬 (CV. 小鹿なお)
+
+　Sax,Clarinet : Takahiro Yamasaki
+
+　Guitar : Johngarabushi
+
+　Chorus：佐々木恵梨
+
+＊實際發售有附帶伴奏。</blockquote>
+歌詞：<blockquote>あれよという間に飲み込まれる
+
+橙色のタイダルウェーヴ　夜行夜光
+
+ハンドメイドからオーダーメイドまで仕掛ける大流行 (Hi!)
+
+本物から偽物までまとめて大集合 (Hi!)
+
+揃いも揃って不揃いの世界観にお揃いの幼稚さに辟易な恒例
+
+催しの奴隷　夜通し踊れ　条例処刑フォーメーションで褒美を獲れ
+
+マーマーレードが溶ける頃 (Wo woi!)　キャパ以上にお道化る者 (Wo woi!)
+
+チヤホヤしたりされたりがいいんでしょ？
+
+甘いだけじゃ物足りない Give me some more (Wahhh!)
+
+Check it 刺激的　ヒステリーベイビー　無限に艶美 Sensitive (Tick tick)
+
+What you want? (Ah ha) Where you go? (Ah ha)
+
+邪気に飲まれ制御不能 (Ah ha)
+
+好きに奪い去る　異議マイナス陰気バイラル意に介さず　イニミニマニモ
+
+恐ろしや漫ろ (Hello)
+
+浮かび上がり回る月に針が落ちる (Waaah!)
+
+大きな口で笑うカボチャたちが歌う (Waaah!)
+
+それが合図　魔物たちが目覚め踊る (Waaah!)
+
+こうなればあとは思いのまま
+
+翻弄　骨抜き Danceable
+
+スケアクロウも飛び跳ね廻る
+
+Hollow 月夜の Turntable
+
+くるくる狂おしい高まり
+
+We got the party night!
+
+Anyway, Enjoy the party night night night!
+
+WOO WEE WOO WEE Look at me now フルーティー無邪気な空気じゃ無理 (ムリ)
+
+贅沢に清濁をチェイサーなしでいただけばヘラヘラ Great as hell yeah (Yeah!)
+
+Where is my 素敵なナイト　見つからなくても既に薔薇色 (Hoo)
+
+嫉妬は見苦しいから着ぐるみにしまってから剥いであげる身包み (Yipee!)
+
+仮の衣装でも魂が本物ならば魅了してイマジナリー以上
+
+死霊生霊構わず邂逅　とびきりの美貌　ハッピーな非日常
+
+ガラパゴスに交わる異世界大交流パーティー (Welcome)
+
+振り切れる鼓動 (Hello)
+
+悪目立ちのドラキュラも酒を煽る (Waaah!)
+
+寡黙そうなデュラハンも頭を振る (Waaah!)
+
+紳士的なミイラすらも服がはだける (Waaah!)
+
+どうあれど愉快全開のまま
+
+本性露わに暴れよう
+
+その仮装も正装になる
+
+狂騒曲の Turntable
+
+あいあい愛おしい高まり
+
+We got the party night!
+
+Hi-Fi, All night all night
+
+眠れやしない Woo la la la la la
+
+Fly high, All night all night
+
+鳴り止まない Woo la la la la la
+
+誇大妄想な遊び　ランタンはまるで魂
+
+依然奇怪なジャンボリー
+
+Let me hear you say ハロウィン
+
+翻弄　骨抜き Danceable
+
+スケアクロウも飛び跳ね廻る
+
+Hollow 月夜の Turntable
+
+くるくる狂おしい高まり
+
+We got the party night!
+
+Anyway, Enjoy the party night!
+
+くるくる狂おしい高まり
+
+We got the party night night night!</blockquote>
+以下内容需要积分高于 500 才可浏览
+[無損](https://clr2.wfhtony.space/s/MrDfM) | [Atmos](https://clr2.wfhtony.space/s/q64uX)
+
+
+*****
+
+####  王九的哥哥  
+##### 6449#       发表于 2024-9-29 23:14
+
+<img src="https://img.saraba1st.com/forum/202409/29/231429cqwweywafoesauda.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (401.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 23:14 上传
+
++1
+
+
+*****
+
+####  粉儿alice  
+##### 6450#       发表于 2024-9-28 20:12
+
+果然和爱活搞联动了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 6451#       发表于 2024-9-29 21:49
+
+<img src="https://img.saraba1st.com/forum/202409/29/214837bujq8xbyrqjutae9.jpg" referrerpolicy="no-referrer">
+
+<strong>PA00164491.jpg</strong> (859.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 21:48 上传
+
+ <blockquote>01. <strong>仮装狂騒曲</strong> ([MV@YouTube](https://www.youtube.com/watch?v=8YNzp2vRS9I))
+
+　作詞：TOPHAMHAT-KYO (FAKE TYPE.)
+
+　作曲：FAKE TYPE.　編曲：DYES IWASAKI (FAKE TYPE.)
+
+　歌：倉本千奈 (CV. 伊藤舞音)、篠澤 広 (CV. 川村玲奈)、月村手毬 (CV. 小鹿なお)
+
+　Sax,Clarinet : Takahiro Yamasaki
+
+　Guitar : Johngarabushi
+
+　Chorus：佐々木恵梨
+
+＊實際發售有附帶伴奏。</blockquote>
+歌詞：<blockquote>あれよという間に飲み込まれる
+
+橙色のタイダルウェーヴ　夜行夜光
+
+ハンドメイドからオーダーメイドまで仕掛ける大流行 (Hi!)
+
+本物から偽物までまとめて大集合 (Hi!)
+
+揃いも揃って不揃いの世界観にお揃いの幼稚さに辟易な恒例
+
+催しの奴隷　夜通し踊れ　条例処刑フォーメーションで褒美を獲れ
+
+マーマーレードが溶ける頃 (Wo woi!)　キャパ以上にお道化る者 (Wo woi!)
+
+チヤホヤしたりされたりがいいんでしょ？
+
+甘いだけじゃ物足りない Give me some more (Wahhh!)
+
+Check it 刺激的　ヒステリーベイビー　無限に艶美 Sensitive (Tick tick)
+
+What you want? (Ah ha) Where you go? (Ah ha)
+
+邪気に飲まれ制御不能 (Ah ha)
+
+好きに奪い去る　異議マイナス陰気バイラル意に介さず　イニミニマニモ
+
+恐ろしや漫ろ (Hello)
+
+浮かび上がり回る月に針が落ちる (Waaah!)
+
+大きな口で笑うカボチャたちが歌う (Waaah!)
+
+それが合図　魔物たちが目覚め踊る (Waaah!)
+
+こうなればあとは思いのまま
+
+翻弄　骨抜き Danceable
+
+スケアクロウも飛び跳ね廻る
+
+Hollow 月夜の Turntable
+
+くるくる狂おしい高まり
+
+We got the party night!
+
+Anyway, Enjoy the party night night night!
+
+WOO WEE WOO WEE Look at me now フルーティー無邪気な空気じゃ無理 (ムリ)
+
+贅沢に清濁をチェイサーなしでいただけばヘラヘラ Great as hell yeah (Yeah!)
+
+Where is my 素敵なナイト　見つからなくても既に薔薇色 (Hoo)
+
+嫉妬は見苦しいから着ぐるみにしまってから剥いであげる身包み (Yipee!)
+
+仮の衣装でも魂が本物ならば魅了してイマジナリー以上
+
+死霊生霊構わず邂逅　とびきりの美貌　ハッピーな非日常
+
+ガラパゴスに交わる異世界大交流パーティー (Welcome)
+
+振り切れる鼓動 (Hello)
+
+悪目立ちのドラキュラも酒を煽る (Waaah!)
+
+寡黙そうなデュラハンも頭を振る (Waaah!)
+
+紳士的なミイラすらも服がはだける (Waaah!)
+
+どうあれど愉快全開のまま
+
+本性露わに暴れよう
+
+その仮装も正装になる
+
+狂騒曲の Turntable
+
+あいあい愛おしい高まり
+
+We got the party night!
+
+Hi-Fi, All night all night
+
+眠れやしない Woo la la la la la
+
+Fly high, All night all night
+
+鳴り止まない Woo la la la la la
+
+誇大妄想な遊び　ランタンはまるで魂
+
+依然奇怪なジャンボリー
+
+Let me hear you say ハロウィン
+
+翻弄　骨抜き Danceable
+
+スケアクロウも飛び跳ね廻る
+
+Hollow 月夜の Turntable
+
+くるくる狂おしい高まり
+
+We got the party night!
+
+Anyway, Enjoy the party night!
+
+くるくる狂おしい高まり
+
+We got the party night night night!</blockquote>
+以下内容需要积分高于 500 才可浏览
+[無損](https://clr2.wfhtony.space/s/MrDfM) | [Atmos](https://clr2.wfhtony.space/s/q64uX)
+
+*****
+
+####  王九的哥哥  
+##### 6452#       发表于 2024-9-29 23:14
+
+<img src="https://img.saraba1st.com/forum/202409/29/231429cqwweywafoesauda.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (401.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-29 23:14 上传
+
++1
+
+*****
+
+####  游蜓  
+##### 6453#       发表于 2024-10-1 21:51
+
+虽然很迟，但是刚开始看百万动画
+真好啊，确实是想要的味道，真的很感动
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  acacaclove  
+##### 6454#       发表于 2024-10-3 00:26
+
+支持学马漫画就是支持漫画家slayer就是支持諏訪彩花就是支持百万
+
+*****
+
+####  铃木羽那  
+##### 6455#       发表于 2024-10-3 00:31
+
+能不能顺手支持下闪闪
+
+
+*****
+
+####  猫不理prime  
+##### 6456#       发表于 2024-10-3 00:44
+
+<img src="https://p.sda1.dev/19/6932ea5570075bd56307cac49e625f1d/image.jpg" referrerpolicy="no-referrer">这两组站位有点意思
+
+
+*****
+
+####  天堂懵懂人  
+##### 6457#       发表于 2024-10-3 01:15
+
+说起来浅仓杏美出席LIVE大多都是浅色唇彩居多，害得我总有一种身体状况不好的错觉，柔弱和虚弱还是有区别的啊
+
+
+*****
+
+####  acacaclove  
+##### 6458#       发表于 2024-10-3 01:23
+
+<img src="https://img.saraba1st.com/forum/202410/03/012322qkz030tq6gqqz803.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:23 上传
+
+<img src="https://img.saraba1st.com/forum/202410/03/012335kgrp7rkknol1vjtl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:23 上传
+
+我操你的作者夹带私货
+
+
+*****
+
+####  微尘众  
+##### 6459#       发表于 2024-10-3 01:43
+
+ 本帖最后由 微尘众 于 2024-10-3 01:47 编辑 
+
+夫妻夹私货怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且没看懂哪里像了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  acacaclove  
+##### 6460#       发表于 2024-10-3 02:01
+
+<img src="https://img.saraba1st.com/forum/202410/03/020110uuvo6ugvpuxq79vq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 02:01 上传
+
+因为是这张图
+
+
+*****
+
+####  acacaclove  
+##### 6461#       发表于 2024-10-3 01:23
+
+<img src="https://img.saraba1st.com/forum/202410/03/012322qkz030tq6gqqz803.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:23 上传
+
+<img src="https://img.saraba1st.com/forum/202410/03/012335kgrp7rkknol1vjtl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 01:23 上传
+
+我操你的作者夹带私货
+
+*****
+
+####  微尘众  
+##### 6462#       发表于 2024-10-3 01:43
+
+ 本帖最后由 微尘众 于 2024-10-3 01:47 编辑 
+
+夫妻夹私货怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且没看懂哪里像了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  acacaclove  
+##### 6463#       发表于 2024-10-3 02:01
+
+<img src="https://img.saraba1st.com/forum/202410/03/020110uuvo6ugvpuxq79vq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-3 02:01 上传
+
+因为是这张图
+
+*****
+
+####  阿卡拉兰斯  
+##### 6464#       发表于 2024-10-3 06:09
+
+难道这不是我缺的真苍系终于给补上了（
+
+—— 来自 OPPO PHZ110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  安广多惠子  
+##### 6465#       发表于 2024-10-3 09:34
+
+十王会长:有牛啊啊啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kykawaiii  
+##### 6466#       发表于 2024-10-3 10:24
+
+<img src="https://p.sda1.dev/19/f2407e236115b11e8fa588cf27e3226b/image.jpg" referrerpolicy="no-referrer">
+漫画设定上，会长有点尴尬啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ヒトニナル  
+##### 6467#       发表于 2024-10-3 10:53
+
+不是说漫画跟游戏不是同一个世界线/世界观吗
+漫画的事务所写作100读作じゅうおう＝十王，这条世界线的会长怕不是就是事务所所长
+
+
+*****
+
+####  BQlin  
+##### 6468#       发表于 2024-10-3 11:01
+
+之前好像哪个访谈就提到学的事务所就叫100
+
+上台时都已经20岁，隔这么多年，会长估计也是当上社长了
+
+
+*****
+
+####  花火碳  
+##### 6469#       发表于 2024-10-3 12:32
+
+这女p，让我想到隔壁朱紫片场里的梦女榜一辛俐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没取名啊  
+##### 6470#       发表于 2024-10-3 14:03
+
+万代：我们准备为藤田琴音的个人漫画开辟一个新的世界线，在这条世界线中藤田琴音将迎来一位女性制作人！
+
+十王星南坐立不安
+
+万代：这位女性制作人走的是帅气风格，被人称为天才，一眼相中了藤田琴音！
+
+十王星南聚精会神
+
+万代：她同时还是一位偶像！没错，她同时也是一位天才偶像，可以与藤田琴音一同登台演出！
+
+十王星南起身欢呼
+
+万代：让我们掌声欢迎——犬束静红！！！
+
+
+*****
+
+####  殿珣  
+##### 6471#       发表于 2024-10-3 14:41
+
+没事，这个女p也是偶像也要上台。这不就是律子吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么叫致敬本家啊
+
+
+*****
+
+####  游蜓  
+##### 6472#       发表于 2024-10-3 21:41
+
+百万动画限定一天是我心中最好的偶像动画，以后看不到这样的动画该怎么办啊
+
+
+*****
+
+####  Unlight  
+##### 6473#         楼主| 发表于 2024-10-3 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369548&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-10-3 21:41</a>
+
+百万动画限定一天是我心中最好的偶像动画，以后看不到这样的动画该怎么办啊 ...</blockquote>
+明天可以追闪2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 6474#       发表于 2024-10-3 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66369877&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-10-3 22:28</a>
+
+明天可以追闪2了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要啊
+
+
+*****
+
+####  oznark  
+##### 6475#       发表于 2024-10-4 23:35
+
+<img src="https://img.saraba1st.com/forum/202410/04/083430nuncxczad292ck59.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (391.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 23:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/083435azxz22o8rastx888.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (428.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 23:34 上传
+
+<img src="https://img.saraba1st.com/forum/202410/04/083440xvvzaar07fxjmrkt.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (380.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-4 23:34 上传
+
+
+*****
+
+####  acacaclove  
+##### 6476#       发表于 2024-10-5 00:32
+
+还行，只能说还行，和第一季比起来好多了，但是也就那样了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anatoly  
+##### 6477#       发表于 2024-10-5 00:46
+
+只能说第一集很难觉得离谱程度有轻（）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  acacaclove  
+##### 6478#       发表于 2024-10-5 00:52
+
+群友透露只有op一首新歌<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 6479#       发表于 2024-10-5 00:52
+
+小高我操你的，能不能别shhis啊<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+shhis和卢卡真不该是你这混账动画做出来
+<img src="https://p.sda1.dev/19/3743efd01ad9bd2c263a735734decd7e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/72d20aac5224cad6d533b392512814bb/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6480#       发表于 2024-10-5 00:55
+
+ 本帖最后由 wfhtony 于 2024-10-5 00:58 编辑 
+
+啊，這麼玩啊...
+
+<img src="https://img.saraba1st.com/forum/202410/05/005455kpzutaupppvttvtv.jpg" referrerpolicy="no-referrer">
+
+<strong>TV Tokyo_20241005_005027.479.jpg</strong> (100.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 00:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/005445cpg7u8ppqzqc7m6y.jpg" referrerpolicy="no-referrer">
+
+<strong>TV Tokyo_20241005_005030.599.jpg</strong> (133.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 00:54 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/005445ujy815r1cqe1fr0d.jpg" referrerpolicy="no-referrer">
+
+<strong>TV Tokyo_20241005_005043.193 - 複製.jpg</strong> (81.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 00:54 上传
+
+動畫二期的藍光明年三月發售，屆時<strong>AsobiStore 全卷（Complete Box）版</strong>會同捆SHHis篇的短篇動畫。
+呵，不用等小高公開，也不用查，都知道是最貴的那檔（
+
+這週末的6.5週年LIVE上應該會重複公佈這條消息。
+
+
+*****
+
+####  Anatoly  
+##### 6481#       发表于 2024-10-5 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377168&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-10-5 00:52</a>
+群友透露只有op一首新歌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，之前不是还说新曲不少，又是什么谎报军情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  没取名啊  
+##### 6482#       发表于 2024-10-5 01:00
+
+逃了初一没逃过十五，嘘组我的嘘组<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 6483#       发表于 2024-10-5 01:00
+
+只是出短篇？应该会有三期吧？
+
+*****
+
+####  magicc  
+##### 6484#       发表于 2024-10-5 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377082&amp;ptid=2130897" target="_blank">acacaclove 发表于 2024-10-5 00:32</a>
+还行，只能说还行，和第一季比起来好多了，但是也就那样了</blockquote>
+不是说万圣节event都有好几首新曲了吗，信息有误吧？
+
+*****
+
+####  acacaclove  
+##### 6485#       发表于 2024-10-5 01:03
+
+说错了，是oped就这一首，放哪个位置就是什么<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6486#       发表于 2024-10-5 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377203&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-10-5 00:58</a>
+
+草，之前不是还说新曲不少，又是什么谎报军情
+
+—— 来自 S1Fun</blockquote>
+這季確實有新曲，畢竟專輯信息爛鐵都貼出來了（萬聖節五首曲子）。
+
+他說的是OPED，這兩首裏面只有OP是新的，ED還是一期那個樣。
+
+*****
+
+####  Anatoly  
+##### 6487#       发表于 2024-10-5 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377227&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-10-5 01:05</a>
+這季確實有新曲，畢竟專輯信息爛鐵都貼出來了（萬聖節五首曲子）。
+
+他說的是OPED，這兩首裏面只有OP是新 ...</blockquote>
+草……那还真是，不出意外……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  oznark  
+##### 6488#       发表于 2024-10-5 01:46
+
+<img src="https://img.saraba1st.com/forum/202410/04/104639fffnwffivnjloili.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (210.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 01:46 上传
+
+
+*****
+
+####  はらみー  
+##### 6489#       发表于 2024-10-5 01:55
+
+除了万圣节每个组合还有一首新歌的
+
+*****
+
+####  微尘众  
+##### 6490#       发表于 2024-10-5 01:57
+
+二期12首新歌吧，没啥好担心的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  Vacuolar  
+##### 6491#       发表于 2024-10-5 06:49
+
+这毫无关联的前后场景，这奇怪的bgm，这角色毫无预兆地开始说台词，我懂了，这监督可能以为自己是日本的让吕戈尔。
+
+个鬼啊，抽帧加完全没有交代故事的**病又开始了，真的ptsd。你镜头先拍漂亮，再聊拍出来的东西是否有吸引力吧监督。
+
+
+*****
+
+####  Alleyht  
+##### 6492#       发表于 2024-10-5 07:31
+
+好消息，你闪应该没三期了！
+
+坏消息，嘘组没能逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嘘组动画里儿力大概也要被流弹波及，现在幸存者大概率只剩铃木和小羊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我直接去30ms联动池把石头花光，下个池子要是铃木就和你闪说再见<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Seeley  
+##### 6493#       发表于 2024-10-5 10:26
+
+还是这么糟糕嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出差后好好品鉴一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  猫兔同笼  
+##### 6494#       发表于 2024-10-5 11:15
+
+灵魂拷问
+
+<img src="https://img.saraba1st.com/forum/202410/05/111445f3yyx5by5jzzqjb6.jpg" referrerpolicy="no-referrer">
+
+<strong>1000009841.jpg</strong> (99.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 11:14 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/111451e6u9yzkpxykslwpl.jpg" referrerpolicy="no-referrer">
+
+<strong>1000010252.jpg</strong> (117.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 11:14 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/111459cbb7eobph11he1ye.jpg" referrerpolicy="no-referrer">
+
+<strong>1000010254.jpg</strong> (146.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 11:14 上传
+
+
+*****
+
+####  wolf1997  
+##### 6495#       发表于 2024-10-5 14:14
+
+三人走在停机坪上的那部分卡到了极点，抽帧抽出问题了吧
+
+
+*****
+
+####  安广多惠子  
+##### 6496#       发表于 2024-10-5 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这一集哪里有改善了，抽帧也好bgm也好台词也好还是那么不知所谓，是说他们得了一种拍起源会死的病吗，加组合也从突然裤裆里掏出来，你这仨人哪里找来的都不用说一下，真就请回去重温页游剧情
+
+
+*****
+
+####  微尘众  
+##### 6497#       发表于 2024-10-5 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379674&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-10-5 14:22</a>
+这一集哪里有改善了，抽帧也好bgm也好台词也好还是那么不知所谓，是说他们得了一种拍起源会死的病吗，加组 ...</blockquote>
+答案是小高还是放在手游里了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  萩原组土狼p  
+##### 6498#       发表于 2024-10-5 15:15
+
+问问超越百万和cg了么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202410/05/151545n4zflil5zn66emyv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 15:15 上传
+
+
+*****
+
+####  joshua1990  
+##### 6499#       发表于 2024-10-5 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">下午闪彩6.5live，该忘掉动画来看了
+
+
+*****
+
+####  wfhtony  
+##### 6500#       发表于 2024-10-5 17:21
+
+11. NEO THEORY FANTASY // アンティーカ（＊演出中希水的麥克風有問題）
+
+15. 夢咲きAfter school // 放課後クライマックスガールズ（＊本曲的C位爲 丸岡和佳奈）
+
+*****
+
+####  鳄鱼头  
+##### 6501#       发表于 2024-10-5 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66379911&amp;ptid=2130897" target="_blank">萩原组土狼p 发表于 2024-10-5 15:15</a>
+问问超越百万和cg了么</blockquote>
+敢情这是大逆转裁判1+2是吧
+
+
+*****
+
+####  lunaticfool  
+##### 6502#       发表于 2024-10-5 18:04
+
+<img src="https://p.sda1.dev/19/6236795938bf4891937ccef8a06afee5/IMG_CMP_1732733.jpeg" referrerpolicy="no-referrer">
+小高，你无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陆久舟  
+##### 6503#       发表于 2024-10-5 18:04
+
+这特效也太土了
+
+
+*****
+
+####  wfhtony  
+##### 6504#       发表于 2024-10-5 18:19
+
+還是一如既往的，沒有任何預兆的，喊安可環節。
+
+
+*****
+
+####  wfhtony  
+##### 6505#       发表于 2024-10-5 18:42
+
+Day 1的安可也是一如既往的沒有MC環節... 咱也習慣了啊。
+
+*****
+
+####  acacaclove  
+##### 6506#       发表于 2024-10-5 18:44
+
+一如既往的小高live
+
+
+*****
+
+####  lovekoishi  
+##### 6507#       发表于 2024-10-5 18:52
+
+成海瑠奈限时返场了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  微尘众  
+##### 6508#       发表于 2024-10-5 18:55
+
+还没看见截图来证明这个事
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  wfhtony  
+##### 6509#       发表于 2024-10-5 19:00
+
+ 本帖最后由 wfhtony 于 2024-10-5 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66381160&amp;ptid=2130897" target="_blank">lovekoishi 发表于 2024-10-5 18:52</a>
+
+成海瑠奈限时返场了？</blockquote>
+理論上是有宏觀鏡頭收錄進去了，但放大臉部的鏡頭應該是沒有放，至少直播回傳的鏡頭裏面沒有明顯看到。
+
+
+*****
+
+####  wfhtony  
+##### 6510#       发表于 2024-10-5 19:35
+
+ 本帖最后由 wfhtony 于 2024-10-5 19:39 编辑 
+
+二期除了萬聖節的五首新曲之外，還有六首新曲將在聖誕節發售。
+
+<img src="https://img.saraba1st.com/forum/202410/05/193211hen3hwjtwmn6eaw2.png" referrerpolicy="no-referrer">
+
+<strong>アニメ『アイドルマスター_シャイニーカラーズ_2nd_season』主題歌アルバム「Over_the.png</strong> (326.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/193210clb7lg52d9gg2q65.png" referrerpolicy="no-referrer">
+
+<strong>Twitter_上的_『アイドルマスター_シャイニーカラーズ』ランティス公式：「✨CD情報✨.png</strong> (40.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 19:32 上传
+
+專輯除了通常盤之外，還會賣帶藍光的特典盤，藍光收錄了安提卡《バベルシティ・グレイス》的MV+花絮影片。
+
+是動畫還是真人不好說，官方的說法是「キャストMV（Cast MV）」（咱個人傾向是真人MV）。
+
+(via [Lantis](https://shinycolors.lantis.jp/releaseinfo/laca-25138/) | [Twitter](https://twitter.com/lantis_imasSC/status/1842520112357867945))
+
+
+*****
+
+####  游蜓  
+##### 6511#       发表于 2024-10-5 19:46
+
+小高真成祸害了
+
+
+*****
+
+####  七草にちか  
+##### 6512#       发表于 2024-10-5 20:42
+
+<img src="https://img.saraba1st.com/forum/202410/05/204202z7kj7jefenn7en0h.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-05_20-39-26.png</strong> (544.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204201gssqdsssdg9hnqka.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCaAAAfHxO.jpg</strong> (392.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204200nc0rvzlq6lc3jjc6.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCa4AA9Pws.jpg</strong> (180.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+
+*****
+
+####  野菜一日分  
+##### 6513#       发表于 2024-10-5 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这闪彩2第一集的重点不是很明显吗，就是那MV里切视角时候的混响，只能说你闪动画思路是真的倾奇，宁愿搞这种也不愿做点实在的。
+
+
+*****
+
+####  游蜓  
+##### 6514#       发表于 2024-10-5 19:46
+
+小高真成祸害了
+
+*****
+
+####  七草にちか  
+##### 6515#       发表于 2024-10-5 20:42
+
+<img src="https://img.saraba1st.com/forum/202410/05/204202z7kj7jefenn7en0h.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-10-05_20-39-26.png</strong> (544.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204201gssqdsssdg9hnqka.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCaAAAfHxO.jpg</strong> (392.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+<img src="https://img.saraba1st.com/forum/202410/05/204200nc0rvzlq6lc3jjc6.jpg" referrerpolicy="no-referrer">
+
+<strong>GZIHBgCa4AA9Pws.jpg</strong> (180.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-5 20:42 上传
+
+*****
+
+####  野菜一日分  
+##### 6516#       发表于 2024-10-5 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这闪彩2第一集的重点不是很明显吗，就是那MV里切视角时候的混响，只能说你闪动画思路是真的倾奇，宁愿搞这种也不愿做点实在的。
+
+*****
+
+####  ヒトニナル  
+##### 6517#       发表于 2024-10-6 10:21
+
+仮装狂騒曲5天就百万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6518#       发表于 2024-10-6 18:22
+
+<img src="https://img.saraba1st.com/forum/202410/06/182202zz27yy0y0jd8a67m.jpg" referrerpolicy="no-referrer">
+
+<strong>Draft_2.jpg</strong> (517.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 18:22 上传
+
+
+*****
+
+####  Alleyht  
+##### 6519#       发表于 2024-10-6 20:59
+
+没想到文春炮NETA让铃木GRAD给用了，我还以为会在IF池里搞事情，这下汗流浃背了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+鉴于黑星剧情里闪P一贯的空气人作风，这波满满的烂活预感，我先投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oznark  
+##### 6520#       发表于 2024-10-6 21:52
+
+<img src="https://img.saraba1st.com/forum/202410/06/065151ky6xbbyzyba458b5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (347.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 21:51 上传
+
+
+*****
+
+####  wfhtony  
+##### 6521#       发表于 2024-10-6 18:22
+
+ 本帖最后由 wfhtony 于 2024-10-6 18:47 编辑 
+
+Day 2 業務聯絡環節：（Day 1相同內容略）
+
+遊戲方面（頁遊）：  
+
+<img src="https://tc2.wfhtony.space/images/2024/10/06/a62d204c2266909f29b4bbfce037bcb7.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/0c8b2d5188e455881b7a3986527bd8f8.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/5f47233cd3509babfaa69a15081f2306.png" referrerpolicy="no-referrer">
+
+遊戲方面（音遊）：  
+<img src="https://tc2.wfhtony.space/images/2024/10/06/163c5ed25f443a53c3832120018c8c74.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/5a1ad5205447ca5450e15752f1b5500d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/cd067d5cfe8c72e9a94c291cd519a68d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/84bbdd4c6d12f96f2f2f4daa92f32a25.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/bc2b1608336797f5a31d1d3bb9a8d46a.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/b4720022f1da6726b480be317c3fdeb5.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/14caa85ff12bdbd2e2e41d4d211165f0.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/d90f405162d537591a3d97127caf5779.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/40684b2fca2d0a24bf3a83108fb35541.png" referrerpolicy="no-referrer">
+
+其他週邊：  
+<img src="https://tc2.wfhtony.space/images/2024/10/06/2c0e076519aa49c03b88f5598a25f6b4.png" referrerpolicy="no-referrer">
+
+今天的最速VOD應該能準時上了。  
+
+  
+
+新消息：  
+<img src="https://tc2.wfhtony.space/images/2024/10/06/b3db9a49d9f3403a40ab51b3e3b51f3b.png" referrerpolicy="no-referrer">
+
+30姊妹聯動第四彈確認爲謎光：
+<img src="https://tc2.wfhtony.space/images/2024/10/06/0d87968e35d47d1503d45b529c01417b.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/0a91f2e7ec780add14a06fc926e16b3d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/da1e426d60bee68fbe3eff5a7554b29d.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/212de58448e2c795e731418540a36bf0.png" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2024/10/06/e552d4e79ab073a02695173f7a17ca43.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/af437f0eadeb2dc107fa8a4cb4564319.png" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2024/10/06/c69afc867370a1af356c4e52a069d4db.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/6a2ef63dd7d104f9035e3613856d571b.png" referrerpolicy="no-referrer">
+
+G.R.A.D.新劇本（Cometik）將於10/9實裝。  
+
+（終演後公開）
+
+7th確定舉辦，形式爲組合巡演，一共四場。
+<img src="https://tc2.wfhtony.space/images/2024/10/06/4411f83581b2ab170b2d42704a01a70b.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/5726455f0e3eb166477dd4567d7dba2e.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/a2aa0a78c1d8b2fc198f5b60522b8e49.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/1708442d9b3a4772178597a3d00b1a82.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/26e0084b4a3bd6dbd6257a792c121c35.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/cfcd6691d2e5233fe72974021dff5902.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/14d1ff69996440a2c8956091dc747993.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/10/06/a4aa3e756bad0013f60b3efb03a2fbe2.png" referrerpolicy="no-referrer">
+
+明晚Asobi賣先行票。
+
+以上爲Day 2的業務聯絡環節。
+
+*****
+
+####  Alleyht  
+##### 6522#       发表于 2024-10-6 20:59
+
+没想到文春炮NETA让铃木GRAD给用了，我还以为会在IF池里搞事情，这下汗流浃背了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+鉴于黑星剧情里闪P一贯的空气人作风，这波满满的烂活预感，我先投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oznark  
+##### 6523#       发表于 2024-10-6 21:52
+
+<img src="https://img.saraba1st.com/forum/202410/06/065151ky6xbbyzyba458b5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (347.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-6 21:51 上传
+
+*****
+
+####  超法拉  
+##### 6524#       发表于 2024-10-7 08:41
+
+<img src="https://p.sda1.dev/19/58374f8d73a18632027007fbb159a834/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
