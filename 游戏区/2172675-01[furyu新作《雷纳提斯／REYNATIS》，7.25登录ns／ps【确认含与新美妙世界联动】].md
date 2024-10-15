@@ -713,3 +713,62 @@ PSN日服试玩版2.39分</blockquote>
 
 所以讯息是如果错过了就真的拿不了嘛，以及SNS是纯随机嘛，最后剩下三条不知道怎么触发
 
+*****
+
+####  哎哟卧槽了  
+##### 73#       发表于 2024-10-12 13:42
+
+就想問問有沒有通關的說說劇情如何，單高畫面和系統是真的毫無賣相可言…<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  requiem116  
+##### 74#       发表于 2024-10-12 20:30
+
+怎么感觉这个游戏毫无讨论度，连黑都没人黑
+
+就看几个游戏音乐up主发过几首bgm
+
+*****
+
+####  八佾舞于潭  
+##### 75#       发表于 2024-10-12 20:33
+
+<blockquote>requiem116 发表于 2024-10-12 20:30
+怎么感觉这个游戏毫无讨论度，连黑都没人黑
+
+就看几个游戏音乐up主发过几首bgm ...</blockquote>
+涉谷系画风，不知道要卖给谁
+
+
+*****
+
+####  requiem116  
+##### 76#       发表于 2024-10-12 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66436239&amp;ptid=2172675" target="_blank">八佾舞于潭 发表于 2024-10-12 20:33</a>
+
+涉谷系画风，不知道要卖给谁</blockquote>
+刚发现居然上steam了
+
+steam上看着画质建模好不少但是居然没有中文
+
+还是不尝试了
+
+
+*****
+
+####  油库里  
+##### 77#       发表于 2024-10-13 00:30
+
+[https://keylol.com/t967512-1-1](https://keylol.com/t967512-1-1)
+
+有大神提取ns版的中**了汉化补丁
+
+音乐一如既往的好，剧情不值得仔细看，战斗系统比上一作恸哭奇机好点但后期仍然很无聊
+
+要不还是继续整卡里古拉3吧，操控时间轴的回合制战斗系统我是真挺喜欢的
+
