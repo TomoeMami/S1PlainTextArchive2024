@@ -362,3 +362,48 @@ sf用追越了吗</blockquote>
 —— 来自 鹅球 v3.1.88.3</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬和他两面包车的小弟
 
+*****
+
+####  Fuero  
+##### 1874#       发表于 2024-10-11 22:03
+
+新一代DAD直驱T598P（5-10 NM动态扭矩），具备超调能力最高可到14 NM 峰值扭矩，大幅提高力反馈效应的无过滤直驱正式发布！
+
+- HARMONY技术提供高频振动，感受身临其境的触觉反馈。
+
+- Direct Axial Drive 采用 Axial Flux 电机，可实现完美、顺畅的方向盘转动，毫无齿槽效应。
+
+- Race Dash 屏幕，PLAYSTATION和PC用户均可直接在基座上调节各类参数。
+
+- 30 cm 可拆卸式方向盘盘面，带有 mag-shift 换挡拨片和多功能编码器。
+
+- 金属 Raceline Pedals LTE 踏板组，模块化，可扩展三踏板。
+
+获得PlayStation官方授权，兼容 PS4、PS5 和 PC，与目前主流赛车游戏及即将发布的AC2等新游戏有双向兼容协议。
+
+预售时间：10月18日
+
+建议零售价：3,399元
+
+图马斯特新直驱这价格太牛了
+
+
+*****
+
+####  NEIN  
+##### 1875#       发表于 2024-10-11 22:37
+
+这价格，这参数，再加上无齿槽，卖爆了吧要
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  一个陆仁贾  
+##### 1876#       发表于 2024-10-12 07:57
+
+像我这种穷人还是继续用手柄
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
