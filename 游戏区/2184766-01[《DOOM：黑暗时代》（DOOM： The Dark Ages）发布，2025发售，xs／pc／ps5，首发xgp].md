@@ -1643,3 +1643,18 @@ DOOM: The Dark Ag ...</blockquote>
 
 壮烈击杀....我其实也没看大明白，我个人理解或许是进一步削弱了观赏演出性，进一步突出功能性；毕竟相当一部分玩家打高难度时候觉得壮烈击杀的演出动画过长了，有些影响节奏
 
+*****
+
+####  JOJO42  
+##### 161#       发表于 2024-10-13 20:29
+
+<img src="https://img.saraba1st.com/forum/202410/13/202734zss9aws4h3cm9py5.png" referrerpolicy="no-referrer">
+
+<strong>doom-the-dark-ages-screenshot-11-en-10june24.webp.png</strong> (604.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-13 20:27 上传
+
+索尼新放出了张截图，没啥新信息，不过这钉枪上的符文，我初看之下还以为是汉字
+
