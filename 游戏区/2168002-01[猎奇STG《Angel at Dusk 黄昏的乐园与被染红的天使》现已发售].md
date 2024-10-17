@@ -2075,3 +2075,38 @@ L会影响左手控制方向的手感所以就不用了
 
 有NS版了？再买一份支持下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+*****
+
+####  M43  
+##### 169#       发表于 2024-10-14 15:54
+
+居然有NS版!
+
+
+*****
+
+####  crosz1985  
+##### 170#       发表于 2024-10-14 17:20
+
+不过NS是和谐版，没漏**<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Firvox  
+##### 171#       发表于 2024-10-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66449730&amp;ptid=2168002" target="_blank">crosz1985 发表于 2024-10-14 17:20</a>
+不过NS是和谐版，没漏**</blockquote>
+PC版有个R15开关，NS版没有吗？
+
+*****
+
+####  crosz1985  
+##### 172#       发表于 2024-10-14 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66450422&amp;ptid=2168002" target="_blank">Firvox 发表于 2024-10-14 18:55</a>
+
+PC版有个R15开关，NS版没有吗？</blockquote>
+没。。。。。。
+
