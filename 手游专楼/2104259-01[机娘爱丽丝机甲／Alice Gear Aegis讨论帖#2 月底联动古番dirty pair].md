@@ -3532,3 +3532,65 @@ y1s1这个泳池背景我是真喜欢<img src="https://static.saraba1st.com/imag
 
 今后主线的战场在中东，真的值得期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  不灭的旋律  
+##### 1222#       发表于 2024-10-11 19:40
+
+和迷你博物馆的联动复刻又来了，那么新池是：FA女仆或者FA素组锉刀。然而以现在的金字塔产能这是做梦。所以是ST女仆orST素组锉刀？
+
+盲猜月底是黑皮小个子莉莉。
+
+
+*****
+
+####  madcow  
+##### 1223#       发表于 2024-10-12 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fa录的那点语音是什么很费劲的事吗
+
+
+*****
+
+####  alialex  
+##### 1224#       发表于 2024-10-13 01:39
+
+石头门两次联动都没抽到四星，电系小结也还是没抽到...没想法了
+
+
+*****
+
+####  冰风血羽  
+##### 1225#       发表于 2024-10-13 19:04
+
+日常上班然后没有保底真的消磨热情
+
+
+*****
+
+####  alialex  
+##### 1226#       发表于 2024-10-14 22:48
+
+性转女仆来了啊，我好像原版都没抽到
+
+
+*****
+
+####  冰风血羽  
+##### 1227#       发表于 2024-10-15 14:47
+
+十连意思一下，毫无波澜的沉了
+今年小裤裤还是没消息
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  madcow  
+##### 1228#       发表于 2024-10-15 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二十连意思一下，很普通的沉了
+
+开始等下一个池子（
+
