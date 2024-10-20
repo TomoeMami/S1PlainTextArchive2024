@@ -536,3 +536,82 @@ PS4同期也有GTS和瑞奇与叮当啊，绝地潜兵一代也在这一时期�
 
 这货不会到最后只要参与就都有吧？不想信会有那么多死忠。
 
+*****
+
+####  医生狼多  
+##### 50#         楼主| 发表于 2024-10-17 10:30
+
+国行没pro，现在app和小程序还在炸进不去<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+30周年限定版PS5数字版主机（CFI-2000型号组-轻薄版）“购买资格”集签活动现已开始，可通过索尼中国在线商城APP、索尼中国在线商城微信小程序进行报名登记，并选定想要参与抽签购买的索尼直营店。
+
+
+*****
+
+####  萨尤克  
+##### 51#       发表于 2024-10-17 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">30周年精英手柄究竟怎么卖，到现在也不说清楚真的是绝了
+
+
+*****
+
+####  shinra-01  
+##### 52#       发表于 2024-10-17 10:52
+
+手柄之类的应该没有预售，到11.21开卖，主机有预售份额
+
+
+*****
+
+####  bill910  
+##### 53#       发表于 2024-10-17 11:01
+
+报名时候，可以看到报名人数，想增加机率，可以选人数少的
+
+
+*****
+
+####  恋妖壶  
+##### 54#       发表于 2024-10-17 11:12
+
+除了京沪感觉没啥人抽，成都才300多人
+
+
+*****
+
+####  医生狼多  
+##### 55#         楼主| 发表于 2024-10-17 11:36
+
+人少的不是当地也去不了呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+广州这边我看了也有一千多了
+
+
+*****
+
+####  ranapocket  
+##### 56#       发表于 2024-10-17 11:42
+
+要去线下付款提货的，不在当地抽中也不方便吧
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  京浜東北線  
+##### 57#       发表于 2024-10-17 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 想买个普通手柄，精英的还是算了
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 58#       发表于 2024-10-17 22:53
+
+笑死，安卓14的X1V说索尼商城APK为旧版安卓打造给谷歌拦截了不给装
+<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">然后去柜子里翻XZ2出来更新了用
+
+看了下现在每个店都至少一万多人了吧，上海这种都两万四了，选了个杭州店大概一万六吧，目前概率差不多1%不到
+
