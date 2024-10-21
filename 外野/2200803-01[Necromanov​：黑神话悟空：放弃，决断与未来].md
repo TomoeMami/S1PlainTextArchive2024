@@ -2552,3 +2552,46 @@ https://bbs.saraba1st.com/2b/thread-2198959-0-1.html</blockquote><blockquote>类
 —— 来自 vivo V2337A, An ...</blockquote>
 ╮(￣▽￣")╭你这需求真的有点少.......我也在抱怨国货没有3395以上的六侧键MMO鼠标呢
 
+*****
+
+####  Lewismain  
+##### 212#       发表于 2024-10-18 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66297131&amp;ptid=2200803" target="_blank">Lewismain 发表于 2024-9-25 08:57</a>
+
+这写得不挺好的嘛
+
+话说回来，我司想蹭黑猴热度营销一波产品，目前的计划是争取节后第一周就把给领导演示的 ...</blockquote>
+顺带一提，昨天在会议室看到他们给领导演示了，我看会议室投影上有个巨大的黑熊精还愣了下今夕是何年
+
+我司啊我司
+
+
+*****
+
+####  RinQ0326  
+##### 213#       发表于 2024-10-18 11:54
+
+有些部分有点倒果为因的意思，不是很能赞同，确实更像是在“讲故事”
+
+
+*****
+
+####  Amami_Haruka_  
+##### 214#       发表于 2024-10-18 12:12
+
+<blockquote>wlhlz 发表于 2024-9-25 15:21
+这可不是饼，星空真的有1000多个星球，实际上他们真的做了1000个星球（甚至还是真实比例的）其实就是星空 ...</blockquote>
+发售前我就在想，这1000个星球的城市数量，有江苏省多吗？
+
+
+*****
+
+####  三千珈蓝  
+##### 215#       发表于 2024-10-18 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66480534&amp;ptid=2200803" target="_blank">RinQ0326 发表于 2024-10-18 11:54</a>
+
+有些部分有点倒果为因的意思，不是很能赞同，确实更像是在“讲故事”</blockquote>
+更像是做案例分析，和他之前的比很没意思
+
