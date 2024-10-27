@@ -3119,3 +3119,106 @@ mihon已经显示废弃了</blockquote>
 再把仓库添加回去，重启应用，刷新插件列表，废弃字样去掉了
 不是很懂你那边的情况，偶尔访问出问题后在插件里换个域名就能继续用，目前为止都还能用啊
 
+*****
+
+####  舌怪  
+##### 279#       发表于 2024-10-21 13:10
+
+有个别插件（漫画柜）总是无法成功安装，可能是什么问题啊？
+
+
+*****
+
+####  frosta  
+##### 280#       发表于 2024-10-21 13:46
+
+借楼请问ios有方便看漫画柜的app么，搜到个tachimanga但是看起来没有漫画柜插件
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  电脑死机  
+##### 281#       发表于 2024-10-21 14:05
+
+求教生肉的话哪个源比较好？
+
+
+*****
+
+####  Vastoo  
+##### 282#       发表于 2024-10-21 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505944&amp;ptid=2167901" target="_blank">电脑死机 发表于 2024-10-21 14:05</a>
+求教生肉的话哪个源比较好？</blockquote>
+试试Rawkuma？
+有些漫画在nico静画更新的话也可以下一个来看
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  fsmn4976  
+##### 283#       发表于 2024-10-23 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505538&amp;ptid=2167901" target="_blank">舌怪 发表于 2024-10-21 13:10</a>
+有个别插件（漫画柜）总是无法成功安装，可能是什么问题啊？</blockquote>
+旧版卸载再安装新的，新旧签名不一致
+
+
+*****
+
+####  舌怪  
+##### 284#       发表于 2024-10-23 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66519171&amp;ptid=2167901" target="_blank">fsmn4976 发表于 2024-10-23 02:40</a>
+
+旧版卸载再安装新的，新旧签名不一致</blockquote>
+我是直接卸了以前装的tachiyomi再装的mihon，感觉找不到单独卸载旧插件的入口了……
+
+
+*****
+
+####  神宫司麻理茉  
+##### 285#       发表于 2024-10-23 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66522858&amp;ptid=2167901" target="_blank">舌怪 发表于 2024-10-23 14:04</a>
+我是直接卸了以前装的tachiyomi再装的mihon，感觉找不到单独卸载旧插件的入口了…… ...</blockquote>
+去手机的应用列表里面卸载
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  vvleemm  
+##### 286#       发表于 2024-10-24 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66505817&amp;ptid=2167901" target="_blank">frosta 发表于 2024-10-21 13:46</a>
+
+借楼请问ios有方便看漫画柜的app么，搜到个tachimanga但是看起来没有漫画柜插件
+
+论坛助手,iPhone ...</blockquote>
+要退出APP，打开梯子再重新进去就可以看到插件了
+
+
+*****
+
+####  zhongjie  
+##### 287#       发表于 2024-10-24 10:59
+
+想问一下一些要登陆的源要怎么登录？没看见登录的选项啊
+
+
+*****
+
+####  pgain2004  
+##### 288#         楼主| 发表于 2024-10-24 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66529593&amp;ptid=2167901" target="_blank">zhongjie 发表于 2024-10-24 10:59</a>
+
+想问一下一些要登陆的源要怎么登录？没看见登录的选项啊</blockquote>
+某些插件在选项那里，别的一般是点进某个对应源的作品，然后点webview，在网页版里登录，cookies就会被应用继承了
+
