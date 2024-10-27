@@ -3146,3 +3146,105 @@ ps3是主要目的的话哪个可行性高一些？
 1200的还可以搜到
 <img src="https://p.sda1.dev/19/99d5c948443a51cc842cb8be24539282/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  requiem116  
+##### 1306#       发表于 2024-10-21 21:19
+
+现在rog ally有几个款？价格大概都是什么档次比较合适
+
+我大概咸鱼啥的搜了搜
+
+ally 1代
+
+ally 2代
+
+还有个ally X？有没有好心人能帮我捋一捋这个<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+我自己看的就是3000多的就是1代，五六千的就是X？2代又是从哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Falcomfans  
+##### 1307#       发表于 2024-10-21 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509357&amp;ptid=2086469" target="_blank">requiem116 发表于 2024-10-21 21:19</a>
+现在rog ally有几个款？价格大概都是什么档次比较合适
+
+我大概咸鱼啥的搜了搜
+
+ally 1代</blockquote>
+没有2代
+
+
+*****
+
+####  requiem116  
+##### 1308#       发表于 2024-10-21 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66509363&amp;ptid=2086469" target="_blank">Falcomfans 发表于 2024-10-21 21:20</a>
+
+没有2代</blockquote>
+所以实际上是把ally X喊成了二代？
+
+
+*****
+
+####  卖哥  
+##### 1309#       发表于 2024-10-21 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66270547&amp;ptid=2086469" target="_blank">stevenzero 发表于 2024-9-22 10:50</a>
+
+求助，想去咸鱼淘个便宜垃圾跑跑ps3模拟器和独立游戏。
+
+现在有两个选择</blockquote>
+11代酷睿支持AVX512
+
+
+*****
+
+####  luffyzhou  
+##### 1310#       发表于 2024-10-21 21:58
+
+ally注意下，白色款有z1和z1e两个配置，低价别买成z1就行（国行只有z1e）
+
+
+*****
+
+####  jie2000  
+##### 1311#       发表于 2024-10-21 22:16
+
+微星用lunarlake的掌机没有消息了吗
+
+
+*****
+
+####  bypass  
+##### 1312#         楼主| 发表于 2024-10-22 08:22
+
+我还以为 Aya 不做 PC 掌机了。新的 Ayaneo 3 饼画上了。目测会是 Intel 处理器。
+
+
+*****
+
+####  Moltres.lv70  
+##### 1313#       发表于 2024-10-22 09:17
+
+deck游戏模式开桌面软件总是会卡退出游戏关不掉，有好办法像桌面模式一样叉掉吗
+
+
+*****
+
+####  霖岚_  
+##### 1314#       发表于 2024-10-22 15:37
+
+还用I核？微星claw不就是个很好的反面教材了吗，人A核15w能跑的I核得上20w，咋想的还上I核……
+
+
+*****
+
+####  bypass  
+##### 1315#         楼主| 发表于 2024-10-24 12:00
+
+SteamOS 系统更新，官方说 LCD 版本续航可以提升 10%，另外 OLED 版本 Windows 驱动增加了蓝牙支持。
+
