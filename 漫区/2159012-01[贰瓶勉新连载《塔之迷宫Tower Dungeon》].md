@@ -1571,3 +1571,33 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 更像盖尔老爷子
 但是总觉得更早前在像哆啦A梦这样的子供番里看过的类似角色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  smdzh2  
+##### 108#       发表于 2024-10-27 14:12
+
+这话信息量很足，多年以来王族一直在隐瞒龙化人戴冠后能召唤龙之塔的事实，现在真相被卡拉修知道了
+<img src="https://p.sda1.dev/19/3e662919ef5b7acc5c20e047b1b7a914/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b5298767f28ec8915ed88a9904549eda/image.jpg" referrerpolicy="no-referrer">
+
+总帅：你知道我要说什么<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/f54df43d7f8fefd168998095b7d1a47c/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ww-tsl  
+##### 109#       发表于 2024-10-27 14:50
+
+仍然不知道这作的世界观基调是奇幻还是披着奇幻皮的科幻。
+
+画风也不对胃口，个人觉得二瓶画风的巅峰是人形之国虽然不够精细剧情老套。
+
+
+*****
+
+####  半分宅  
+##### 110#       发表于 2024-10-27 15:38
+
+卡拉修这也太恶趣味了，把受害者整个骨盆区域连盔甲带骨肉内脏甚至牛子都一起吃了？
+
