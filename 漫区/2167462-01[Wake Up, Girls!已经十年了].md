@@ -954,3 +954,74 @@ WUG我最喜欢的一点就是没有那种闪瞎眼冒粉红泡泡的滤镜和�
 
 纸片人和本人差别最大的其实是奥野香耶？
 
+*****
+
+####  DarthAka  
+##### 100#         楼主| 发表于 2024-10-28 20:37
+
+变11周年了
+
+*****
+
+####  芜湖挨宰  
+##### 99#       发表于 2024-10-28 20:15
+
+全部延期了。
+
+近岡直是不是很久没画画了，要复健吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ <blockquote>【商品発売日/一部商品タイトル変更のお知らせ】
+
+Wake Up, Girls！10周年企画として2024年11月20日（水）に発売を予定しておりました4商品につきまして、発売日を変更させて頂くこととなりました。
+
+変更後の発売日は下記となります。
+
+【発売日】
+
+変更前：2024年11月20日（水）
+
+変更後：2025年1月29日（水）
+
+また、下記商品タイトルが変更となりました。
+
+【商品タイトル】
+
+変更前：Wake Up, Girls！Character Song Collection
+
+変更後：Wake Up, Girls！Character Song Collection &amp; Solo Collection -7 Stars-
+
+変更後の商品情報は下記となります。
+
+━━━━━━━━━━━━━━━━
+
+Wake Up, Girls！10 Year Anniversary Box
+
+品番：EYXA-14554～62
+
+発売日：2025年1月29日（水）
+
+Wake Up Girls！ Live Complete BOX
+
+品番：EYXA-14536～43
+
+発売日：2025年1月29日（水）
+
+Wake Up, Girls！Character Song Collection &amp; Solo Collection -7 Stars-
+
+品番：EYCA-14600～2 
+
+発売日：2025年1月29日（水）
+
+Wake Up, Girls！ Music Collection
+
+品番：EYCA-14544～51/B
+
+発売日：2025年1月29日（水）
+
+━━━━━━━━━━━━━━━━
+
+発売を楽しみにお待ち下さっていた皆様に、心よりお詫び申し上げます。
+
+何卒ご理解賜りますよう、謹んでお願い申し上げます。</blockquote>
+
+
