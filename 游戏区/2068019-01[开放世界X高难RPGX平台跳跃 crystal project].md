@@ -933,3 +933,330 @@ LP获取暂且开个200%看看吧。少farm一点。钱和经验实在卡了再�
 
 肝了数日。现在的进度是照着攻略做了金quintar，地图还剩10张没收集，虽然降低了难度，但是60级队伍对于各种情况仍然需要随机应变调整装备组合技能使用，只是没有高难度卡的那么严了。我不太会rpg的配装和战斗，所以感觉挺好的。
 
+*****
+
+####  慕容断月  
+##### 71#       发表于 2024-10-24 23:11
+
+发现没人说，汉化已经完全做完了，现在可以放心体验
+
+
+*****
+
+####  kerbad  
+##### 72#       发表于 2024-10-25 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66535401&amp;ptid=2068019" target="_blank">慕容断月 发表于 2024-10-24 23:11</a>
+发现没人说，汉化已经完全做完了，现在可以放心体验</blockquote>
+校对也做好了吗，我记得上次看见这游戏汉化还是非常机翻的质量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕容断月  
+##### 73#       发表于 2024-10-25 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66536024&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-25 01:28</a>
+
+校对也做好了吗，我记得上次看见这游戏汉化还是非常机翻的质量</blockquote>
+[https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127](https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127)
+
+至少看得懂了
+
+image.png
+(185.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 01:30 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/013027trwxwzwlrmzdvr0m.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kerbad  
+##### 74#       发表于 2024-10-25 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66536028&amp;ptid=2068019" target="_blank">慕容断月 发表于 2024-10-25 01:31</a>
+
+https://steamcommunity.com/sharedfiles/filedetails/?id=3320600127</blockquote>
+好，这段时间的坑清完就去玩<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 75#       发表于 2024-10-25 18:16
+
+我草这地图有点牛，一开始就能通过跳跳乐从鱼孵场拐到首都了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">。然后门卫要我收到五颗水晶才放我出去
+
+
+*****
+
+####  慕容断月  
+##### 76#       发表于 2024-10-25 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66541569&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-25 18:16</a>
+
+我草这地图有点牛，一开始就能通过跳跳乐从鱼孵场拐到首都了。然后门卫要我收到五颗水晶才放我出去 ...</blockquote>
+前期可以快速打完7个水晶（还是建议多开home point）
+
+然后赶紧把昆塔龙拿了这样还能扩展移动范围
+
+
+*****
+
+####  kerbad  
+##### 77#       发表于 2024-10-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66542034&amp;ptid=2068019" target="_blank">慕容断月 发表于 2024-10-25 19:24</a>
+前期可以快速打完7个水晶（还是建议多开home point）
+
+然后赶紧把昆塔龙拿了这样还能扩展移动范围 ...</blockquote>
+给我两个膝盖跳跳乐我都已经把它列为跟fanastasis一个级别的神作了，开了载具是什么体验想都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕容断月  
+##### 78#       发表于 2024-10-26 05:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66542440&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-25 20:14</a>
+给我两个膝盖跳跳乐我都已经把它列为跟fanastasis一个级别的神作了，开了载具是什么体验想都不敢想 ...</blockquote>
+巧了，我也是把它和fanastasis并列为单人制作开放世界rpg的范本案例，这俩冒险感拉的太满了，好这口的人根本没法停下来
+
+
+*****
+
+####  kerbad  
+##### 79#       发表于 2024-10-26 12:43
+
+结果做了拿粗野昆塔龙眼球的支线就把执照给我了，找了半天都没找到剩下两个水晶还以为我哪条路没发现<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 80#       发表于 2024-10-26 16:14
+
+打完昆塔圣地出来跳进红杉城跑不出来，要不是有盖亚传送石差点死档在里边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  库德里尔  
+##### 81#       发表于 2024-10-26 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547295&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-26 16:14</a>
+打完昆塔圣地出来跳进红杉城跑不出来，要不是有盖亚传送石差点死档在里边 ...</blockquote>
+如果不开辅助模式，那么各个神庙的传送石+只能设置一个的honepoint就是唯一的瞬间移动法了
+很关键（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  kerbad  
+##### 82#       发表于 2024-10-27 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66547458&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-10-26 16:46</a>
+如果不开辅助模式，那么各个神庙的传送石+只能设置一个的honepoint就是唯一的瞬间移动法了
+很关键（</blockquote>
+这段先跑回去拿龙笛就不会卡了，估计作者也没设想过没拿传送石就跑过来会卡死是问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 83#       发表于 2024-10-28 00:48
+
+拿到山羊后迫不及待绕了一圈从地图另一端跳出来了，太性感了这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+不过初始森林一些个高地宝箱和墨丘利神殿这个传送石价格该不会游戏初期只靠双脚就能从一些刁钻的地方跳上来吧，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  库德里尔  
+##### 84#       发表于 2024-10-28 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66556661&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-28 00:48</a>
+
+拿到山羊后迫不及待绕了一圈从地图另一端跳出来了，太性感了这游戏
+
+不过初始森林一些个高地宝箱和墨丘利神 ...</blockquote>
+mercury到过了是吧
+
+那请看这个跳点 我扫图的时候才发现的……
+
+<img src="https://img.saraba1st.com/forum/202410/28/083900kei212121ep02xz0.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (2.81 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-28 08:39 上传
+
+
+*****
+
+####  kerbad  
+##### 85#       发表于 2024-10-28 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66557420&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-10-28 08:39</a>
+mercury到过了是吧
+
+那请看这个跳点 我扫图的时候才发现的……</blockquote>
+这里我从神殿返走才发现有路被视角挡住了，离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  black1991518  
+##### 86#       发表于 2024-10-28 09:36
+
+这游戏大后期的boss不针对配对基本就不给过，导致我半搁置了，在解锁所有移动方式前是各种寻路是最快乐的时光
+
+
+*****
+
+####  kerbad  
+##### 87#       发表于 2024-10-28 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66557808&amp;ptid=2068019" target="_blank">black1991518 发表于 2024-10-28 09:36</a>
+
+这游戏大后期的boss不针对配对基本就不给过，导致我半搁置了，在解锁所有移动方式前是各种寻路是最快乐的时 ...</blockquote>
+我目前为止打BOSS几乎都靠DOT过的，剩下好用的输出也就收割者装吸血剑烧血和法师最高级的魔法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 88#       发表于 2024-10-28 14:04
+
+跑回萨蒙河才发现可以从波塞冬神殿跑沙漠，但是我当时跳跑去拿吸血剑了没发现<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 89#       发表于 2024-10-29 18:35
+
+刚拿到鲑鱼，越玩越觉得这游戏战斗打着难受。不知道是不是我玩的方式有问题，感觉有效的输出也就暗杀者的致命一击和法爷最高级的魔法，要狂砸魔法还得带药师猛灌蓝瓶，看着搭配丰富但是体验单调感觉有点幻视XB3<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blackll7  
+##### 90#         楼主| 发表于 2024-10-29 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66570461&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-29 18:35</a>
+刚拿到鲑鱼，越玩越觉得这游戏战斗打着难受。不知道是不是我玩的方式有问题，感觉有效的输出也就暗杀者的致 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗杀不是前中期最菜的吗，前中期是双手和全体魔法的天下（能耗有办法减）
+
+—— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  kerbad  
+##### 91#       发表于 2024-10-29 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66571955&amp;ptid=2068019" target="_blank">blackll7 发表于 2024-10-29 21:31</a>
+
+暗杀不是前中期最菜的吗，前中期是双手和全体魔法的天下（能耗有办法减）
+
+—— 来自 OnePlus CPH2487, A ...</blockquote>
+原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找召唤兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blackll7  
+##### 92#         楼主| 发表于 2024-10-30 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572274&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-29 22:05</a>
+原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实只要能刷ap（打蘑菇）就算后期了，没齐全技能组的时候暗杀确实鸡。后期boss有通用的召唤两个控➕一个无敌➕一个反射配上学者全体化的伤害逆转这样的拖时间套路以后，强输出的阵容才好用。比如最终战的4v4，或者树顶的一大二小。
+
+—— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  blackll7  
+##### 93#         楼主| 发表于 2024-10-30 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66572274&amp;ptid=2068019" target="_blank">kerbad 发表于 2024-10-29 22:05</a>
+原来是这样吗，我体感物理用着顺手的就暗杀和收割者，现在拿到时魔能放群体大魔法也好。召唤师拿了还没找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且真觉得不喜欢的话，直接去mod区，基本上什么乱七八糟jrpg里的技能组mod基本上齐了，从dq到狒狒，从世界树迷宫到ro。
+
+—— 来自 OnePlus CPH2487, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  kerbad  
+##### 94#       发表于 2024-10-30 07:47
+
+ 本帖最后由 kerbad 于 2024-10-30 07:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573582&amp;ptid=2068019" target="_blank">blackll7 发表于 2024-10-30 01:13</a>
+其实只要能刷ap（打蘑菇）就算后期了，没齐全技能组的时候暗杀确实鸡。后期boss有通用的召唤两个控➕一个 ...</blockquote>
+哦我说暗杀输出就是一个人带满挂异常被动一个人不停丢伤害随异常个数增加的那招，技能没学全的时候确实菜得要死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在在海底当无头苍蝇乱转也不知道底下有什么，还是先去把召唤兽都收了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kerbad  
+##### 95#       发表于 2024-10-30 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66573588&amp;ptid=2068019" target="_blank">blackll7 发表于 2024-10-30 01:15</a>
+而且真觉得不喜欢的话，直接去mod区，基本上什么乱七八糟jrpg里的技能组mod基本上齐了，从dq到狒狒，从世 ...</blockquote>
+毕竟我主要还是来逛地图的，战斗凑合凑合倒还好。那堆职业mod等以后想打二周目了估计会考虑一下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  库德里尔  
+##### 96#       发表于 2024-10-30 08:45
+
+第一次打完最终boss是大后期的开始。
+孵化金quintar，探索隐藏地图，击败隐藏boss，精通所有职业什么的都可以做。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  kerbad  
+##### 97#       发表于 2024-10-30 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66574281&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-10-30 08:45</a>
+
+第一次打完最终boss是大后期的开始。
+
+孵化金quintar，探索隐藏地图，击败隐藏boss，精通所有职业什么的都可 ...</blockquote>
+孵化金龙和精通全职业有点懒得刷（虽然我开了LXP三倍），隐藏地图就看我找不找得到了
+
+
+*****
+
+####  black1991518  
+##### 98#       发表于 2024-10-30 09:11
+
+隐藏迷宫有两个还是三个，需要解密和跳跳乐，npc会给点大致的提示，隐藏boss就一大堆了
+
+
+*****
+
+####  库德里尔  
+##### 99#       发表于 2024-10-30 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66574493&amp;ptid=2068019" target="_blank">black1991518 发表于 2024-10-30 09:11</a>
+
+隐藏迷宫有两个还是三个，需要解密和跳跳乐，npc会给点大致的提示，隐藏boss就一大堆了 ...</blockquote>
+世界树那个我纯手搓走了1/3……后来老老实实去养金quintar了。
+
+水底下的那一大堆隐藏boss我一只都打不过。
+
