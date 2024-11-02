@@ -603,3 +603,12 @@ SIN这种主攻下三路 standing comedy 的形式做网络视频的，整个网
 刚看到sinbasara准备做游戏来着
 【【lusin】《代号：602》我又何尝没有一个梦想-哔哩哔哩】 https://b23.tv/BV1Ab1iYfEmB
 
+*****
+
+####  bingoxiong  
+##### 65#       发表于 2024-10-30 16:22
+
+【【游戏杂谈】我怀疑我玩了假的地球OL且有证据】 [https://www.bilibili.com/video/B ... f0dab93e626399036b6](https://www.bilibili.com/video/BV1xFSqYGEcF/?share_source=copy_web&amp;vd_source=c68f34cdde02cf0dab93e626399036b6)
+
+最新这期感觉功力有些恢复
+
