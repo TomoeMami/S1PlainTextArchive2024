@@ -8184,3 +8184,318 @@ syl，1605血量其实是致敬《堂吉诃德》原作第一部的出版时间
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+*****
+
+####  erratic璃月  
+##### 947#       发表于 2024-10-22 19:48
+
+神父还真是3星（乐
+
+神父虫.jpg
+(459.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-10-22 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202410/22/194728v4zg7wxgbd7cdyey.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 948#       发表于 2024-10-22 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66517109&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-10-22 19:48</a>
+
+神父还真是3星（乐</blockquote>
+神夫虫画得这么好看不三星可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">杜尔西内娅罗佳该不会是同池二星吧，好像没啥NPC角色能套皮了...
+
+血魔唐估计和船玛、狼夫一样是单人池，接下来就等着看间章会出什么新人格...
+
+
+*****
+
+####  Yuzutea  
+##### 949#       发表于 2024-10-23 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这赛季感觉像要超过惯例的六个三灯赛季人格了
+
+
+*****
+
+####  erratic璃月  
+##### 950#       发表于 2024-10-24 13:02
+
+i want you海报(乐
+
+你月总整些奇怪的彩蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  erratic璃月  
+##### 951#       发表于 2024-10-24 13:54
+
+血魔的颜值都好高<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 952#       发表于 2024-10-24 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这boss战真是你游最傻逼的boss战
+
+
+*****
+
+####  erratic璃月  
+##### 953#       发表于 2024-10-24 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533161&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-10-24 17:47</a>
+
+这boss战真是你游最傻逼的boss战</blockquote>
+纯演出boss了，比前面几章的压迫力小了不少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 954#       发表于 2024-10-24 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533255&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-10-24 17:58</a>
+
+纯演出boss了，比前面几章的压迫力小了不少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不好说，我怀疑这设计是唐不上场不跳阶段
+
+我唐放九号位在人死完之前被无限那几个红币技能复读
+
+
+*****
+
+####  erratic璃月  
+##### 955#       发表于 2024-10-24 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66533404&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-10-24 18:17</a>
+
+我不好说，我怀疑这设计是唐不上场不跳阶段
+
+我唐放九号位在人死完之前被无限那几个红币技能复读 ...</blockquote>
+我自己打的时候前半段有失误，唐上场的时间和到第二混乱线的时间差不多。
+
+因为到最后还有后备人格且ego资源也宽裕，所以整体上没什么心理压力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过yj演出确实越来越花哨了，希望下章多来点类似的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钟于123  
+##### 956#       发表于 2024-10-24 22:18
+
+boss战感觉老唐有点放水了
+
+搞了把提灯唐单刷还挺爽的，就是有2次被打晕了只能重开，第二次红大点单币差几滴血被打晕。
+
+这次新演出真不错
+
+*****
+
+####  菟原手兒奈  
+##### 957#       发表于 2024-10-24 22:19
+
+多人打好难啊，最后还是用W唐逃课单通了
+
+这章最后的情绪调动实在做的太好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，虽然有点猜到结局，但是玩到演出的部分还是感慨不已，比白鲸和呼啸山庄这俩章更喜欢，小金确实有货
+
+不过这下阈值拉的有点高了…不知道以后的章节要做到怎样才能继续带来惊喜
+
+
+*****
+
+####  久井路路  
+##### 958#       发表于 2024-10-25 14:02
+
+从第四章开始每一章的水平都高得离谱（
+
+而且最近活动剧情的水平也上来了，时间杀人时间是目前最棒的活动剧情，WARP列车杀人事件也非常不错。这种情况下不涨阈值才是不可能的（
+
+
+*****
+
+####  钟于123  
+##### 959#       发表于 2024-10-25 16:00
+
+下一章就是宝的章节了，期待想低都难吧。。
+
+惜春也挺不错的
+
+
+*****
+
+####  Jamaisvu  
+##### 960#       发表于 2024-10-25 17:10
+
+10.31是神父虫单池子，待遇不错嘛，血罗和血唐不知道怎么个出法？
+
+<img src="https://img.saraba1st.com/forum/202410/25/170748h0aumvzrwk96r9uz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.32 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/170937pbdbwb9jwb2jku02.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.14 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202410/25/170918und93zzgf77df9zd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.79 MB, 下载次数: 0)
+
+下载附件
+
+2024-10-25 17:09 上传
+
+
+*****
+
+####  法拉  
+##### 961#       发表于 2024-10-27 03:43
+
+唉想看接下来的剧情了
+
+对剧情的渴望已经要超过拉曼查兰血魔对血的渴望了
+
+
+*****
+
+####  Jamaisvu  
+##### 962#       发表于 2024-10-27 20:10
+
+炎鳞队好无脑啊，刚才困难镜牢打神备亚哈，回合结束时烧伤结算，能直接把下阶段烧成一血，2T就通关了。
+
+
+*****
+
+####  Jamaisvu  
+##### 963#       发表于 2024-10-28 17:46
+
+<img src="https://img.saraba1st.com/forum/202410/28/174251hf93ae2mo1ef9bbe.jpg" referrerpolicy="no-referrer">
+
+<strong>1730108538964.jpg</strong> (234.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-10-28 17:42 上传
+
+神父虫技能来了，纯打击系人格，流血队T位。
+
+流血队目前配置大概是环指箱、N浮、犀牛默、赤瞳良、血奥、神父虫，未来的血唐感觉可以换下N浮，不过她应该会在5号线实装后才出...
+
+
+*****
+
+####  Yuzutea  
+##### 964#       发表于 2024-10-30 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66561908&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-10-28 17:46</a>
+
+神父虫技能来了，纯打击系人格，流血队T位。
+
+流血队目前配置大概是环指箱、N浮、犀牛默、赤瞳良、血奥、 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉下周或者下周就要出杜尔西内亚给浮了
+
+这少个二星感觉就是要多个三星了
+
+
+*****
+
+####  Jamaisvu  
+##### 965#       发表于 2024-10-30 18:51
+
+<blockquote>Yuzutea 发表于 2024-10-30 17:00
+我感觉下周或者下周就要出杜尔西内亚给浮了
+
+这少个二星感觉就是要多个三星了
+
+就算不出我大概也是上N浮不是 ...</blockquote>
+默尔索正好新增了流血ego，不上有点可惜2333
+
+当然N浮仅凭共鸣回理智就不会被淘汰，起码也能作为场下辅助。
+
+
+*****
+
+####  Yuzutea  
+##### 966#       发表于 2024-10-31 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实战起来好帅的我虫
+
+
+*****
+
+####  Jamaisvu  
+##### 967#       发表于 2024-11-1 17:21
+
+<img src="https://img.saraba1st.com/forum/202411/01/172157e2vcj239vtxi3z2z.png" referrerpolicy="no-referrer">
+
+<strong>1730452072275.png</strong> (73.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 17:21 上传
+
+由于第七章太耗时耗力，镜牢5延迟上线，估计要在11.22八周年直播后实装吧。
+
+八周年还有联动，感觉是PM社外的IP（脑叶和废墟都出过人了，总不能联动火腿嘭嘭吧）。
+
+话说主美画过蔚蓝档案的同人，会不会联动BA呀？：
+
+<img src="https://img.saraba1st.com/forum/202411/01/172046jcb1b9asv10bubdg.jpg" referrerpolicy="no-referrer">
+
+<strong>080691A165A6DEABABAD05F4FFE9B9A9.jpg</strong> (212.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 17:20 上传
+
+（愚人节维导cos那帮手游都有可能呢...要不发挥余热联动少前1吧2333）
+
+
+*****
+
+####  Jamaisvu  
+##### 968#       发表于 2024-11-1 18:05
+
+下午金总监直播玩了会镜牢，这是他的流血队阵容：
+
+<img src="https://img.saraba1st.com/forum/202411/01/180412zybs8wby8gswq5aw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241101_180340.jpg</strong> (286.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 18:04 上传
+
+不愧是设计出伞夫的惊世智慧，仪表最右是船玛：
+
+<img src="https://img.saraba1st.com/forum/202411/01/180504mt1tz1jw0oytr3ya.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241101_180122.jpg</strong> (293.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-1 18:05 上传
+
