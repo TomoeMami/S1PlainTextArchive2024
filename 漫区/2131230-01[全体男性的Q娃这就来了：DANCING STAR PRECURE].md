@@ -1390,3 +1390,20 @@ cure名必然有
 
 这玩意都预定到明年了 可魔法2的消息呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  粉儿alice  
+##### 144#       发表于 2024-11-1 20:31
+
+这次男舞台剧2音乐竟然是请了elements garden负责<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+这玩意都请得起上松了 那么明年正片oped角色歌插曲能请点名气大的作曲家来写吗
+
+
+*****
+
+####  HYNDコン  
+##### 145#       发表于 2024-11-1 21:24
+
+好！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
