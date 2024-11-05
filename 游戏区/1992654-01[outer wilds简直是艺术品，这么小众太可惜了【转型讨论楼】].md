@@ -40,3 +40,116 @@ Fez是一部探索世界及宇宙奥妙的解谜类游戏 你在游戏中扮演G
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  Ditfran  
+##### 1157#       发表于 2024-11-1 20:47
+
+ 本帖最后由 Ditfran 于 2024-11-1 20:48 编辑 
+
+挖一下，日版实体板已经发售了
+
+有普通板和特装板，特装版是一个长长的盒子，里面有几个钥匙扣和一张60*47cm的海报，并且还附送一个说明手册（不在盒子里面）
+
+<img src="https://img.saraba1st.com/forum/202411/01/204549wxyrqyrz3qya7ose.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241101_203307.jpg</strong> (861.79 KB, 下载次数: 0)
+
+下载附件
+
+本体
+2024-11-1 20:45 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/204549y9qrmqiy9fx3xx59.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241101_203510.jpg</strong> (400.32 KB, 下载次数: 0)
+
+下载附件
+
+本体
+2024-11-1 20:45 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/204545wz017mrqlydd2tzt.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241101_203927.jpg</strong> (656.86 KB, 下载次数: 0)
+
+下载附件
+
+对比
+2024-11-1 20:45 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/204548xd3yznssbmbiyhek.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241101_203343.jpg</strong> (494.05 KB, 下载次数: 0)
+
+下载附件
+
+说明手册
+2024-11-1 20:45 上传
+
+<img src="https://img.saraba1st.com/forum/202411/01/204547id884a9m8kk8t438.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241101_203332.jpg</strong> (984.63 KB, 下载次数: 0)
+
+下载附件
+
+说明手册
+2024-11-1 20:45 上传
+
+
+*****
+
+####  暮光こころ  
+##### 1158#       发表于 2024-11-1 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66597849&amp;ptid=1992654" target="_blank">Ditfran 发表于 2024-11-1 20:47</a>
+
+挖一下，日版实体板已经发售了
+
+有普通板和特装板，特装版是一个长长的盒子，里面有几个钥匙扣和一张60*47c ...</blockquote>
+之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光盘包含了DLC内容吗？
+
+
+*****
+
+####  Ditfran  
+##### 1159#       发表于 2024-11-1 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598202&amp;ptid=1992654" target="_blank">暮光こころ 发表于 2024-11-1 21:41</a>
+
+之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光 ...</blockquote>
+我没舍得拆就没插上盘实机试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ditfran  
+##### 1160#       发表于 2024-11-1 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598202&amp;ptid=1992654" target="_blank">暮光こころ 发表于 2024-11-1 21:41</a>
+
+之前了解到欧美版的光盘忘了把DLC眼之回想的内容刻上去，结果只能让玩家去网上领DLC下载码。请问日版的光 ...</blockquote>
+
+在推上查了一下，插进光盘时会提示你是否安装DLC，可以确定不用兑换码兑换了
+
+<img src="https://img.saraba1st.com/forum/202411/01/230543g8fz338280nyrzx7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-1 23:05 上传
+
+
+*****
+
+####  暮光こころ  
+##### 1161#       发表于 2024-11-2 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66598696&amp;ptid=1992654" target="_blank">Ditfran 发表于 2024-11-1 23:07</a>
+
+在推上查了一下，插进光盘时会提示你是否安装DLC，可以确定不用兑换码兑换了
+
+ ...</blockquote>
+谢谢，这样就可以放心了。
+
