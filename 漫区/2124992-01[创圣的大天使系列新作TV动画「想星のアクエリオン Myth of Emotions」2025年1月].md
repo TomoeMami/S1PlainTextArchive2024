@@ -825,3 +825,374 @@ LOGOS实在太水了，剧情都忘光了，只记得里面的少爷苦得一逼
 <img src="https://p.sda1.dev/19/1f1ea5a566a65cd7a5d95bdb5b6cfaa0/20241018_224221.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/c93a12e3f241675805ea953341f76b46/20241018_224222.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  哆哆鸡  
+##### 100#       发表于 2024-11-7 19:38
+
+人设搞成这幅吊样，是要和之前的系列做彻底切割啊
+
+把机设一遮，还以为是新干线、百万吨武藏这种子供向，实际看上去就是子供向的
+
+还叫创圣大天使估计是觉得这个名字还能骗来一点老粉丝关注，老老实实取个新的名字不好吗
+
+
+*****
+
+####  a85982313  
+##### 101#       发表于 2024-11-7 19:49
+
+怎么是这个人设
+
+*****
+
+####  novyDC  
+##### 102#       发表于 2024-11-7 19:53
+
+这是要开拓儿童市场吗 这画风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  winda  
+##### 103#       发表于 2024-11-7 20:04
+
+这个人设，很竹啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+但是竹的人设适合宝可梦和戏言片场，和创圣合适么
+
+
+*****
+
+####  ryanghj  
+##### 104#       发表于 2024-11-7 20:25
+
+第一页看还以为是新干线
+
+
+*****
+
+####  线程召唤使  
+##### 105#       发表于 2024-11-7 20:33
+
+吓死我了，啥玩意这些大头娃娃。
+
+
+*****
+
+####  check  
+##### 106#       发表于 2024-11-7 20:51
+
+不是 你是子供向？
+
+
+*****
+
+####  超阳电子炮  
+##### 107#       发表于 2024-11-7 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这人设给我干哪来了
+
+
+*****
+
+####  Stephen9755  
+##### 108#       发表于 2024-11-7 21:26
+
+看了看人物介绍，各种重要情感欠缺，这人设怕是致郁的障眼法（
+
+
+*****
+
+####  创始’’’天翔  
+##### 109#       发表于 2024-11-7 21:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">或许会藏大的呢
+
+
+*****
+
+####  彬噜  
+##### 110#       发表于 2024-11-7 22:00
+
+这PV一眼便宜动画<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kos_mos  
+##### 111#       发表于 2024-11-7 22:05
+
+会不会关键剧情人物一转眼变成标准画风
+
+*****
+
+####  aptx8285144  
+##### 112#       发表于 2024-11-7 22:08
+
+这画风太别扭了，人头比例失衡
+
+
+*****
+
+####  weige  
+##### 113#       发表于 2024-11-8 00:54
+
+搞不懂日本人啥思路，小时候看的子供片人设是潮的，现在的子供片的人设一眼过去就低劣
+
+
+*****
+
+####  saverok  
+##### 114#       发表于 2024-11-8 01:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">真这人设？那寄了
+
+虽然本来也不指望
+
+
+*****
+
+####  灵魂收割机  
+##### 115#       发表于 2024-11-8 01:30
+
+三话……不，一话之内解除伪装换画风还有救<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  400姨妈  
+##### 116#       发表于 2024-11-8 01:46
+
+还是再请冈妈来make创圣great again吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 3个男机师来个合体ts想想就带感
+
+
+*****
+
+####  z692689995  
+##### 117#       发表于 2024-11-8 05:38
+
+下一部超时空要塞不会也是子供向吧
+
+
+*****
+
+####  哈曼的YY  
+##### 118#       发表于 2024-11-8 09:11
+
+这画风能裸飘吗
+
+
+*****
+
+####  zoomegg  
+##### 119#       发表于 2024-11-8 10:51
+
+这画风不会真的一转日间档吧。。。我还能听到丰崎爱生合体的时候发出愉悦的娇喘么，人设硬不起来关掉画面干听也可以啊
+
+
+*****
+
+####  vorfeed  
+##### 120#       发表于 2024-11-8 11:05
+
+<img src="https://p.sda1.dev/20/870d9f7aad2f9c773ffe24df4f29afa2/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dqjsss  
+##### 121#       发表于 2024-11-8 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66644877&amp;ptid=2124992" target="_blank">z692689995 发表于 2024-11-8 05:38</a>
+
+下一部超时空要塞不会也是子供向吧</blockquote>
+马裤螺丝关键是要卖歌卖偶像，转子供向还怎么卖
+
+
+*****
+
+####  Blackson  
+##### 122#       发表于 2024-11-8 11:31
+
+子供向卖歌卖偶像近有美妙系列这个案例，远的有类似于“唱K小鱼仙”这部作品
+
+
+*****
+
+####  待宵  
+##### 123#       发表于 2024-11-8 12:20
+
+和**天使一样平时大头娃娃战斗合体时换成正常比例画风？这个可以有
+
+*****
+
+####  Piano-Forest  
+##### 85#         楼主| 发表于 2024-11-7 18:04
+
+角色PV：[https://youtu.be/G7d7lhuX47U](https://youtu.be/G7d7lhuX47U)
+
+TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
+
+スタッフ
+
+原作：河森正治・サテライト
+
+監督：糸曽賢志
+
+シリーズ構成：村井さだゆき
+
+スーパーバイザー／アクエリオンデザイン：河森正治
+
+キャラクターデザイン：工藤昌史
+
+音楽：大間々昂、兼松衆
+
+アニメーション制作：サテライト
+
+製作：Project AQUARION MOE
+
+キャスト
+
+オオトリサッコ：花守ゆみり
+
+アマハモモヒメ：和氣あず未
+
+ツキシロリミヤ：小市眞琴
+
+ハタノトシ：豊崎愛生
+
+イチキサヨ：小原好美
+<img src="https://p.sda1.dev/20/24a83beabba3c6c277338cdd1cb6afd4/20241107_180113.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 86#         楼主| 发表于 2024-11-7 18:06
+
+<img src="https://p.sda1.dev/20/846730cac86b26f4d7ef8b17c4c67b0b/20241107_180107.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/cc56e6b69ffa8ca8c4e477700c929758/下载 _2_.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/46ac8cb31873d5f6de193ff12aef4c33/下载 _3_.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/20/9bad998ca3fd5f39f89a0c7afa07ab49/20241107_180118.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Atamaitai  
+##### 87#       发表于 2024-11-7 18:12
+
+好出乎意料的人设<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  夜月紫耀  
+##### 88#       发表于 2024-11-7 18:12
+
+居然是这种人设吗？
+
+*****
+
+####  Toby_dak  
+##### 89#       发表于 2024-11-7 18:13
+
+看到人设时候我也<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  会长辅佐  
+##### 90#       发表于 2024-11-7 18:19
+
+这种风格吗
+
+
+*****
+
+####  会长辅佐  
+##### 91#       发表于 2024-11-7 18:24
+
+主角团cv全是女性还行
+
+*****
+
+####  kisstv22  
+##### 92#       发表于 2024-11-7 18:26
+
+这个画风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 93#       发表于 2024-11-7 18:39
+
+丰崎爱生配音小男孩让我意外
+
+
+*****
+
+####  natmk  
+##### 94#       发表于 2024-11-7 18:45
+
+河森这是想做子供向的动画吗
+
+
+*****
+
+####  查理_芒格  
+##### 95#       发表于 2024-11-7 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66642210&amp;ptid=2124992" target="_blank">natmk 发表于 2024-11-7 18:45</a>
+看画风还以为是吊带袜天使新作</blockquote>
+变相的
+小孩开大车<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.91-alpha
+
+
+*****
+
+####  Licheus  
+##### 96#       发表于 2024-11-7 19:00
+
+村井贞之还行，然后这PV看着有点便宜
+
+为什么这玩意儿能变成一个出到第四作的IP啊…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  風卷豹  
+##### 97#       发表于 2024-11-7 19:04
+
+ 本帖最后由 風卷豹 于 2024-11-7 19:07 编辑 
+
+这个男主造型和气质有点像fnf的bf（换色版）
+封面后面那个绿（？）毛也有点像gf
+
+
+*****
+
+####  七七見奈波  
+##### 98#       发表于 2024-11-7 19:14
+
+这人设认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wolf1997  
+##### 99#       发表于 2024-11-7 19:21
+
+乐观主义：吊带袜天使
+
+悲观主义：高达AGE
+
+
