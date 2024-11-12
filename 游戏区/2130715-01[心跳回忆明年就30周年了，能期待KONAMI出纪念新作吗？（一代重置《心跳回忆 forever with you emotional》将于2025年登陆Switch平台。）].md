@@ -3004,3 +3004,34 @@ VHS版：[https://youtu.be/mX9Li4WEU0Y?si=uvvXgXVzhApXy45p](https://youtu.be/mX9
 
 You tube连播的时候感受得到心跳1.2的音乐是真多啊，好几张专辑的。心跳4就一个所有人角色歌专辑一个BGM，没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  泰坦失足  
+##### 242#       发表于 2024-11-9 14:52
+
+那个两人合作画了快30年同人本，最后直接结婚的二人组HIGH RISK REVOLUTION [https://x.com/aizawahiroshi](https://x.com/aizawahiroshi)，终于要出最终卷了。30年来从那样到这样。只要这个夫妻社团不因为最近发布了“絶倫なやつら エーロン・マスクの野望/无与伦比的人们：埃隆·马斯克的野望"这个同人本被马总封推特号甚至停止活动，就能看到连续出了30年同人本的记录了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。二人还出了loveplus every的同人本，都出到第5本了，比LPE的营运时间都长多了
+
+<img src="https://img.saraba1st.com/forum/202411/09/144540wtrtgtq38rtggq1b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 14:45 上传
+
+<img src="https://img.saraba1st.com/forum/202411/09/144745ohgz0fht4a0n08n2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 14:47 上传
+
+<img src="https://img.saraba1st.com/forum/202411/09/144815hpvvcew1usu8uu3u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-9 14:48 上传
+
