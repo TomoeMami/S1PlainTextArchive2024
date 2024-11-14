@@ -2993,3 +2993,31 @@ elminage系列脱胎自日系巫术。但是不至于像后世日系drpg那样�
 不过第一次进可能不挂梯子不行？不太确定。
 
 
+*****
+
+####  fireflies  
+##### 272#       发表于 2024-11-10 18:01
+
+今天入坑，来得及刷活动吗，我看那个灯火活动快结束了
+
+
+*****
+
+####  我猫呢?  
+##### 273#       发表于 2024-11-10 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664675&amp;ptid=2156352" target="_blank">fireflies 发表于 2024-11-10 18:01</a>
+今天入坑，来得及刷活动吗，我看那个灯火活动快结束了</blockquote>
+粪活动，不太值得刷
+
+
+*****
+
+####  UdukiMisato  
+##### 274#       发表于 2024-11-11 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66664675&amp;ptid=2156352" target="_blank">fireflies 发表于 2024-11-10 18:01</a>
+
+今天入坑，来得及刷活动吗，我看那个灯火活动快结束了</blockquote>
+骨头肯定够 书看你愿不愿意 其他的就算了
+
