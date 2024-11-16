@@ -1543,3 +1543,57 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 不知道最近有没有啥新进展
 
+*****
+
+####  浅色轮回  
+##### 150#       发表于 2024-11-10 19:50
+
+最新版本粒子特效已经全部支持了
+
+
+*****
+
+####  囧囧囧  
+##### 151#       发表于 2024-11-11 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223813&amp;ptid=2190484" target="_blank">浅色轮回 发表于 2024-9-17 00:23</a>
+
+那是ps5，ps4是fx6300级别的性能 大名鼎鼎的推土机，5600十倍性能差不多吧</blockquote>
+美洲豹真没推土机厉害吧？推土机再怎么烂频率还是蛮高但美洲豹无论哪方面都是一坨大便啊。。。
+
+
+*****
+
+####  VVhaleVoice  
+##### 152#       发表于 2024-11-11 01:16
+
+已经能玩了吗恭喜了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  nilren  
+##### 153#       发表于 2024-11-13 10:16
+
+昨晚看PS4还在电视旁白吃灰，想起来B站说模拟器已经能正常通关了？？？过来问问是这样的吗？？
+
+要是能正常通关且有修改器的话，我就把PS4擦干净封箱了。整十年了。
+
+
+*****
+
+####  leviathan  
+##### 154#       发表于 2024-11-13 11:32
+
+steam就能模拟ps4？
+
+
+*****
+
+####  Mephisto  
+##### 155#       发表于 2024-11-13 13:56
+
+可以顺利通关吗
+
