@@ -3638,3 +3638,10 @@ pro来咯！
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  ultraseven  
+##### 376#       发表于 2024-11-14 00:56
+
+索尼在12月3号有场30周年showcase？
+
