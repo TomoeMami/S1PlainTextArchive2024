@@ -3390,3 +3390,11 @@ Maxwell's puzzling demon全通了，steam时长150h，但实际上远不止。�
 倒不是不喜欢卡关，而是不喜欢推箱子和画线经常出现的那种卡手的感觉……就，你把箱子推到这个位置，结果堵了不能到那边去了，这种。
 bean在愿望单了，等促销吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  BRAVADO  
+##### 229#       发表于 2024-11-17 02:15
+
+Prove You Can Win 12月发售，做题爱好者速来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://store.steampowered.com/app/3316620/Prove_You_Can_Win/](https://store.steampowered.com/app/3316620/Prove_You_Can_Win/)
+
