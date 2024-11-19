@@ -645,3 +645,42 @@ AI未亡人的老公头发跟男主一模一样（性格也差不多） 搞不�
 
 男主前世贵族氪死恋人兼仆从AI大姐姐打击之下下定决心下次要自己开机……感觉看到了这类发展<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+*****
+
+####  JuicyJuice  
+##### 58#         楼主| 发表于 2024-11-15 18:17
+
+第七话烤完了
+
+<img src="https://img.saraba1st.com/forum/202411/15/181740u9t66cl6a42qnsli.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="675" zoomfile="https://img.saraba1st.com/forum/202411/15/181740u9t66cl6a42qnsli.jpeg">
+
+<strong>3514E5A8-2AAD-44F9-84A2-4848ADB4EE3F.jpeg</strong> (161.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-15 18:17 上传
+
+已经变成纯纯搞笑漫画了
+
+
+*****
+
+####  JuicyJuice  
+##### 59#         楼主| 发表于 2024-11-16 22:02
+
+<img src="https://img.saraba1st.com/forum/202411/16/220231jic4iyjeq4uzdd1g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202411/16/220231jic4iyjeq4uzdd1g.jpeg">
+
+<strong>2F744BB5-322F-41DF-A151-060CD6299627.jpeg</strong> (615.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 22:02 上传
+
+
+*****
+
+####  复杂梦境  
+##### 60#       发表于 2024-11-16 23:26
+
+自打看了画师的BA同人图后每次看这导航ai都能幻视成莉音
+
