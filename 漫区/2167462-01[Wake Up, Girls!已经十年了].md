@@ -1025,3 +1025,155 @@ Wake Up, Girls！ Music Collection
 何卒ご理解賜りますよう、謹んでお願い申し上げます。</blockquote>
 
 
+*****
+
+####  芜湖挨宰  
+##### 101#       发表于 2024-11-14 19:44
+
+六个人都转推了官推Final Tour三天免费配信的消息，官推也转推了这六个人的转推。就缺永野愛理没有转推，一看她是单独发了条推特不是转推，所以官推也没转<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/14/194326fck4nkc6u34014z0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 19:43 上传
+
+近冈直新画的：
+
+<img src="https://img.saraba1st.com/forum/202411/14/194456itgtozqzmp76tolx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (732.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 19:44 上传
+
+
+*****
+
+####  DarthAka  
+##### 102#         楼主| 发表于 2024-11-15 11:14
+
+**无料配信
+
+剧场上映
+
+box
+
+
+*****
+
+####  海神航  
+##### 103#       发表于 2024-11-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63607978&amp;ptid=2167462" target="_blank">Toby_dak 发表于 2024-1-10 22:11</a>
+
+反正去年一堆只看过孤独摇滚的二刺螈说よっぴー是社恐时候，我们WUGNER都是在看傻子的感觉………… ...</blockquote>
+よっぴー是什么意思?
+
+
+*****
+
+####  tunpian  
+##### 104#       发表于 2024-11-15 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704319&amp;ptid=2167462" target="_blank">海神航 发表于 2024-11-15 19:27</a>
+
+よっぴー是什么意思?</blockquote>
+指 青山吉能
+
+
+*****
+
+####  海神航  
+##### 105#       发表于 2024-11-16 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66704390&amp;ptid=2167462" target="_blank">tunpian 发表于 2024-11-15 19:39</a>
+
+指 青山吉能</blockquote>
+有劳回复了
+
+
+*****
+
+####  芜湖挨宰  
+##### 106#       发表于 2024-11-16 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66562929&amp;ptid=2167462" target="_blank">芜湖挨宰 发表于 2024-10-28 20:15</a>
+全部延期了。
+
+近岡直是不是很久没画画了，要复健吗</blockquote>
+果然是太久没画画要复健<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后两张cd封面画的比第一张好
+<img src="https://p.sda1.dev/20/6cc29bd24e3ca9ea62080f1f4089b4ec/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  芜湖挨宰  
+##### 107#       发表于 2024-11-16 10:10
+
+这句我没看明白是谁？私服搭配是mayo选的，mayo是指真梦？
+
+<blockquote>私服の方のイラストの服もモヨさんに選んでもらいました！
+モヨさんは流行りをちゃんと追ってて良いの選んでくれるのでありがたいです！
+ファッションの解像度が高い！！</blockquote><img src="https://p.sda1.dev/20/c4aa2a459167ecbfc3fa1ccc9c1d1d10/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  王留美  
+##### 108#       发表于 2024-11-16 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66706832&amp;ptid=2167462" target="_blank">芜湖挨宰 发表于 2024-11-16 10:10</a>
+ 这句我没看明白是谁？私服搭配是mayo选的，mayo是指真梦？  </blockquote>
+moyo
+不是mayo
+
+
+*****
+
+####  芜湖挨宰  
+##### 109#       发表于 2024-11-17 22:04
+
+ 本帖最后由 芜湖挨宰 于 2024-11-17 22:05 编辑 
+
+终于拿到了BD封绘的海报。网图只有2000多分辨率我嫌小，画集里尺寸也只有A4。这样WUG这边应该再没什么想收藏的商品了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/17/214719qm7mmjrteemrev7m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 21:47 上传
+
+比较可惜的是下面这张只出了毯子和A4文件夹，没有海报。我在考虑要不要把毯子表面印着画的那层布拆下来。
+
+<img src="https://img.saraba1st.com/forum/202411/17/220222xt2catp012pbp50a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-17 22:02 上传
+
+
+*****
+
+####  tunpian  
+##### 110#       发表于 2024-11-17 23:39
+
+ 本帖最后由 tunpian 于 2024-11-17 23:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> WUG确实改变了我的人生轨迹  力头路恰烂加   爱加倍  是真的好听
+
+还有奥野唱的那首角色曲 是我最喜欢的V家P主 SCOP写的    why am i  超棒的
+
