@@ -1378,3 +1378,50 @@ Pc版跳过对应哪个键？ ...</blockquote>
 
 才发现阉割了震动。
 
+*****
+
+####  Nana7ue  
+##### 140#       发表于 2024-11-23 12:09
+
+steam的bug修了吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+在想要不要买一份，现在-20%
+
+
+*****
+
+####  satan023  
+##### 141#       发表于 2024-11-23 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66758966&amp;ptid=2170218" target="_blank">Nana7ue 发表于 2024-11-23 12:09</a>
+steam的bug修了吗
+
+在想要不要买一份，现在-20%</blockquote>
+别买 玩老版还带H 不比这爽吗 我玩到凛线了 没觉得立绘画面有啥过时 这复刻纯骗钱
+
+
+*****
+
+####  760194962  
+##### 142#       发表于 2024-11-23 17:54
+
+借楼求问有没有人能分享一下通关存档？
+
+Pc的也没问题，我试下switch版能不能用
+
+
+*****
+
+####  ナルバレック  
+##### 143#       发表于 2024-11-23 23:02
+
+今晚洛杉矶好莱坞有Fate20周年的节目，不过本社在磨洋工月姬R，BB在重制FE，螺旋在数钱FGO，不可能有FSN相关新产品的，但是FSF和FSR可能会有新消息
+
+
+*****
+
+####  zjcbd  
+##### 144#       发表于 2024-11-25 15:36
+
+月姬什么时候上steam，switch都有中文出来了
+
