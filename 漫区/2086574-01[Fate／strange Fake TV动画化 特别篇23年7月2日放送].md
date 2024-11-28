@@ -3640,3 +3640,116 @@ fz也是完结了几年才做动画，
 
 变成年番了
 
+*****
+
+####  jackyhuang  
+##### 362#       发表于 2024-11-24 12:08
+
+【【FSF】Fate/strange Fake TV第1集（英配版）-哔哩哔哩】 https://b23.tv/9UTN7ky
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+
+*****
+
+####  空彦秋  
+##### 363#       发表于 2024-11-24 19:57
+
+第一话质量真的顶，至少文戏是这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要是整个都保持这种水准，那真的是开香槟了，甚至觉得成田写得有点水配不上这制作<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 364#       发表于 2024-11-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765274&amp;ptid=2086574" target="_blank">空彦秋 发表于 2024-11-24 19:57</a>
+
+第一话质量真的顶，至少文戏是这样
+
+要是整个都保持这种水准，那真的是开香槟了，甚至觉得成田写得有点水配 ...</blockquote>
+成田在月球作者里算咖位大啊，除了菌菇和老虚外，没有人和他咖位差不多，他下笔太软不爱收人导致各种结局问题甚至无法完结是老问题了，永生之酒和无头骑士不都这样2333
+
+
+*****
+
+####  ナルバレック  
+##### 365#       发表于 2024-11-24 21:40
+
+<img src="https://img.saraba1st.com/forum/202411/24/214002lccjj6lzd6irhhcc.png" referrerpolicy="no-referrer">
+
+<strong>5D69E463FB49FE13E84C1D281D049CF6.png</strong> (238.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-24 21:40 上传
+
+*****
+
+####  线程召唤使  
+##### 366#       发表于 2024-11-24 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66765697&amp;ptid=2086574" target="_blank">ナルバレック 发表于 2024-11-24 21:29</a>
+
+成田在月球作者里算咖位大啊，除了菌菇和老虚外，没有人和他咖位差不多，他下笔太软不爱收人导致各种结局 ...</blockquote>
+成田有才气，蘑菇有灵性，老虚最用力。
+
+
+*****
+
+####  henry8848  
+##### 367#       发表于 2024-11-24 22:11
+
+B站的自动翻译能勉强看个七八成，没想到第一次使用自动翻译是看fsf
+
+
+*****
+
+####  ff2077  
+##### 368#       发表于 2024-11-24 22:52
+
+原作值得看看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 369#       发表于 2024-11-24 22:58
+
+这动画到底打不打算出成季番？怎么动画搞得跟原作一样这么难产。
+
+
+*****
+
+####  黑上シグマ  
+##### 370#       发表于 2024-11-24 23:53
+
+<blockquote>引用第367楼ff2077于2024-11-24 22:52发表的  :
+
+原作值得看看吗</blockquote>
+看头还是不少的，仇阶B叔，玄木坂的小红帽，韦伯弟子集体参战之类的
+就是应该还剩一卷不知道成田收不收得了尾……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+
+
+*****
+
+####  七七見奈波  
+##### 371#       发表于 2024-11-25 00:09
+
+这都多久了怎么还做得像半成品一样
+
+
+*****
+
+####  ナルバレック  
+##### 372#       发表于 2024-11-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66766620&amp;ptid=2086574" target="_blank">七七見奈波 发表于 2024-11-25 00:09</a>
+
+这都多久了怎么还做得像半成品一样</blockquote>
+这集质量不错吧
+
