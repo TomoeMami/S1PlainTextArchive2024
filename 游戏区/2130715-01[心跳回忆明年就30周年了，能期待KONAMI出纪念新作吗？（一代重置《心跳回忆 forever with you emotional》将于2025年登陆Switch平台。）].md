@@ -3035,3 +3035,75 @@ You tube连播的时候感受得到心跳1.2的音乐是真多啊，好几张专
 
 2024-11-9 14:48 上传
 
+*****
+
+####  Toby_dak  
+##### 243#       发表于 2024-11-25 14:22
+
+<img src="https://p.sda1.dev/20/0c6160e78016583020365410411fa91d/1000067142.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  克拉苏  
+##### 244#       发表于 2024-11-25 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66656182&amp;ptid=2130715" target="_blank">泰坦失足 发表于 2024-11-9 14:52</a>
+那个两人合作画了快30年同人本，最后直接结婚的二人组HIGH RISK REVOLUTION https://x.com/aizawahiroshi， ...</blockquote>
+诗织**那本？30年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么深仇大恨
+
+
+*****
+
+####  穿越护城河  
+##### 245#       发表于 2024-11-25 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770777&amp;ptid=2130715" target="_blank">克拉苏 发表于 2024-11-25 15:05</a>
+
+诗织**那本？30年什么深仇大恨</blockquote>
+异常感情呗
+
+岩崎是日本最早一批评测老心跳还给与极高评价的玩家，后来后悔的事情是评分只给了95分
+
+
+*****
+
+####  JimmyJoker  
+##### 246#       发表于 2024-11-25 22:24
+
+周年快乐。
+
+
+*****
+
+####  花咲茜  
+##### 247#       发表于 2024-11-26 10:41
+
+25周年哈
+
+
+*****
+
+####  泰坦失足  
+##### 248#       发表于 2024-11-26 11:23
+
+啥时候也能remake，本传非GS唯一一个师生恋的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 好好好，学校给你两个开的是吧。
+
+<img src="https://img.saraba1st.com/forum/202411/26/112109lsui9grdxslqupxd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.19 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 11:21 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/112200czc5mz3a7u566ccz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 11:22 上传
+
