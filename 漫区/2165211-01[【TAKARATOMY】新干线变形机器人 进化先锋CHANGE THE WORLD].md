@@ -1484,3 +1484,58 @@ ED3上线音乐平台了
 我觉得还有另外一点就是没有第三方联动人物&amp;故事，前两部好歹还有初音未来、哥斯拉、银河铁道999。这部啥也 ...</blockquote>
 打铁还得自身硬，初代的联动纯粹只是锦上添花，砍了一点问题都没有
 
+*****
+
+####  JuicyJuice  
+##### 111#       发表于 2024-11-24 11:59
+
+我超 好吓人😭
+
+
+*****
+
+####  JuicyJuice  
+##### 112#       发表于 2024-11-24 12:20
+
+下集要经典下克上了
+
+
+*****
+
+####  DARK_HGCG  
+##### 113#       发表于 2024-11-24 17:06
+
+男主急个啥
+
+他不有姐姐吗
+
+
+*****
+
+####  JuicyJuice  
+##### 114#       发表于 2024-11-27 09:21
+
+漫画版帅啊
+
+<img src="https://img.saraba1st.com/forum/202411/27/092113otuj8fqfaaox8ejt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F5D61991-22DB-424E-88EE-38F9E89657DF.jpeg</strong> (913.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 09:21 上传
+
+
+*****
+
+####  JuicyJuice  
+##### 115#       发表于 2024-11-28 00:12
+
+<img src="https://img.saraba1st.com/forum/202411/28/001230dqioi1o92rk22oci.png" referrerpolicy="no-referrer">
+
+<strong>B34FB53A-039E-47EB-ACC2-E995F18603CA.png</strong> (53.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 00:12 上传
+
