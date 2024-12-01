@@ -4824,3 +4824,19 @@ Portal今天更新了云游戏功能，理论上可以ps5和Portal玩不同游�
 
 过了一年才解决，幽默完了索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  医生狼多  
+##### 461#         楼主| 发表于 2024-11-28 01:44
+
+要出一款限量黑色的<img src="https://p.sda1.dev/20/5ef24754ed1559ac763a89984e32532a/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喵喵叫的猫  
+##### 462#       发表于 2024-11-28 10:22
+
+黑色和30周年都挺好看
+不考虑出个官方充电底座和收纳包吗
+
