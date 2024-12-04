@@ -9458,3 +9458,2983 @@ nayuta
 
 我想给亚尔缇娜MVP，一路都在放盾，结果最后给了黎恩（也就boss打了四五个S）
 
+*****
+
+####  Aeons  
+##### 6798#       发表于 2024-11-13 14:12
+
+迷城能拖到26年，空re这个真是完全打乱你法安排了
+
+*****
+
+####  一步成诗  
+##### 6799#       发表于 2024-11-13 14:13
+
+忘了伊苏还排着，我真不好说界2几几年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6800#       发表于 2024-11-13 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687400&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-11-13 14:12</a>
+
+迷城能拖到26年，空re这个真是完全打乱你法安排了</blockquote>
+不很正常，之前开发中止三移植就是空轨123
+
+
+*****
+
+####  hourousha  
+##### 6801#       发表于 2024-11-13 14:29
+
+如果续作26年出不来那就太搞了,看看和FF7重制第三部哪个先出.
+
+*****
+
+####  ravend233  
+##### 6802#       发表于 2024-11-13 14:29
+
+<img src="https://img.saraba1st.com/forum/202411/13/142850ons0znee8u5odn22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-13 14:28 上传
+
+现在看来是计划迷城2和界2都拖到26年咯，当然计划是计划
+
+至于伊苏，伊苏排队肯定在界2后面呗
+
+我觉得迷城拖到26年是在等NS2
+
+*****
+
+####  卢迪克  
+##### 6803#       发表于 2024-11-13 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687546&amp;ptid=2160194" target="_blank">hourousha 发表于 2024-11-13 14:29</a>
+
+如果续作26年出不来那就太搞了,看看和FF7重制第三部哪个先出.</blockquote>
+界轨ns皇帝版追加终章，ps成有料付费无印版
+
+
+*****
+
+####  smdzh2  
+##### 6804#       发表于 2024-11-13 14:35
+
+ 本帖最后由 smdzh2 于 2024-11-13 15:36 编辑 
+
+加藤这是看到日本友商重制版冷饭炒得香饽饽，自己也想梭哈一把了？
+不然没法解释空轨Re空降后一路开绿灯的现象
+
+*****
+
+####  卢迪克  
+##### 6805#       发表于 2024-11-13 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687552&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-13 14:29</a>
+
+现在看来是计划迷城2和界2都拖到26年咯，当然计划是计划
+
+至于伊苏，伊苏排队肯定在界2后面呗</blockquote>
+甚至没提界轨2<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+現在、「東亰ザナドゥ」など複数の新プロジェクトを進行しており、発売タイトル数の拡大や新しいＩＰコンテンツ・ゲームの創出を進めているため、先行して開発費用の発生を見込んでおり、2026年９月期での新作タイトル複数リリースを目標としております
+
+
+*****
+
+####  ravend233  
+##### 6806#       发表于 2024-11-13 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687591&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-11-13 14:35</a>
+
+加藤这是看到日本友商重制版冷饭炒得香饽饽，自己也想梭哈一把了？
+
+不然没法解释空轨Re空降后一路开绿灯的 ...</blockquote>
+也不是不能解释，迷城在等NS2，NS2不一定赶得上明年财报，紧急开个项目顶着
+
+至于界2，界2在新建文件夹（）
+
+*****
+
+####  ravend233  
+##### 6807#       发表于 2024-11-13 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687605&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-13 14:37</a>
+
+甚至没提界轨2，用复数项目简单代过
+
+現在、「東亰ザナドゥ」など複数の新プロジェクトを進行しており、発 ...</blockquote>
+凑数IP是这样的
+
+*****
+
+####  一步成诗  
+##### 6808#       发表于 2024-11-13 14:41
+
+说明年东迷界2双开的，我不觉得和东迷同年发售是什么好事，界2一定会比界1更敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hayate0079  
+##### 6809#       发表于 2024-11-13 15:16
+
+我怎么感觉法老控还没想好/写好共和国篇的结局
+
+
+*****
+
+####  ravend233  
+##### 6810#       发表于 2024-11-13 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687907&amp;ptid=2160194" target="_blank">hayate0079 发表于 2024-11-13 15:16</a>
+
+我怎么感觉法老控还没想好/写好共和国篇的结局</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大纲应该是有的，但是具体剧情考虑界1这剧本的粗糙程度，肯定还没开工
+
+*****
+
+####  卢迪克  
+##### 6811#       发表于 2024-11-13 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687632&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-13 14:41</a>
+
+说明年东迷界2双开的，我不觉得和东迷同年发售是什么好事，界2一定会比界1更敷衍 ...</blockquote>
+26年9月 京轨 复数 新作 目标=不一定能出界2
+
+
+*****
+
+####  hayate0079  
+##### 6812#       发表于 2024-11-13 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687923&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-13 15:18</a>
+
+大纲应该是有的，但是具体剧情考虑界1这剧本的粗糙程度，肯定还没开工</blockquote>
+还是让法老控慢慢写吧，再来黎2这样的确实吃不消
+
+
+*****
+
+####  一步成诗  
+##### 6813#       发表于 2024-11-13 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66687924&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-13 15:18</a>
+
+26年9月 京轨 复数 新作 目标=不一定能出界2</blockquote>
+咚了等三年也很难绷啊，左右都是死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maojiashu  
+##### 6814#       发表于 2024-11-13 16:17
+
+空re也不算空降吧 老早就有投票了 去年就有风声了
+
+只是没想到迷城也到26年去了 本来想着空re毕竟重制版 剧情是写好的 和东迷一起开发问题不大
+
+但现在是26年 界2和迷城双开 那就不好说了
+
+界2别烂啊 
+
+
+*****
+
+####  ravend233  
+##### 6815#       发表于 2024-11-13 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界2资源可能会比较少，但是多一年的话剧本倒是可能会好些，反正竹入现在手里也就这一个活了
+
+
+*****
+
+####  无动于衷  
+##### 6816#       发表于 2024-11-13 16:26
+
+所以最坏的打算就是到明年9月就一个空轨1st是吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 6817#       发表于 2024-11-13 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空轨re就看和界轨有没有联系了，还是单纯剧情不动用新技术重做
+
+
+*****
+
+####  maojiashu  
+##### 6818#       发表于 2024-11-13 16:31
+
+这个体量的复刻对于falcom来说就是新作了
+
+低配se和低配ff7re好吧
+
+这么看还就是那个一年一作的法老控
+
+*****
+
+####  a2042312  
+##### 6819#       发表于 2024-11-13 16:32
+
+东迷剧本是谁啊，竹入还是社长。
+
+
+*****
+
+####  ravend233  
+##### 6820#       发表于 2024-11-13 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688516&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-13 16:26</a>
+所以最坏的打算就是到明年9月就一个空轨1st是吧</blockquote>
+现在基本就是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Squall25  
+##### 6821#       发表于 2024-11-13 16:36
+
+<blockquote>a2042312 发表于 2024-11-13 16:32
+东迷剧本是谁啊，竹入还是社长。</blockquote>
+应该是新人编剧。界轨编剧cast那里李岚峰也不见了，不是离职的话只能认为参与了其它项目，比起空re更可能是京迷，
+
+*****
+
+####  ravend233  
+##### 6822#       发表于 2024-11-13 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688565&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-11-13 16:32</a>
+东迷剧本是谁啊，竹入还是社长。</blockquote>
+近藤不写伊苏以外的剧本，李岚峰不在界的staff表，估计是分到迷城去了，不过主笔不排除还是竹入
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  卢迪克  
+##### 6823#       发表于 2024-11-13 16:52
+
+ 本帖最后由 卢迪克 于 2024-11-13 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688555&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-13 16:31</a>
+
+这个体量的复刻对于falcom来说就是新作了
+
+低配se和低配ff7re好吧</blockquote>
+还是65人，不就是只能一年一作，除非他有时至宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+fc1f4134970a304e899c51df97c8a786c9175c5d(1).jpg
+(19.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-13 16:53 上传
+
+<img src="https://img.saraba1st.com/forum/202411/13/165315n7qpedkztcjz9eyy.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6824#       发表于 2024-11-13 17:11
+
+ 本帖最后由 卢迪克 于 2024-11-13 17:14 编辑 
+
+                  2021         2022          2023            2024                 
+
+広告宣伝費 59,719      71,016        104,361       77,538
+
+販売促進費 15,814      37,070        35,221        48,136
+
+*****
+
+####  卢迪克  
+##### 6825#       发表于 2024-11-13 17:12
+
+ 本帖最后由 卢迪克 于 2024-11-13 17:14 编辑 
+
+界宣发还是共和国三作最高的，虽然不知道空轨上老任发布会花了多少
+
+*****
+
+####  maojiashu  
+##### 6826#       发表于 2024-11-13 17:14
+
+如果一年一作 那界2排哪去了？明年空 后年东迷 大后年伊苏 wtf 那我啥时候能玩到界2
+
+
+*****
+
+####  Oshino  
+##### 6827#       发表于 2024-11-13 17:18
+
+好自信的falcom，明年只有空轨重制营收能稳黑字吗
+
+
+*****
+
+####  ravend233  
+##### 6828#       发表于 2024-11-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688959&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-13 17:12</a>
+
+界宣发还是共和国三作最高的，虽然不知道空轨上老任发布会花了多少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到这钱还要分给空RE上ND，实际上分下来顶多和黎1一个级别，你还要算上日本这俩年高速通胀
+
+*****
+
+####  ravend233  
+##### 6829#       发表于 2024-11-13 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66688980&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-13 17:14</a>
+
+如果一年一作 那界2排哪去了？明年空 后年东迷 大后年伊苏 wtf 那我啥时候能玩到界2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在说法就是2026和迷城挤呗，但是计划是这样，万一计划赶不上变化（
+
+舅舅的消息是迷城已经有一定完成度了，而且已经开发好几年了，但是在等NS2
+
+
+*****
+
+####  maojiashu  
+##### 6830#       发表于 2024-11-13 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689068&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-13 17:22</a>
+
+现在说法就是2026和迷城挤呗，但是计划是这样，万一计划赶不上变化（</blockquote>
+意思东迷已经做的差不多了？ ns2首发护航是吧
+
+界2如果26年能稳定发售就还行 
+
+
+*****
+
+####  ravend233  
+##### 6831#       发表于 2024-11-13 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66689116&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-13 17:27</a>
+
+意思东迷已经做的差不多了？ ns2首发护航是吧
+
+界2如果26年能稳定发售就还行  ...</blockquote>
+不出意外的话应该是界2 2026 9月，迷城2026上半年蹭NS2首发热度吧
+
+*****
+
+####  lower  
+##### 6832#       发表于 2024-11-13 17:32
+
+还要至少等一年，让我对空轨re感到很厌烦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 6833#       发表于 2024-11-13 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实没空RE也做不出来，界2剧本大概率还在新建文件夹（
+
+
+*****
+
+####  黒鈴ミヲ  
+##### 6834#       发表于 2024-11-13 17:37
+
+这么自信啊法老控，一个重置吃一年
+
+
+*****
+
+####  卢迪克  
+##### 6835#       发表于 2024-11-13 17:44
+
+<blockquote>黒鈴ミヲ 发表于 2024-11-13 17:37
+这么自信啊法老控，一个重置吃一年</blockquote>
+
+2025也出美版，大概率同步，来自老任财报ppt
+
+<img src="https://img.saraba1st.com/forum/202411/13/174427i82zqa8khpqytkgt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20241113_174414.png</strong> (59.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-13 17:44 上传
+
+
+*****
+
+####  SuNR1sE364  
+##### 6836#       发表于 2024-11-13 19:18
+
+真把界2往后拖啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别26年都憋不出来一咚咚三年就好笑了
+
+
+*****
+
+####  提挈天地  
+##### 6837#       发表于 2024-11-13 19:31
+
+闪3咚等到闪4发售是几年来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  ouyang菌  
+##### 6838#       发表于 2024-11-13 19:37
+
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 6839#       发表于 2024-11-13 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66690023&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-11-13 19:37</a>
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了</blockquote>
+那得看你觉得闪2到闪3算不算一种断章（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  CAFc  
+##### 6840#       发表于 2024-11-13 19:50
+
+除非空re包含了fc+sc，不然这两头都是断章的商法实在想不通，新入坑的玩完fc想玩sc只能去找改版或者evo，正作直接断章两年
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  卢迪克  
+##### 6841#       发表于 2024-11-13 19:55
+
+电击上个月说几号要发近藤采访？
+
+
+*****
+
+####  hkguty  
+##### 6842#       发表于 2024-11-13 20:12
+
+完蛋了，这样断章还要等两年
+
+
+*****
+
+####  windtrack  
+##### 6843#       发表于 2024-11-13 20:56
+
+空RE FC到SC应该没啥工作量，没几个新迷宫，红方舟和白翼的建模闪轨都是现成的改改就行
+
+估计明年3月空RE 9月迷城 如果空RE销售还能看 26年就是3月SC 9月界2
+
+不过9月主档让迷城来打感觉差点事
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 6844#       发表于 2024-11-13 21:17
+
+双断章吗 法社无敌了呀
+
+
+*****
+
+####  秘银mithril  
+##### 6845#       发表于 2024-11-13 22:42
+
+我倒宁愿界2往后拖呢
+
+再来个黎2真不想玩了
+
+
+*****
+
+####  隔壁老黄  
+##### 6846#       发表于 2024-11-14 02:28
+
+界轨这结局还算挺成功的，至少不像黎2那样全是骂的，这时候不趁热打铁还等几年？近藤是吃了吗？真这样还不如先出东轨2呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  提挈天地  
+##### 6847#       发表于 2024-11-13 19:31
+
+闪3咚等到闪4发售是几年来着<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+*****
+
+####  ouyang菌  
+##### 6848#       发表于 2024-11-13 19:37
+
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 6849#       发表于 2024-11-13 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66690023&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-11-13 19:37</a>
+闪12和闪34都只隔了一年吧
+
+fc和sc是隔了1年9个月
+
+界2要是还是9月发售是不是能算最长断章了</blockquote>
+那得看你觉得闪2到闪3算不算一种断章（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  CAFc  
+##### 6850#       发表于 2024-11-13 19:50
+
+除非空re包含了fc+sc，不然这两头都是断章的商法实在想不通，新入坑的玩完fc想玩sc只能去找改版或者evo，正作直接断章两年
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卢迪克  
+##### 6851#       发表于 2024-11-13 19:55
+
+电击上个月说几号要发近藤采访？
+
+*****
+
+####  hkguty  
+##### 6852#       发表于 2024-11-13 20:12
+
+完蛋了，这样断章还要等两年
+
+*****
+
+####  windtrack  
+##### 6853#       发表于 2024-11-13 20:56
+
+空RE FC到SC应该没啥工作量，没几个新迷宫，红方舟和白翼的建模闪轨都是现成的改改就行
+
+估计明年3月空RE 9月迷城 如果空RE销售还能看 26年就是3月SC 9月界2
+
+不过9月主档让迷城来打感觉差点事
+
+*****
+
+####  哈萨维·诺亚  
+##### 6854#       发表于 2024-11-13 21:17
+
+双断章吗 法社无敌了呀
+
+*****
+
+####  秘银mithril  
+##### 6855#       发表于 2024-11-13 22:42
+
+我倒宁愿界2往后拖呢
+
+再来个黎2真不想玩了
+
+*****
+
+####  隔壁老黄  
+##### 6856#       发表于 2024-11-14 02:28
+
+界轨这结局还算挺成功的，至少不像黎2那样全是骂的，这时候不趁热打铁还等几年？近藤是吃了吗？真这样还不如先出东轨2呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  ravend233  
+##### 6857#       发表于 2024-11-14 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有没有一种可能，界和空re都是拿来给近藤宝贝的东轨2垫档期的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  a2042312  
+##### 6858#       发表于 2024-11-14 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692931&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-11-14 09:57</a>
+
+9月靠着素材复用凑合凑合做个界2顶着，东轨看NS2啥时候上市（）
+
+不过应该不会护航，顶多蹭个发售首年的 ...</blockquote>
+就加藤这个老保策略能PS5，NS2双平台同步就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 6859#       发表于 2024-11-14 10:06
+
+早说了你轨现在就随便糊弄资源都在东迷2身上，都不用舅舅说一眼就看出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 6860#       发表于 2024-11-14 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692843&amp;ptid=2160194" target="_blank">fireadol 发表于 2024-11-14 09:43</a>
+法老控对东轨信心这么足吗1代就不觉得是什么特别吸引人的故事，纯靠法老控凯子惯性玩的 ...</blockquote>
+那可是岛国单平台卖了10万，跟闪轨能掰掰手腕的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  卢迪克  
+##### 6861#       发表于 2024-11-14 10:20
+
+ファミ通TOP30
+
+空の軌跡1st(仮):11位103
+
+
+*****
+
+####  smdzh2  
+##### 6862#       发表于 2024-11-14 10:42
+
+你法肯定想复刻东迷1的商业奇迹，但东迷2现在还处于企划阶段是什么情况，总不能为了等NS2项目组集体摸鱼吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华发夜眼[CN]  
+##### 6863#       发表于 2024-11-14 10:44
+
+不是 ，ys献祭，轨迹献祭，东轨也要献祭的吗那法老空是献祭大师吗
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  winggg  
+##### 6864#       发表于 2024-11-14 11:04
+
+你们误会了。
+
+其实《空轨1st》是《界轨》的正统续作，明线是艾约揭露理查德政变阴谋；暗线是被学妹回溯的范恩，效法某人伪装洛伦斯少尉潜入王国军情报部，夺取辉之环对抗时之至宝。
+
+两难自解。（手动滑稽）
+
+
+*****
+
+####  卢迪克  
+##### 6865#       发表于 2024-11-14 11:25
+
+<img src="https://img.saraba1st.com/forum/202411/14/112502k4njn1jgl9djph7p.png" referrerpolicy="no-referrer">
+
+<strong>5f1fe59c-09e3-4258-8b94-7627b7078a7a.png</strong> (58.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-14 11:25 上传
+
+
+*****
+
+####  卢迪克  
+##### 6866#       发表于 2024-11-14 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66692996&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-14 10:06</a>
+
+早说了你轨现在就随便糊弄资源都在东迷2身上，都不用舅舅说一眼就看出来</blockquote>
+只要还是这个宣发，砸多少资源都是寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 6867#       发表于 2024-11-14 12:43
+
+26年真能发行两作吗
+
+
+*****
+
+####  卢迪克  
+##### 6868#       发表于 2024-11-14 12:57
+
+那可是一年一作都要献祭垫档期的公司<img src="https://static.saraba1st.com/image/smiley/carton2017/418.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 6869#       发表于 2024-11-14 14:42
+
+京迷又要在26财年又要蹭NS2第一年新机效应的话，发售时间可能定在2025.12-2026.3
+
+
+*****
+
+####  卢迪克  
+##### 6870#       发表于 2024-11-14 14:54
+
+ 本帖最后由 卢迪克 于 2024-11-14 14:57 编辑 
+
+据说老头环，最终幻想7重制版，生化危机全家桶，暗喻幻想，p3r，破晓传说这些都会移植，你法应该会避开这些冷饭大作的，档期难说，第一年竞争激烈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flxgundam  
+##### 6871#       发表于 2024-11-14 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">在专楼里我就直说了，除了老头环，剩下的这些垃圾也配跟法老控打？
+
+*****
+
+####  flxgundam  
+##### 6872#       发表于 2024-11-14 16:20
+
+生化危机这冷饭炒了无数遍了，构不成威胁；ff7重置这坨不可燃垃圾才是真的也配叫游戏？破晓暗喻这种都是剧情让人玩半小时就打瞌睡得构不成战斗力，p3r冷饭也是短板明显
+
+
+*****
+
+####  stlover  
+##### 6873#       发表于 2024-11-14 16:36
+
+无论怎么讲，优势在法老控
+
+
+*****
+
+####  ravend233  
+##### 6874#       发表于 2024-11-14 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了特别重量级的冷饭，大多数冷饭移植的影响力都很有限，不如看看能有多少新作，而且这些游戏很多受众和JRPG都不重叠的
+
+
+*****
+
+####  史蒂符  
+##### 6875#       发表于 2024-11-14 17:24
+
+空轨re傍上任天堂大腿首次多语言同步发售，还是轨里质量最好，最没入坑门槛的一作，到时候中日美老登再发发力，buff拉满了吧，这优势真在法老控，看好法老控史上最高初动<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  隔壁老黄  
+##### 6876#       发表于 2024-11-14 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696544&amp;ptid=2160194" target="_blank">史蒂符 发表于 2024-11-14 17:24</a>
+空轨re傍上任天堂大腿首次多语言同步发售，还是轨里质量最好，最没入坑门槛的一作，到时候中日美老登再发发 ...</blockquote>
+空轨的剧情太白开水了，我不怎么看好。十多年前玩的时候就觉得剧情没啥起伏，除了结局超展开了一把
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  ravend233  
+##### 6877#       发表于 2024-11-14 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696583&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-11-14 17:29</a>
+
+空轨的剧情太白开水了，我不怎么看好。十多年前玩的时候就觉得剧情没啥起伏，除了结局超展开了一把
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种冷饭的销量很大程度上是靠名气就是了，FC的剧本本身确实平了
+
+
+*****
+
+####  卢迪克  
+##### 6878#       发表于 2024-11-14 17:41
+
+你法肯定指望空R大卖的，从公布就一直开绿灯，tgs都有在播pv，不成功估计你轨要被打进小黑屋了
+
+
+*****
+
+####  妄想中毒  
+##### 6879#       发表于 2024-11-14 17:52
+
+要不这样，界轨世界重置后的起点是空re，然后从空re一路重置到界1，每一部都加点暗示世界被重置过的新剧情，这样既能靠空re吸引新玩家掉坑里又能让老玩家再玩一遍重制版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 6880#       发表于 2024-11-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66696659&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-14 17:41</a>
+你法肯定指望空R大卖的，从公布就一直开绿灯，tgs都有在播pv，不成功估计你轨要被打进小黑屋了 ...</blockquote>
+从pv来看我实在看不出有啥诚意
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  宛若青空  
+##### 6881#       发表于 2024-11-14 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697120&amp;ptid=2160194" target="_blank">隔壁老黄 发表于 2024-11-14 18:55</a>
+从pv来看我实在看不出有啥诚意
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+毕竟是赶出来的PV，还是可以期待下经过打磨后的正式版的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6882#       发表于 2024-11-14 19:27
+
+<blockquote>隔壁老黄 发表于 2024-11-14 18:55
+从pv来看我实在看不出有啥诚意
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+你法也就这个水平吧
+
+
+*****
+
+####  椎名mahuyo  
+##### 6883#       发表于 2024-11-14 19:37
+
+25年可能憋出两个新作么？
+
+
+*****
+
+####  ravend233  
+##### 6884#       发表于 2024-11-14 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697366&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-11-14 19:37</a>
+25年可能憋出两个新作么？</blockquote>
+25年不行，你法觉得他26年可能可以<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  卢迪克  
+##### 6885#       发表于 2024-11-14 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697366&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-11-14 19:37</a>
+
+25年可能憋出两个新作么？</blockquote>
+业绩继续靠9月新作的Q4，q123没新作
+
+2025年9月期の見通し
+
+業績推移の特徴として、新製品の発売月に売上が集中するため、下半期、
+
+特に第４四半期の比重が高くなる見込み
+
+*****
+
+####  正田崇  
+##### 6886#       发表于 2024-11-14 19:46
+
+ 本帖最后由 正田崇 于 2024-11-14 19:47 编辑 
+<blockquote>妄想中毒 发表于 2024-11-14 17:52
+要不这样，界轨世界重置后的起点是空re，然后从空re一路重置到界1，每一部都加点暗示世界被重置过的新剧情 ...</blockquote>
+
+那是不是界1之后范恩又失败了，世界重置，转年9月空rere发售？
+
+
+*****
+
+####  妄想中毒  
+##### 6887#       发表于 2024-11-14 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697405&amp;ptid=2160194" target="_blank">正田崇 发表于 2024-11-14 19:46</a>
+
+那是不是界1之后范恩又失败了，世界重置，转年9月空rere发售？</blockquote>
+那没必要，都轮回过一次了肯定出现新路线啊，到那时候玩家们就能玩到界2辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  隔壁老黄  
+##### 6888#       发表于 2024-11-15 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697301&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-14 19:27</a>
+你法也就这个水平吧</blockquote>
+比界轨差远了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  隔壁老黄  
+##### 6889#       发表于 2024-11-15 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66697236&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-11-14 19:17</a>
+毕竟是赶出来的PV，还是可以期待下经过打磨后的正式版的</blockquote>
+老实说看建模就知道大概了，这建模质感真的不行，地图也是，我还是喜欢原版那种小而精的建筑风格
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  卢迪克  
+##### 6890#       发表于 2024-11-15 08:50
+
+ 本帖最后由 卢迪克 于 2024-11-15 08:51 编辑 
+<blockquote>隔壁老黄 发表于 2024-11-15 00:08
+比界轨差远了
+
+—— 来自 鹅球 v3.3.92-alpha</blockquote>
+
+那没办法，谁叫黎轨拉不到新人呢，而近藤采访说有一些因为ns版伊苏x入坑的，特别强调ns版，基本ps和黎轨一样没有新玩家在玩都是老玩家。
+
+空轨就基于ns开发了，试试能不能复刻伊苏x
+
+
+*****
+
+####  新世界的派蒙  
+##### 6891#       发表于 2024-11-15 10:25
+
+众所周知FF7RB卖的不好的原因是TJ企划，那么空re..........
+
+
+*****
+
+####  仲可怀  
+##### 6892#       发表于 2024-11-15 10:35
+
+空re目前能看到的亮点就是野外地图和城市也无缝了 然后演出经过这次界轨的体验 应该也会有不错的表现
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  卢迪克  
+##### 6893#       发表于 2024-11-15 11:31
+
+ 本帖最后由 卢迪克 于 2024-11-15 11:33 编辑 
+<blockquote>ravend233 发表于 2024-11-14 17:32
+这种冷饭的销量很大程度上是靠名气就是了，FC的剧本本身确实平了</blockquote>
+近藤可是自信满满的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/15/113125koe5a2ae9aapaa5e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241115_113016.jpg</strong> (47.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-15 11:31 上传
+
+
+*****
+
+####  卢迪克  
+##### 6894#       发表于 2024-11-15 13:04
+
+ 本帖最后由 卢迪克 于 2024-11-15 13:06 编辑 
+
+空轨re这记者会出场吧，
+
+<img src="https://img.saraba1st.com/forum/202411/15/130433g9duzh4upozml4r4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241115_130100.jpg</strong> (171.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-15 13:04 上传
+
+
+*****
+
+####  maojiashu  
+##### 6895#       发表于 2024-11-15 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66701751&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-15 13:04</a>
+
+空轨re这记者会出场吧，</blockquote>
+这人出场是零碧？我对她没啥印象了
+
+
+*****
+
+####  windtrack  
+##### 6896#       发表于 2024-11-15 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66703333&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-15 16:48</a>
+
+这人出场是零碧？我对她没啥印象了</blockquote>
+好像是完全新人，除非是EVO新增的
+
+空re时间设定都是7年前，这个岁数的记者怕不是还是学生或者小孩
+
+*****
+
+####  卢迪克  
+##### 6897#       发表于 2024-11-15 16:54
+
+<blockquote>maojiashu 发表于 2024-11-15 16:48
+这人出场是零碧？我对她没啥印象了</blockquote>
+新角色，独立建模，又没剧情，不知道干嘛的。
+
+
+*****
+
+####  maojiashu  
+##### 6898#       发表于 2024-11-15 17:45
+
+哦哦 是不是零碧有个角色也是这发色 也是记者 我好像记混了
+
+
+*****
+
+####  reidel  
+##### 6899#       发表于 2024-11-16 12:07
+
+[https://dengekionline.com/article/202411/23517](https://dengekionline.com/article/202411/23517)
+
+社长又开始放屁了
+
+
+*****
+
+####  卢迪克  
+##### 6900#       发表于 2024-11-16 12:49
+
+《瓦利斯五名家》似乎是一个拥有悠久历史的家族。这个名称中包含数字，是否与伊斯卡神圣皇国的九曜众有某种关联？
+
+瓦利斯市国本来设定为一个海洋都市。从地理角度来看，它与伊斯卡神圣皇国等内陆国家应该没有直接关系。
+
+虽然因为名称中包含数字，可能让人联想到某些关联，但实际上这两者是可以分开考虑的。
+
+*****
+
+####  卢迪克  
+##### 6901#       发表于 2024-11-16 12:49
+
+应该=我没想好有没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仲可怀  
+##### 6902#       发表于 2024-11-16 12:50
+
+[https://tieba.baidu.com/p/9271540785](https://tieba.baidu.com/p/9271540785)
+
+1 界轨发售后 玩家最关心的还是后续什么时候来
+
+2 凯文在空轨SC里关于巨像的伏笔还真是刻意留下 那个时候近藤就计划把他作为共和国篇的线索人物
+
+3 让他参加野餐队是临时想出来的因为这样很有趣
+
+4 4SPG里有一些贴近现实的“黑暗”任务也不是刻意的，而是顺其自然 欧美地区玩家对这个有好评
+
+5 艾尼在最终动画里调用了8个时候对抗大重置 这是有意义的 现在具体是什么计划不能说
+
+6 序章里艾尼接到了邮件就是博士的，那个时候就开始联系了 最终下定决心是那次进入塔里
+
+7 艾尼一家母亲祖母都重复了类似的使命 苏菲早逝可能于此有关（女娲后人.JPG）
+
+8 时之至宝除了重置还有侵扰人类思想的能力 比如不让人想大陆之外的世界
+
+9 SIN值到底是如何计算 为什么闪4如果小黑赢了还会下降还请玩家自己思考 （目前不说）
+
+10 神兽应该已经存在于故事里了
+
+11 诺华蒂斯教授的事情本来不想说但是有员工认为很重要就家去了
+
+12 每次重置不是都一样的流程 会有区别 比如女仆那次就是往后延迟了 国家趋势之间也会有不同
+
+13 外的马克邦之类和现在的世界不一样的设定 不属于现在的大陆
+
+14 总统执意发动计划是为了以防万一有其他国家反对之类 碰上艾尼的生日是“巧合”？
+
+15 王者之剑落地后变成石像 是博士刻意操作的结果
+
+16 残渣有可能是复活的也有可能是上个轮回留下来的 具体要到续作才能解释
+
+17 下一部开头将会出现从未有过的大场面的和全新的理念 玩家可以从目前的故事里寻找 比如最终动画之类
+
+
+*****
+
+####  仲可怀  
+##### 6903#       发表于 2024-11-16 12:52
+
+欧美玩家评价说没想到在日式RPG里还能玩到种族QS还有LGBT方面问题的情节。
+
+
+*****
+
+####  卢迪克  
+##### 6904#       发表于 2024-11-16 12:59
+
+約2万回も繰り返されたというループ世界は、基本的には同じような流れでリセットを迎えたのでしょうか？　それとも、ループごとに振り幅が大きく、ときには文明や大陸の勢力図が大きく変わるような違いが出ていたのでしょうか。
+
+　毎回のループがまったく同じにはならなさそうですよね。
+
+　国の勢力図が書き換わるような大きな違いがあったかどうかは、次回作をお待ちいただければと思います。
+
+*****
+
+####  卢迪克  
+##### 6905#       发表于 2024-11-16 12:59
+
+19999次共和国最强，20000次那就不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 6906#       发表于 2024-11-16 13:05
+
+感觉应该不会拖两年
+
+
+*****
+
+####  Aeons  
+##### 6907#       发表于 2024-11-16 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">我只能说建议看原文
+
+
+*****
+
+####  卢迪克  
+##### 6908#       发表于 2024-11-16 13:17
+
+ 本帖最后由 卢迪克 于 2024-11-16 13:20 编辑 
+
+怎么没人问问为什么没有正式pv，毕竟这是一款只有web cm的游戏，甚至体验版都没有，黎12伊苏x这时候都上架psn商店了，很小丑了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 6909#       发表于 2024-11-16 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707744&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-11-16 13:05</a>
+
+感觉应该不会拖两年</blockquote>
+看来法社从一年一作改成一年两作，应该是3月前后、9月前后各出一部了
+
+新的迷城应该是NS2独占，最有可能预订是26年9月前后出
+
+工期顺利的话，我猜，空轨1st25年3月，界轨续集25年9月
+
+不顺利就空轨25年9月，界轨26年3月
+
+
+*****
+
+####  卢迪克  
+##### 6910#       发表于 2024-11-16 13:29
+
+ 本帖最后由 卢迪克 于 2024-11-16 13:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707870&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-16 13:24</a>
+
+看来法社从一年一作改成一年两作，应该是3月前后、9月前后各出一部，
+
+新的迷城应该是NS2年内独占，是最有 ...</blockquote>
+感觉没什么工作量，这采访都明牌下一作继续打黑之庭院，有庭院的剧情都不会多<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  センコウ  
+##### 6911#       发表于 2024-11-16 13:34
+
+说白了界2新地图最多几个迷宫,剩下都是素材,工期应该不存在啥问题
+
+
+*****
+
+####  一步成诗  
+##### 6912#       发表于 2024-11-16 13:36
+
+听君一席话，如听一席话
+
+最搞笑的还是大家猜来猜去为什么计划提前到学妹生日，社长：是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 6913#       发表于 2024-11-16 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707928&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-16 13:36</a>
+
+听君一席话，如听一席话
+
+最搞笑的还是大家猜来猜去为什么计划提前到学妹生日，社长：是巧合 ...</blockquote>
+最搞笑还是每次都复读下一作开头大事件<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 6914#       发表于 2024-11-16 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707937&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 13:38</a>
+
+最搞笑还是每次都复读下一作开头大事件</blockquote>
+黎1：黎2开头就有重大事件
+
+黎2：界开头就有重大展开
+
+界：次作开头就有前所未有的大场面
+
+狼来了次数都该用完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 6915#       发表于 2024-11-16 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707887&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 13:29</a>
+
+感觉没什么工作量，这采访都明牌下一作继续打黑之庭院，结社大部分角色都已经登场，还是共和国内的故事， ...</blockquote>
+但问题是空轨比界轨难搞吧？新地图新角色，是工期最大的不确定因素了
+
+
+*****
+
+####  卢迪克  
+##### 6916#       发表于 2024-11-16 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707973&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-16 13:44</a>
+
+但问题是空轨比界轨难搞吧？新地图新角色，是工期最大的不确定因素了</blockquote>
+是啊，界轨2横竖都是一个寄，注定不会分到资源，现有素材拼一拼<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winggg  
+##### 6917#       发表于 2024-11-16 13:47
+
+ 本帖最后由 winggg 于 2024-11-16 13:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707928&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-16 13:36</a>
+
+听君一席话，如听一席话
+
+最搞笑的还是大家猜来猜去为什么计划提前到学妹生日，社长：是巧合 ...</blockquote>
+估计后面细写推敲过后觉得原本设定的理由有逻辑漏洞，所以改了口，到续作的时候打个哈哈糊弄过去就算了（“哈哈，那是爸爸本来想在你生日那天送你的礼物。”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  一步成诗  
+##### 6918#       发表于 2024-11-16 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707989&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-16 13:47</a>
+
+估计后面细写推敲过后觉得原本设定的理由有逻辑漏洞，所以改了口，到续作的时候打个哈哈糊弄过去就算了（ ...</blockquote>
+感觉要么是社长完全甩手掌柜不管轨迹，要么就是没人告诉他，所以采访只能说出是巧合这种话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 6919#       发表于 2024-11-16 13:57
+
+近藤本来就不管轨迹剧情，除了提要求，问题都是现问的
+
+
+*****
+
+####  一步成诗  
+##### 6920#       发表于 2024-11-16 14:05
+
+下半篇采访什么时候发，让我看看还能说出什么笑话来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 6921#       发表于 2024-11-16 14:08
+
+主要感觉他这次访谈提到很多让玩家期待续作，边轨迹学边等续作，并且也知道玩家在催，没有那种类似“这部完了之后团队要调整下”之类的太极，看看下篇有没有谈到续篇相关咯
+
+*****
+
+####  Aeons  
+##### 6922#       发表于 2024-11-16 14:10
+
+经验上看三天
+
+
+*****
+
+####  Aeons  
+##### 6923#       发表于 2024-11-16 14:13
+
+这篇太侧重剧情了，像是设定集采访，以往这个时候不会是这种采访
+
+*****
+
+####  卢迪克  
+##### 6924#       发表于 2024-11-16 14:16
+
+<blockquote>Aeons 发表于 2024-11-16 14:13
+这篇太侧重剧情了，像是设定集采访，以往这个时候不会是这种采访</blockquote>
+电击征集玩家提问的
+
+
+*****
+
+####  卢迪克  
+##### 6925#       发表于 2024-11-16 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66708112&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-11-16 14:13</a>
+
+这篇太侧重剧情了，像是设定集采访，以往这个时候不会是这种采访</blockquote>
+近藤社長へあんなことやこんなことを質問。（大ボリュームとなったため）後編は明日公開予定です。
+
+*****
+
+####  cyvery  
+##### 6926#       发表于 2024-11-16 14:25
+
+工期不存在的，界比黎2多了哪些东西，除了剧情跟演出，其他说倒退不为过，地图建模都在复用减量，按照这套模式，
+
+界2要做的不过是写剧情台词做对话演出，其他全部都省了，这套模式就是falcom的舒适区，一年一作甚至两作没啥问题，就看要不要安排了。
+
+
+*****
+
+####  Aeons  
+##### 6927#       发表于 2024-11-16 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66708126&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 14:16</a>
+电击征集玩家提问的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">以前很多采访也都征集的啊，征集都可以筛的吧
+
+*****
+
+####  一步成诗  
+##### 6928#       发表于 2024-11-16 14:29
+
+　※インタビュー内容が膨大だったため、記事は前後半構成とさせていただきます。後半もすぐアップされる予定ですので、どうかしばしお待ちください！
+
+精彩的都在后篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6929#       发表于 2024-11-16 15:44
+
+ 本帖最后由 卢迪克 于 2024-11-16 15:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66707963&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-16 13:42</a>
+
+黎1：黎2开头就有重大事件
+
+黎2：界开头就有重大展开
+
+界：次作开头就有前所未有的大场面</blockquote>
+轨迹现在就是先构思开头和结尾各一个大场面，这是近藤参与，搞完就不管，中间靠注水通马桶，质量如何靠编剧本事，中间的剧情你问近藤，他表示我不道<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6930#       发表于 2024-11-16 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66708091&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-11-16 14:08</a>
+
+主要感觉他这次访谈提到很多让玩家期待续作，边轨迹学边等续作，并且也知道玩家在催，没有那种类似“这部完 ...</blockquote>
+界之轨迹皇家版堂堂发售
+
+
+*****
+
+####  ouyang菌  
+##### 6931#       发表于 2024-11-16 17:26
+
+b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202411/16/172557u36dee6ep6zeyd6d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-16 17:25 上传
+
+
+*****
+
+####  windtrack  
+##### 6932#       发表于 2024-11-16 17:37
+
+按电击采访最后一个说的，下作肯定是从黎1开始喽
+
+
+*****
+
+####  super_uni  
+##### 6933#       发表于 2024-11-16 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66693540&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-14 11:04</a>
+（手动滑稽）
+
+其实你们误会了。</blockquote>
+泥有点极端了，当心被琪雅制裁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.2.91
+
+
+*****
+
+####  flxgundam  
+##### 6934#       发表于 2024-11-16 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66709069&amp;ptid=2160194" target="_blank">ouyang菌 发表于 2024-11-16 17:26</a>
+
+b站看到了个拿学妹新造型做的mmd，感觉下作必有类似剧情</blockquote>
+学妹穿完全没感到色气，这个好涩
+
+
+*****
+
+####  洛克萨斯  
+##### 6935#       发表于 2024-11-16 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年会有股东在大会点草社长为什么明年不出界轨2么
+
+
+*****
+
+####  洛克萨斯  
+##### 6936#       发表于 2024-11-16 21:40
+
+目前我们还不能透露现在的世界中的诺华提斯是怎样的存在，但线索已经散布在各处，大家可以去找找看。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会已经出场了吧
+
+*****
+
+####  洛克萨斯  
+##### 6937#       发表于 2024-11-16 21:43
+
+不过目前的「残渣」成员仅限于与共和国相关的人物。虽然不能完全排除共和国之外的角色登场的可能性，但这毕竟是共和国篇的故事，如果再加入国外的角色就会没完没了。
+
+另外，那些人生没有遗憾、没有未尽之事的人应该不会出现在「残渣」中……比如像「剑帝」或「铁血宰相」这样的角色。这就是梅鲁奇欧出现了但杰拉尔没有出现的原因。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算你们有点良心没让菜堆诈尸
+
+
+*****
+
+####  卢迪克  
+##### 6938#       发表于 2024-11-16 21:49
+
+<blockquote>洛克萨斯 发表于 2024-11-16 21:35
+今年会有股东在大会点草社长为什么明年不出界轨2么
+
+</blockquote>
+股东每年都在问怎么又是轨迹
+
+
+*****
+
+####  smdzh2  
+##### 6939#       发表于 2024-11-16 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66710750&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-16 22:49</a>
+股东每年都在问怎么又是轨迹</blockquote>
+今年该问为什么明年没有东迷2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大暗月  
+##### 6940#       发表于 2024-11-16 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">我这几年的心态已经逐渐从“还好莱维没诈尸”变成“要不诈一诈吧”了，很怪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  Aeons  
+##### 6941#       发表于 2024-11-17 10:55
+
+后篇更是无聊的批爆
+
+
+*****
+
+####  卢迪克  
+##### 6942#       发表于 2024-11-17 11:19
+
+●《黒の庭城》などの大型アップデートの予定はありますか？　（しんまるりさん）
+
+　本作では最初から最後まで全部入れよう、という形でやっていますので、現時点では未定です。《黒の庭城》はエンドコンテンツ的なものでもありますし、できれば何か作って次回作までのつなぎにしたくはあるのですが、現状では厳しいかなと。
+
+*****
+
+####  一步成诗  
+##### 6943#       发表于 2024-11-17 11:21
+
+あまりお待たせするわけにはいかない、と考えています。ただ、その前に『空の軌跡 the 1st（仮）』を挟むため、『界の軌跡』の続編をすぐに、というのも難しい状況でして。
+
+とはいえストーリー上で何がどうなるとか、プロット自体は当然もう決まっています。
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 6944#       发表于 2024-11-17 11:31
+
+界2被空r吸干了是吧？苦境.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6945#       发表于 2024-11-17 11:51
+
+好像说构思完系列完结篇后才来写共和国结局。。。。
+
+
+*****
+
+####  hkguty  
+##### 6946#       发表于 2024-11-17 11:59
+
+有趣，还问了师姐喜不喜欢梵这样的问题，不过感觉近藤自己好像没有思考过这个问题
+
+*****
+
+####  一步成诗  
+##### 6947#       发表于 2024-11-17 12:00
+
+話はズレますが、エレインのヴァンとの関係を掘り下げるコネクトイベントも、本来なら本編でやらなければならない部分ですよね。ヴァンがなぜ甘いもの好きなのかがわかるエピソードですし……それですらコネクトに回さざるを得ない状態でした。
+
+今は結末に向けて本編で語るべき要素が本当にたくさんあって、なかなか悩ましいところです。
+
+主线水一堆也不把本来该放主线的放主线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 6948#       发表于 2024-11-17 12:04
+
+问问题的和回答的也都是神人了
+
+
+*****
+
+####  Aeons  
+##### 6949#       发表于 2024-11-17 12:49
+
+这次采访很完备，上篇设定下篇人物，除了没说范恩身上的挺到位了。
+设定集不知道讲什么了。
+
+
+*****
+
+####  卢迪克  
+##### 6950#       发表于 2024-11-17 14:08
+
+<blockquote>一步成诗 发表于 2024-11-17 12:00
+話はズレますが、エレインのヴァンとの関係を掘り下げるコネクトイベントも、本来なら本編でやらなければな ...</blockquote>
+黎2就干了
+
+
+*****
+
+####  liuguokobe  
+##### 6951#       发表于 2024-11-17 14:56
+
+磨磨唧唧130+小时通了（之前有段时间开机就光打扑克来换饰品），现在开始二周目整LGC进度了。怎么说呢，这前面龟速三章最后光速展开真的很难绷。还有van线这虽然流程上最长但是和主线计划也是最无关的也真是令人无语<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 6952#       发表于 2024-11-18 11:04
+
+看了下七星说剧本没编完极有可能改动所以整篇访谈就只能模糊太极免得日后被打脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是你法
+
+*****
+
+####  红魔馆的糖  
+##### 6953#       发表于 2024-11-18 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66714440&amp;ptid=2160194" target="_blank">liuguokobe 发表于 2024-11-17 14:56</a>
+磨磨唧唧130+小时通了（之前有段时间开机就光打扑克来换饰品），现在开始二周目整LGC进度了。怎么说呢，这 ...</blockquote>
+有一说一  这三条线的主角团做的事情通通屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6954#       发表于 2024-11-18 11:11
+
+黎2的设定本的也对不上啊<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 6955#       发表于 2024-11-18 11:11
+
+股东还在意你出什么吗 股东只会问怎么今年又这点 明年能不能涨
+
+*****
+
+####  洛克萨斯  
+##### 6956#       发表于 2024-11-18 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719659&amp;ptid=2160194" target="_blank">红魔馆的糖 发表于 2024-11-18 11:06</a>
+
+有一说一  这三条线的主角团做的事情通通屁用没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所长要是同意表白没准就改变历史了，不能说屁用没有，另外两条线对主线确实没啥干涉
+
+
+*****
+
+####  卢迪克  
+##### 6957#       发表于 2024-11-18 13:21
+
+ 本帖最后由 卢迪克 于 2024-11-18 13:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719642&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-18 11:04</a>
+
+看了下七星说剧本没编完极有可能改动所以整篇访谈就只能模糊太极免得日后被打脸不愧是你法 ...</blockquote>
+界2的剧情走向要根据正在构思的系列完结篇进行一点调整，他定下后才会开始写剧本
+
+故事情节的走向和大致的剧情框架早已确定
+
+接下来要做的事情是，一边制作《空之轨迹 the 1st》，一边开始思考《轨迹》系列完结篇的内容。在决定完结篇的方向后，我们也会对现有的剧情进行一些调整，最终确定共和国篇的结局。从这一点开始，我们就能正式启动制作了。
+
+
+*****
+
+####  hguandl  
+##### 6958#       发表于 2024-11-18 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66710665&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-11-16 21:35</a>
+
+今年会有股东在大会点草社长为什么明年不出界轨2么</blockquote>
+有人发现ED里塔上出现的8个表的指针位置和黑色庭园的攻略进度相关，不同进度的不一样
+
+
+*****
+
+####  仲可怀  
+##### 6959#       发表于 2024-11-18 14:14
+
+有来源吗 
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  hguandl  
+##### 6960#       发表于 2024-11-18 14:24
+
+[https://www.youtube.com/watch?v=TAJDtl61TUA](https://www.youtube.com/watch?v=TAJDtl61TUA)
+
+<img src="https://img.saraba1st.com/forum/202411/18/142307hdczylilrfigxesi.png" referrerpolicy="no-referrer">
+
+<strong>{AD348670-642E-25A8-4331-442A2DF796CE}.png</strong> (166.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+ED播到这个画面的表针是静止的。群友找了几张图，都不一样
+
+<img src="https://img.saraba1st.com/forum/202411/18/142307r9o8mtoq1k23188t.png" referrerpolicy="no-referrer">
+
+<strong>{38605F3D-93DA-E1F2-D73C-BD497E946413}.png</strong> (477.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202411/18/142308ik462n44d722476s.jpg" referrerpolicy="no-referrer">
+
+<strong>{AE86AC79-6383-3DAD-E2AF-F74C1E5CCDB2}.jpg</strong> (660.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202411/18/142307gccv22svbvbcpbrz.jpg" referrerpolicy="no-referrer">
+
+<strong>{AC962CC6-3654-C74E-BA6F-F3FBC181F583}.jpg</strong> (570.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-18 14:23 上传
+
+
+*****
+
+####  妄想中毒  
+##### 6961#       发表于 2024-11-18 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66719642&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-11-18 11:04</a>
+看了下七星说剧本没编完极有可能改动所以整篇访谈就只能模糊太极免得日后被打脸不愧是你法 ...</blockquote>
+有哪次访谈不是打太极吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yth329  
+##### 6962#       发表于 2024-11-19 09:48
+
+终于开始打这部了，有好的攻略wiki站推荐吗
+
+
+*****
+
+####  洛克萨斯  
+##### 6963#       发表于 2024-11-19 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726368&amp;ptid=2160194" target="_blank">yth329 发表于 2024-11-19 09:48</a>
+
+终于开始打这部了，有好的攻略wiki站推荐吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去界轨贴吧看虚空大佬的白金攻略，轨迹系列最好的攻略制作者
+
+
+*****
+
+####  红魔馆的糖  
+##### 6964#       发表于 2024-11-19 10:15
+
+虚空的用的贴吧排版太难受了，去轨迹cafe吧，发售这么久估计攻略和wiki都整理好了。
+
+
+*****
+
+####  椎名mahuyo  
+##### 6965#       发表于 2024-11-19 10:36
+
+[https://kamikouryaku.net/](https://kamikouryaku.net/) 神攻略够用了
+
+
+*****
+
+####  卢迪克  
+##### 6966#       发表于 2024-11-19 11:18
+
+帝国四大贵族，皇国九曜众，瓦利斯五名家，说起来共和国居然没有设定数字xxxx<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winggg  
+##### 6967#       发表于 2024-11-19 11:23
+
+<blockquote>卢迪克 发表于 2024-11-19 11:18
+帝国四大贵族，皇国九曜众，瓦利斯五名家，说起来共和国居然没有设定数字xxxx ...</blockquote>
+带上眼镜仔亚尔贝尔在内，那叫爱的五边形
+
+
+*****
+
+####  洛克萨斯  
+##### 6968#       发表于 2024-11-19 13:51
+
+<img src="https://img.saraba1st.com/forum/202411/19/135055uxeaxyjnjbyfk8jn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-19 13:50 上传
+
+明年目标就是百亿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 6969#       发表于 2024-11-19 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66726368&amp;ptid=2160194" target="_blank">yth329 发表于 2024-11-19 09:48</a>
+终于开始打这部了，有好的攻略wiki站推荐吗</blockquote>
+https://trails-game.com/walkthrough/kai-walkthrough/
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 6970#       发表于 2024-11-19 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我记得法老控之前几部都有大佬在PSNINE写攻略，这次没了？
+
+
+*****
+
+####  liuguokobe  
+##### 6971#       发表于 2024-11-19 19:43
+
+攻略的话我用的是这个[https://docs.qq.com/aio/DRWF1YVh ... 2C6TqWi1L9eslUpY9Tw](https://docs.qq.com/aio/DRWF1YVhtZFBwVkpC?p=W7w2C6TqWi1L9eslUpY9Tw)，贴吧那个太碎了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+其实现在的轨迹除了选项的时候基本也不用攻略了，买东西都给你标new了
+
+
+*****
+
+####  corenel  
+##### 6972#       发表于 2024-11-19 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66729024&amp;ptid=2160194" target="_blank">折中旗帜鲜明 发表于 2024-11-19 14:51</a>
+我记得法老控之前几部都有大佬在PSNINE写攻略，这次没了？</blockquote>
+psn0 上有大佬写
+
+[https://psn0.com/post/158](https://psn0.com/post/158)
+
+
+*****
+
+####  kenqqex  
+##### 6973#       发表于 2024-11-20 10:18
+
+<img src="https://img.saraba1st.com/forum/202411/20/101759qv5u6udw54qw6hmp.png" referrerpolicy="no-referrer">
+
+<strong>C}K7W19DKA40INC55`X9QMB.png</strong> (145.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-20 10:17 上传
+
+
+*****
+
+####  洛克萨斯  
+##### 6974#       发表于 2024-11-20 11:16
+
+顺带一提，静名对范恩是否抱有恋爱情感？
+
+对静名来说，与其说是恋爱，不如说是出于好奇心和个人的兴趣更为贴切。
+
+在故事的最后，她选择加入解决事务所的成员，而不是与黎恩对决，这显示她本能地感觉到范恩身上有某些特别的东西，对此充满了浓厚的兴趣。至于是否真的存在恋爱情感，目前还无法确定。或许……真的有吧。
+
+曾经被静名折断太刀的黎恩，现在的剑术水平与静名相比，有多大的进步呢？
+
+「谁是最强的？」这种问题，经常有海外媒体提出，不过确实不太好回答。目前来说，即使静名可能稍占上风，但之前她折断黎恩太刀的情况是，在黎恩抵挡住黑铁猛攻之后遭到了突袭。
+
+如果是光明正大的对决，黎恩的太刀应该不会被折断。再考虑到黎恩的成长速度和潜力，两人之间的差距确实在逐渐缩小。
+
+即使对于静名来说，她也还在追求自我的道路上。在与范恩等人的相遇后，她也有了成长的部分。可以说，黎恩和静名双方都在成长，同时彼此之间的差距也在逐渐缩小，这样的印象吧。
+
+关于《黑月》，高兰竟然向莉夏示好？
+
+那是突然的求婚啊（笑）。至于莉夏的心意……攻略王——不，克洛斯贝尔篇的主角罗伊德到底心系何处还真不清楚，未来会如何发展呢？
+
+说到罗伊德，本作中他在安卡维尔工作的叔叔登场了，而艾莉的父亲也以外交官的身份活跃着。
+
+早就提到过罗伊德有亲戚在共和国，而艾莉除了父亲之外，也有她留学时期的朋友登场。
+
+这种跨越多国的关係描写，正是《轨迹》系列的魅力所在。
+
+不过，儘管有相关人物登场，但下部作品是否会出现罗伊德等人还不确定。
+
+毕竟他们作为克洛斯贝尔警察的工作仍是首要任务，相较于黎恩等人，他们的行动还是受职责限制较多。
+
+目前未登场的魔王，是否有计划登场？
+
+无法保证全部魔王都会登场，但就现有情况而言，某些魔王出现也并非不可能。
+
+《盟主》的美丽声音由哪位声优担当？
+
+由于《盟主》这个角色的身份神秘，我们每次都会请不同的声优担任并避免公开。但本作我们可以透露，这次是由担任阿尔缇娜角色的水濑祈小姐兼任的。事实上，《创之轨迹》中也是由水濑祈小姐配音。
+
+不过需要明确的是，《盟主》的真正身份并非阿尔缇娜。
+
+在《界之轨迹》中揭示的怪盗“格里姆猫”诞生经历中，那套服装的设计是谁的创意？是爱普斯泰恩博士的趣味吗？
+
+这套服装的设计并不是出自爱普斯泰恩博士之手。根据设定，服装的设计来源于《幻夜的手册》使用者对怪盗形象的想像具现化。因此，像多米尼克、克洛艾和朱蒂丝三人的服装设计就各不相同。
+
+（博士的名誉保住了）
+
+
+*****
+
+####  卢迪克  
+##### 6975#       发表于 2024-11-20 14:00
+
+ 本帖最后由 卢迪克 于 2024-11-20 14:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66728548&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-11-19 13:51</a>
+
+明年目标就是百亿了</blockquote>
+2021  q4 制品部门5.07亿  黎轨
+
+2022  q4 制品部门5.08亿  黎轨2+黎轨ps5
+
+2023  q4 制品部门4.56亿  伊苏10
+
+2024  q4  制品部门4.67亿  界轨+黎轨2 ns
+
+这是你轨新作第一次首发打不过伊苏<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 6976#       发表于 2024-11-20 14:03
+
+干脆以后盟主CV让你法粉丝投票得了，投谁用谁 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秘银mithril  
+##### 6977#       发表于 2024-11-20 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66735302&amp;ptid=2160194" target="_blank">kenqqex 发表于 2024-11-20 10:18</a></blockquote>
+我也一直这种感觉……每章节换一群人盯着你，真的很渗人
+
+
+*****
+
+####  bladethunder  
+##### 6978#       发表于 2024-11-20 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PC版when
+
+
+*****
+
+####  byisme001  
+##### 6979#       发表于 2024-11-21 09:49
+
+那本小说和亚妮完全没关系为什么最后会送吊坠给亚妮 小说是亚妮妈写的?
+
+
+*****
+
+####  仲可怀  
+##### 6980#       发表于 2024-11-21 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66742870&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-11-21 09:49</a>
+
+那本小说和亚妮完全没关系为什么最后会送吊坠给亚妮 小说是亚妮妈写的?</blockquote>
+最新访谈 这个支线故事还没有结束 会有后续 本质和亚妮的真实身份有关
+
+
+*****
+
+####  Aeons  
+##### 6981#       发表于 2024-11-21 09:58
+
+ 本帖最后由 Aeons 于 2024-11-21 10:00 编辑 
+
+这个设定安排的最大问题就是前三作中，学妹一家跟安卡维尔没有一毛钱关系。
+
+如今要在续作补充，和张口就来，指鹿为马没什么区别
+
+
+*****
+
+####  hourousha  
+##### 6982#       发表于 2024-11-21 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66742970&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-11-21 09:58</a>
+
+这个设定安排的最大问题就是前三作中，学妹一家跟安卡维尔没有一毛钱关系。
+
+如今要在续作补充，和张口就来 ...</blockquote>
+好不容易做个新城镇填点剧情进去,倒也没什么不能理解.
+
+你觉得有问题,是轨迹这种一个故事(比如共和国)拖拖拆拆造成的,你设想一下如果是一作的中后期加入了一个之前没有的设定,那就属于非常正常而不会让人觉得突兀了不是.
+
+
+*****
+
+####  Squall25  
+##### 6983#       发表于 2024-11-21 11:54
+
+难道这个最大的问题不是黎1的时候近藤明说了小说跟学妹没关系，同名纯属巧合，现在界轨突兀的说有关系很搞笑吗？这也是为什么七星直接明说近藤采访当放屁的事情。以前采访都当设定补充的，结果界轨连吃好几个书。假设近藤在第五层，我们高估他一下，学妹这个说没关系是为了藏，那盖乌斯不知道狮子假死的事情吃书又是图啥？
+
+
+*****
+
+####  Aeons  
+##### 6984#       发表于 2024-11-21 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66743875&amp;ptid=2160194" target="_blank">hourousha 发表于 2024-11-21 11:41</a>
+好不容易做个新城镇填点剧情进去,倒也没什么不能理解.
+
+你觉得有问题,是轨迹这种一个故事(比如共和国)拖拖 ...</blockquote>
+？黎一可是明说同名与剧情无关的。
+学妹又不是没来过安卡维尔，属于是半点关系没有，女仆这种有关系的是什么描写？
+
+
+*****
+
+####  卢迪克  
+##### 6985#       发表于 2024-11-21 12:20
+
+现在都是现编的。哪来伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hourousha  
+##### 6986#       发表于 2024-11-21 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66744061&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-11-21 12:02</a>
+
+？黎一可是明说同名与剧情无关的，前后不一怎么说的好像是玩家的问题？
+
+而且学妹又不是没来过安卡维尔， ...</blockquote>
+没说是玩家的问题啊,我说了是falcom的问题嘛,一个故事拖长拆开,那往里填东西就是必要的,而如果故事拖得过长,产生前后矛盾开始吃书也就不足为奇了.
+
+而且说实在的,也不见得就一定会产生矛盾,这东西不就看怎么编嘛.黎1里最后魔王说学妹是'傀儡',但到底是怎么个傀儡也没揭开,界里又提到了女仆是未来人圣女是外界人,所以这个'有关系'到底是什么程度的有关系也没确定不是? 外界的,不同时间线的,初始设计参考的等等,有不同的编法嘛
+
+
+*****
+
+####  Aeons  
+##### 6987#       发表于 2024-11-21 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66744294&amp;ptid=2160194" target="_blank">hourousha 发表于 2024-11-21 12:32</a>
+
+没说是玩家的问题啊,我说了是falcom的问题嘛,一个故事拖长拆开,那往里填东西就是必要的,而如果故事拖得过 ...</blockquote>
+不是，你吃空零碧书我勉强能理解，一两年一作也能叫拖得过长，不得不吃书吗？
+
+每一作都吃上一作的书，与其说是吃书不如说是现编？
+
+顺带魔王说的是絡繰，傀儡人形是不会只用这个词的，只能是装置，也就是创世。
+
+
+*****
+
+####  一步成诗  
+##### 6988#       发表于 2024-11-21 13:36
+
+别问，问就是笔在编剧手上，编剧是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蔺无双  
+##### 6989#       发表于 2024-11-21 13:39
+
+师姐这算是明示加入战场了吧，算下来共和国魅魔这边只有五个吧，哪怕加上玲也就勉强六个，比起帝国桃花剑还是少太多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 6990#       发表于 2024-11-21 13:40
+
+黎1的时候还说范恩是人类，界轨看来到底是不是也不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 6991#       发表于 2024-11-21 13:55
+
+ 本帖最后由 卢迪克 于 2024-11-21 13:58 编辑 
+
+黎1斑鸠他们还说自己和九曜起源不同呢，界轨斑鸠忍者直接在那复读九曜使命，黑铁搁那甩九曜降魔印<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 6992#       发表于 2024-11-21 15:57
+
+可能他们觉得自己这种先否定然后再推翻做进游戏里面的点子特别妙吧，惊不惊喜意不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 6993#       发表于 2024-11-21 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66744778&amp;ptid=2160194" target="_blank">蔺无双 发表于 2024-11-21 13:39</a>
+
+师姐这算是明示加入战场了吧，算下来共和国魅魔这边只有五个吧，哪怕加上玲也就勉强六个，比起帝国桃花剑还 ...</blockquote>
+学妹，剑女，妹抖，猫女，跳舞姐，玲，师姐，虽然也就7个，根本不能和桃花剑相提并论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Squall25  
+##### 6994#       发表于 2024-11-21 16:40
+
+其实我之前很怀疑近藤压根这几年没关心轨迹剧情了，让几个编剧自己去搞了，所以很多采访才会这样前后矛盾。如果说现编的问题的话，有些地方还是圆不了。比如黎1里菲羁绊明确了把阿伊达遗物快递回去了，结果近藤采访又说ed回帝国是为了送遗物，送完就回共和国，那你羁绊寄快递不是寄了个寂寞？
+
+
+*****
+
+####  liuguokobe  
+##### 6995#       发表于 2024-11-21 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66746180&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-11-21 16:16</a>
+
+学妹，剑女，妹抖，猫女，跳舞姐，玲，师姐，虽然也就7个，根本不能和桃花剑相提并论 ...</blockquote>
+ts大学生也可以算啊
+
+
+*****
+
+####  洛克萨斯  
+##### 6996#       发表于 2024-11-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748825&amp;ptid=2160194" target="_blank">liuguokobe 发表于 2024-11-21 22:11</a>
+
+ts大学生也可以算啊</blockquote>
+以学妹的雷达为准啊，不然我连妮娜都想算进去
+
+
+*****
+
+####  liuguokobe  
+##### 6997#       发表于 2024-11-21 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66748919&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-11-21 22:29</a>
+
+以学妹的雷达为准啊，不然我连妮娜都想算进去</blockquote>
+认真说的话其实如果下一作存活的话艾米莉亚是可以算进去的
+
+
+*****
+
+####  Aeons  
+##### 6998#       发表于 2024-11-22 00:51
+
+因为近藤采访时会装作很懂，其实都是他编的。
+黎二的时候设定集有个问题就很明显，问题中的事情是完全不存在的，可能是问错了，近藤直接说嗯对的，是有伏笔的。
+
+
+*****
+
+####  黒鈴ミヲ  
+##### 6999#       发表于 2024-11-22 01:04
+
+哎呀，吃吃书嘛，多大点事儿，他能不烂尾我都烧高香了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liuguokobe  
+##### 7000#       发表于 2024-11-22 02:14
+
+只有新作发布前半年的关于新作的采访才可能有点价值，现在的采访纯粹是社长打太极放屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新世界的派蒙  
+##### 7001#       发表于 2024-11-22 02:24
+
+界之轨迹悄悄更新，画质模式30帧限制去除，pro可以跑55帧左右.....
+
+*****
+
+####  卢迪克  
+##### 7002#       发表于 2024-11-22 12:56
+
+打折了，界轨滞销救一救阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 7003#       发表于 2024-11-22 14:01
+
+别尬黑，其他大厂也折了，说起来你法之前新作有折这么快的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 7004#       发表于 2024-11-22 14:28
+
+1.09战斗系统变化
+
+1. 魔法：巨鲸和触手削弱，神圣不死鸟和巨石之拳强化
+
+2.火娃新增特效火属性追击，和之前有区别的是原本是对结冰对象进行魔法攻击（破防值会乘以2计算强化满级后等于60的破防值）更新后变更为对结冰的敌人进行魔法追击（破防值不变了），新超人一号
+
+3.丽霞S技 新增特效（幻属性追击），打桩水平直接到了黎恩，猫女和葱头一档了，超人二号
+
+4.葱头修复了之前版本S技可能吃不到武器链的技能 XX冲击，或者吞时属性追击伤害的BUG
+
+5.魔法流使用攻击型魔法之后可以触发防御栏自动防御的晶片技能，能动了之后相当于肉度翻倍了
+
+6.其他角色有一些小加强
+
+*****
+
+####  卢迪克  
+##### 7005#       发表于 2024-11-22 14:48
+
+之前都是12月底打折
+
+*****
+
+####  新世界的派蒙  
+##### 7006#       发表于 2024-11-22 14:54
+
+丽霞只能说加强到T2吧，还比不过加上后的阿龙，少一个面板buff是比不上神气和圣痕那批人的，茱蒂丝也有魔伤追加12hit的战技
+不过有爱就行了
+
+*****
+
+####  6030sylar  
+##### 7007#       发表于 2024-11-22 15:05
+
+<img src="https://img.saraba1st.com/forum/202411/22/150452h21s2x70weg60ezx.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f89b8a5767a0873bc53adecc09675a6c.webp</strong> (14.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-22 15:04 上传
+
+那女人把克洛学长打倒在地（
+
+*****
+
+####  洛克萨斯  
+##### 7008#       发表于 2024-11-22 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66753543&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-11-22 14:54</a>
+
+丽霞只能说加强到T2吧，还比不过加上后的阿龙，少一个面板buff是比不上神气和圣痕那批人的，茱蒂丝也有魔伤 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想念创轨月光蝶隐身的一刀超人了，这么好的buff为啥要删
+
+*****
+
+####  妄想中毒  
+##### 7009#       发表于 2024-11-22 18:14
+
+ 本帖最后由 妄想中毒 于 2024-11-22 18:27 编辑 
+
+说起来冰火娃这俩人设真是土到掉渣，放二十年都属于烂大街水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 7010#       发表于 2024-11-22 20:24
+
+ 本帖最后由 卢迪克 于 2024-11-22 20:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66755528&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-11-22 18:14</a>
+
+说起来冰火娃这俩人设真是土到掉渣，放二十年都属于烂大街水平</blockquote>
+未来会更严重，只剩下最后一个篇章，结社和教会那些人会挤在这个篇章一起登场，随从骑士都不会有了，如果考虑东大路灵脉枯竭，拖鞋都能省了反正飞不起来学狮子开机车吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liuguokobe  
+##### 7011#       发表于 2024-11-24 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66756453&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-22 20:24</a>
+
+未来会更严重，只剩下最后一个篇章，结社和教会那些人会挤在这个篇章一起登场，随从骑士都不会有了，如果 ...</blockquote>
+开什么机车，开我们最新最火的导力**啊
+
+
+*****
+
+####  yongze  
+##### 7012#       发表于 2024-11-25 00:50
+
+不是吧，这界轨如果第二章最后一节没有找维克多做蒙马特的工作餐直到最终章后面就再也没机会了？后悔开局用本来就不多的魔兽精华做了一个自制料理结果我不够了就没找老板做，结果后面出了蒙马特就强制剧情不让我进蒙马特了，查了下终章视频攻略好像也是直接剧情强制拉到中央区然后不给任何机会回旧市街了？那我岂不是少了一个料理，真的对轨迹系列还维持这种错过无法挽回的元素无语，各种方面的防不胜防
+
+
+*****
+
+####  woeiqp00  
+##### 7013#       发表于 2024-11-25 09:54
+
+一百小时全对话除了钓鱼全支线终于通了，最累的一部轨迹，没研究过配装没有鲸鱼逃课。
+
+好在最后是挺大的，但也咚了个大的，这一想至少得等两年有点意难平。
+
+基友是选择了最稳健的打法啊，么得一丝感情。但不明白为什么要跟众人打一架，一开始还以为是跳反了啥的，明明直接跑就完事了，主角团又不会瞬移。
+
+
+*****
+
+####  无动于衷  
+##### 7014#       发表于 2024-11-25 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768140&amp;ptid=2160194" target="_blank">woeiqp00 发表于 2024-11-25 09:54</a>
+
+一百小时全对话除了钓鱼全支线终于通了，最累的一部轨迹，没研究过配装没有鲸鱼逃课。
+
+好在最后是挺大的， ...</blockquote>
+最惨的难道不是大总统吗，折腾来折腾去除了快递老妹和她爹之外身边的全是二五仔没一个不反水的
+
+
+*****
+
+####  plok201  
+##### 7015#       发表于 2024-11-25 10:32
+
+大总统还好吧，一圈二五仔虽然有自己的小九九，但基本上也算全力支持他那个计划了
+
+
+*****
+
+####  宛若青空  
+##### 7016#       发表于 2024-11-25 13:17
+
+界轨居然还藏了首神藤的曲子，这首确实真的太有突入刻之至宝后的迷宫BGM的感觉了
+
+希望能保留到下一作，然后下一作神藤含量高一些（神藤拯救法老控音乐<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hourousha  
+##### 7017#       发表于 2024-11-25 13:55
+
+大统领主要是落差比较狠，创轨出场就骇进结社首脑会议，让人以为是个不说超越宰相，起码也是半斤八两的狠角色。黎界里直到最后之前也算B格保持得还行，结果……
+
+细想想撇开人品动机不谈，就计划能力也没比克州金毛强太多，都是预案不足，一厢情愿居多。
+
+
+*****
+
+####  maojiashu  
+##### 7018#       发表于 2024-11-25 15:03
+
+宰相那还是宰相吗 又是附身又是转世的 早就不是个人了
+
+真是可惜了宰相这个人设 最后写成了这个样子
+
+
+*****
+
+####  woeiqp00  
+##### 7019#       发表于 2024-11-25 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768371&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-25 10:18</a>
+最惨的难道不是大总统吗，折腾来折腾去除了快递老妹和她爹之外身边的全是二五仔没一个不反水的 ...</blockquote>
+大总统跟快递妹，相比那群怪力乱神的家伙，至少作为一个人类，能构筑这样的计划并实施到这个地步，我觉得已经是成功了，第一部的时候我还不指望这个角色能做出这样的成绩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hourousha  
+##### 7020#       发表于 2024-11-25 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66770767&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-25 15:03</a>
+
+宰相那还是宰相吗 又是附身又是转世的 早就不是个人了
+
+真是可惜了宰相这个人设 最后写成了这个样子 ...</blockquote>
+闪轨神棍化确实一言难尽，但宰相好歹算是神棍化后吃瘪较少的。
+
+换句话说，在轨迹已经神神叨叨越拖越长的情况下，法老控有没有再把正常人类作为‘次要角色垫脚石’外描写出彩的能力，值得怀疑。
+
+
+*****
+
+####  苏斯赫查  
+##### 7021#       发表于 2024-11-25 16:09
+
+总统的计划又没问题，雷盖伦之箱能把自己也重启谁能想到<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  宛若青空  
+##### 7022#       发表于 2024-11-25 16:22
+
+实际上我玩到那的时候是也在想要是时至宝直接把自己回溯了怎么办？看被核弹炸成那样了后面真的这样时，我反而觉得大总统他们应该是有想到这个问题的，但想到不代表有解决办法，或者说他们的办法就是再炸几次，所以准备了那么多核弹；无论如何他们只能硬着头皮上去。
+大总统的计划确实可以说是集目前人类最大力量来对抗时至宝了，实际上时至宝就算回溯猴也明显是有两角没恢复出来，说明可能真的多炸几次说不定真的有用呢？
+当然我觉得最意外的是谁能想到时至宝能召唤伪钢骑出来啊，这还怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 7023#       发表于 2024-11-25 16:38
+
+同样是解决世界危机兼救孩子 感觉总统这个炸他娘的还是比宰相的大地之龙靠谱些
+
+*****
+
+####  hourousha  
+##### 7024#       发表于 2024-11-25 16:39
+
+空至宝是怀斯曼瞎搞融合，但还是靠莱维的剑才破的防。
+
+零至宝是人造至宝，本来就不稳定放着不管也会崩坏，最后还是一定程度靠嘴炮。
+
+钢至宝两边一堆不死人，还有地精魔女掺和。
+
+换句话说，至宝这玩意，从之前已有的例子来看本来就不是光靠一般人类就能解决的，大统领本身也是知到这些信息的吧……
+
+
+*****
+
+####  aimujie  
+##### 7025#       发表于 2024-11-25 17:01
+
+居然还会有平衡性调整...
+
+
+*****
+
+####  Aeons  
+##### 7026#       发表于 2024-11-25 17:19
+
+所谓例子都是剧情需要而已，量级论来看，之前能打死的boss，一千倍氢弹凭什么打不死？
+再说boss体量，以前的boss多大，时至宝边长500多米，怎么打？未来要解决也不会是打这个盒子
+
+
+*****
+
+####  妄想中毒  
+##### 7027#       发表于 2024-11-25 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66768140&amp;ptid=2160194" target="_blank">woeiqp00 发表于 2024-11-25 09:54</a>
+一百小时全对话除了钓鱼全支线终于通了，最累的一部轨迹，没研究过配装没有鲸鱼逃课。
+
+好在最后是挺大的， ...</blockquote>
+问就游戏性需要，虽然不打也完全对剧情没影响，但是你能接受界的最终boss是前面打的那几个老面孔吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyreder  
+##### 7028#       发表于 2024-11-25 18:39
+
+就是不知道这次回溯是多久以前，三天前界轨开场？那这周目不也是一场空嘛，别告诉我直接跳到黎一黎二了，感觉界二开场的时间点也挺微妙的
+
+
+*****
+
+####  woeiqp00  
+##### 7029#       发表于 2024-11-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772341&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-11-25 18:01</a>
+问就游戏性需要，虽然不打也完全对剧情没影响，但是你能接受界的最终boss是前面打的那几个老面孔吗 ...</blockquote>
+让我多开会高达打到退场，后面全cg放剧情就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  sephal  
+##### 7030#       发表于 2024-11-26 01:26
+
+终于通了，之前一直不理解为啥给梵弄个魔王宿体的设定，到结尾终于明白了，魔王加八创世应该就是界2解题的答案
+
+
+*****
+
+####  winggg  
+##### 7031#       发表于 2024-11-26 01:34
+
+ 本帖最后由 winggg 于 2024-11-26 01:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66772581&amp;ptid=2160194" target="_blank">flyreder 发表于 2024-11-25 18:39</a>
+
+就是不知道这次回溯是多久以前，三天前界轨开场？那这周目不也是一场空嘛，别告诉我直接跳到黎一黎二了，感 ...</blockquote>
+从ed猜，应该是回到黎一开始，敲事务所门的变成菲莉、玲或者剑女，然后快速过一遍黎轨的时间线（大约半章到一章的篇幅？），区别是其中没有亚妮艾丝存在。
+
+按套路来说，就是主角团从中觉得日常生活的不协调，总觉得其中缺少了什么这种公式台词，然后触发了某个契机后，梦回闪轨4式的开头——“黎恩教官~~”那样
+
+
+*****
+
+####  Aeons  
+##### 7032#       发表于 2024-11-26 04:05
+
+实话说我不觉得能跳回去很久，可能是没多久但另类的修改回溯。
+
+回溯太长抹消历史属于是不“思路正确”的，基本是不可能写出这样的剧情的，只有像黎二那样中间全是烂事且短的回溯才无所谓
+
+
+*****
+
+####  aimujie  
+##### 7033#       发表于 2024-11-26 08:32
+
+按ed应该是黎1开头，没了学妹找上门这个契机
+
+
+*****
+
+####  一步成诗  
+##### 7034#       发表于 2024-11-26 08:45
+
+传回黎1又再走一遍流程太难绷了，干脆学闪4在最终迷宫门口放个传送打打试炼得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 7035#       发表于 2024-11-26 09:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你法那抠门劲肯定要素材复用啊，大概率是黎1开头的
+
+
+*****
+
+####  byisme001  
+##### 7036#       发表于 2024-11-26 10:10
+
+都已经安排好了啊 就用残渣那些人扮演各章节boss 重走西游不是重走找表路
+
+
+*****
+
+####  卢迪克  
+##### 7037#       发表于 2024-11-26 11:01
+
+不可能回到黎1的，那时候赛法一些系统都没开发出来呢
+
+
+*****
+
+####  无动于衷  
+##### 7038#       发表于 2024-11-26 11:15
+
+<blockquote>卢迪克 发表于 2024-11-26 11:01
+不可能回到黎1的，那时候赛法一些系统都没开发出来呢</blockquote>
+结尾有个细节，有个npc手里的手机直接消失了
+
+
+*****
+
+####  一步成诗  
+##### 7039#       发表于 2024-11-26 11:21
+
+手机消失了也可能是前几天刚买的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 7040#       发表于 2024-11-26 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777054&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-26 11:15</a>
+
+结尾有个细节，有个npc手里的手机直接消失了</blockquote>
+但界2肯定复用界系统啊
+
+
+*****
+
+####  卢迪克  
+##### 7041#       发表于 2024-11-26 11:32
+
+虽说近藤表示空轨是界轨系统的升级版，并会对回路系统进行简化。界2系统还不知道用界还是空的
+
+
+*****
+
+####  plok201  
+##### 7042#       发表于 2024-11-26 11:35
+
+你法为了复用，连情报贩子都给你复活了，这次没出场的恐惧哥估计留给下一作了
+
+前3章应该是跑没有创世的黎1黎2加界的前半段，间章回忆起一切，因为没有创世，甚至黎2都直接给你跳了，大家在学校看着唱歌跳舞开始落泪呗
+
+*****
+
+####  卢迪克  
+##### 7043#       发表于 2024-11-26 11:37
+
+界2肯定复用最严重的，毕竟同年还有京迷，界2能分到多少资源呢。
+
+
+*****
+
+####  lower  
+##### 7044#       发表于 2024-11-26 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66775112&amp;ptid=2160194" target="_blank">winggg 发表于 2024-11-26 01:34</a>
+
+从ed猜，应该是回到黎一开始，但敲事务所门，提出委托的人变成菲莉、玲或者剑女，然后快速过一遍黎轨的时 ...</blockquote>
+最怕的就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yth329  
+##### 7045#       发表于 2024-11-26 11:58
+
+这作一周目能完美全满好感度吗，有啥要注意的
+
+
+*****
+
+####  winggg  
+##### 7046#       发表于 2024-11-26 12:08
+
+<blockquote>yth329 发表于 2024-11-26 11:58
+这作一周目能完美全满好感度吗，有啥要注意的</blockquote>
+在庭园稍微刷一下，再送礼物应该能满。
+
+我一周目最后就师姐和玲（蕾恩）缺了一点点好感，其他人都有溢出。
+
+看电影时尽量能带师姐，玲和剑女就尽量带，应该就完美了。
+
+
+*****
+
+####  苏斯赫查  
+##### 7047#       发表于 2024-11-26 12:30
+
+本来要回溯，被埃尼亚斯给拦截了啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+*****
+
+####  椎名mahuyo  
+##### 7048#       发表于 2024-11-26 12:35
+
+满好感很容易，但是要白金因为LGC系统再怎么也要两周目很屎
+
+
+*****
+
+####  卢迪克  
+##### 7049#       发表于 2024-11-26 13:21
+
+ 本帖最后由 卢迪克 于 2024-11-26 13:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66771461&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-11-25 16:22</a>
+
+实际上我玩到那的时候是也在想要是时至宝直接把自己回溯了怎么办？看被核弹炸成那样了后面真的这样时，我反 ...</blockquote>
+比较自大，为了不让其他西大陆诸国察觉自己的意图，还用东方文化来给计划命名，除了有圣典可以看的法典国就只有东大陆的国家能知道他意图，但他和西大陆没有外交关系也不会说。
+
+成了不仅救了女儿还能让共和国成为大陆霸主。
+
+
+*****
+
+####  妄想中毒  
+##### 7050#       发表于 2024-11-26 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777289&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-26 11:37</a>
+界2肯定复用最严重的，毕竟同年还有京迷，界2能分到多少资源呢。</blockquote>
+你法近十年都是稳定一年一部游戏，东轨和界2根本不可能同一年出，你这担心就是多余的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 7051#       发表于 2024-11-26 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66777243&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-26 11:32</a>
+
+虽说近藤表示空轨是界轨系统的升级版，并会对回路系统进行简化。界2系统还不知道用界还是空的 ...</blockquote>
+空轨EVO就已经把导力器规制改过一次了
+
+但是黎轨的晶片散布这都直接决定了回合制+动作制切换的理论基础，空轨1st要用回合+动作切换，就必须要跟导力器切割不用这套理论
+
+否则艾斯蒂尔一上来就第七代，这就过分了
+
+
+*****
+
+####  卢迪克  
+##### 7052#       发表于 2024-11-26 14:01
+
+ 本帖最后由 卢迪克 于 2024-11-26 14:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66778184&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-26 13:37</a>
+
+空轨EVO就已经把导力器规制改过一次了
+
+但是黎轨的晶片散布这都直接决定了回合制+动作制切换的理论基础， ...</blockquote>
+希望透過《空之軌跡》重製版找到答案
+
+最後請談談剛發表的《空之軌跡》重製版
+
+A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的選項，當時在說的其實就是這款，畢竟軌跡持續 了20 年，當今主機不能玩這些老遊戲，在各國都有玩家問要從哪裡入門，基於這樣的考量選擇了這款作品。
+
+包括前面提到系統過於複雜，都希望可以透過這款作品找到主要答案
+
+*****
+
+####  卢迪克  
+##### 7053#       发表于 2024-11-26 14:01
+
+ 本帖最后由 卢迪克 于 2024-11-26 14:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66778184&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-11-26 13:37</a>
+
+空轨EVO就已经把导力器规制改过一次了
+
+但是黎轨的晶片散布这都直接决定了回合制+动作制切换的理论基础， ...</blockquote>
+感觉是下一代轨迹的试水作吧
+
+
+*****
+
+####  maojiashu  
+##### 7054#       发表于 2024-11-26 14:40
+
+也不用这么认真吧 就当普攻和初版碰怪一样呗 只是没有切换动画了
+
+空黎差了多少年来着？这还是重制 圆不了一点吧
+
+
+*****
+
+####  flyreder  
+##### 7055#       发表于 2024-11-27 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66778637&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-26 14:40</a>
+也不用这么认真吧 就当普攻和初版碰怪一样呗 只是没有切换动画了
+
+空黎差了多少年来着？这还是重制 圆不了一 ...</blockquote>
+1202年利贝尔村姑➕童养婿开始游击修行之士全国徒步游
+1204一月条子坐火车去克州 三月里爷坐火车去托里斯塔（里爷：我就不应该……）
+1206里爷飞天
+1208 八月学**
+1209飞天
+
+轨迹基本都是两年一个新篇章，开始村姑联系人还要靠电报，谁曾想七年后都手机冲浪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 7056#       发表于 2024-11-27 04:59
+
+<blockquote>flyreder 发表于 2024-11-27 00:53
+1202年利贝尔村姑➕童养婿开始游击修行之士全国徒步游
+
+1204一月条子坐火车去克州 三月里爷坐火车去托里斯 ...</blockquote>
+
+奇点就是克州搞出来的导力网络，当时就有吐槽一个地区这么搞还好说，大陆全境这么干恐怕要起飞了。互联网导致的信息量爆炸生产力大跃进外加出来了一大堆破事也算是紧跟时事……
+
+
+*****
+
+####  卢迪克  
+##### 7057#       发表于 2024-11-27 19:24
+
+ 本帖最后由 卢迪克 于 2024-11-27 19:25 编辑 
+
+东部各区域原型，
+
+内陆=中国
+
+极东=日本。
+
+因为龙来是极东+内陆混合文化
+
+东南=印度（乌鲁米）
+
+北部=俄罗斯（白人）
+
+<img src="https://img.saraba1st.com/forum/202411/27/192510zb9cjzeineevo0wy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241127_191537.jpg</strong> (191.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-27 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/192515pm6n763yv4ji6i7n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20241127_192448.jpg</strong> (206.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-27 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202411/27/192524qm60ls52c5v65s5o.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241127_192210.jpg</strong> (107.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-11-27 19:25 上传
+
+
+*****
+
+####  卢迪克  
+##### 7058#       发表于 2024-11-27 19:28
+
+四个，中国，日本，印度，俄罗斯
+
+
+*****
+
+####  byisme001  
+##### 7059#       发表于 2024-11-27 19:51
+
+界轨连下一部回廊名字的起好了啊 就叫深渊啊 星门估计就是以前轮回的一些事
+
+
+*****
+
+####  卢迪克  
+##### 7060#       发表于 2024-11-27 23:21
+
+<blockquote>byisme001 发表于 2024-11-27 19:51
+界轨连下一部回廊名字的起好了啊 就叫深渊啊 星门估计就是以前轮回的一些事 ...</blockquote>
+欧美采访说了现在角色太多了，又不想在主线给他们加太多剧情，搞个庭院让玩家自己去刷刷刷
+
+
+*****
+
+####  蔺无双  
+##### 7061#       发表于 2024-11-28 01:56
+
+要说回去感觉很有可能是直接回到打恐惧哥变真魔装鬼的时候
+
+毕竟当时变身说的就是从梦中醒来，变身台词也是撕裂噩梦，从黎明中苏醒
+
+不过这个点也有可能是破局的关键节点就是了
+
+
+*****
+
+####  zhouaa  
+##### 7062#       发表于 2024-11-28 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花两个月打完了  体验就和剧情一样 所有的隐忍和坚持都是在等火箭发射
+
+
+*****
+
+####  卢迪克  
+##### 7063#       发表于 2024-11-29 10:01
+
+<img src="https://img.saraba1st.com/forum/202411/29/100134wttf3z34st0jtmmt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 10:01 上传
+
+
+*****
+
+####  洛克萨斯  
+##### 7064#       发表于 2024-11-29 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798660&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-11-29 10:01</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">超级小作坊
+
+
+*****
+
+####  maojiashu  
+##### 7065#       发表于 2024-11-29 17:05
+
+成功安利了一个朋友玩轨迹系列 但是她玩的这游戏的决定因素是她磕帅哥幼女cp 大少拉碧丝那对 然后她买了个创轨进行游玩 开场看到那个两天结束的世界大战 就算我是第二次看到 我俩都没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 7066#       发表于 2024-11-29 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66802418&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-11-29 18:05</a>
+成功安利了一个朋友玩轨迹系列 但是她玩的这游戏的决定因素是她磕帅哥幼女cp 大少拉碧丝那对 然后她买了个 ...</blockquote>
+可以让她云一下闪4结尾的大场面，保证震撼三观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 7067#       发表于 2024-11-29 17:17
+
+你轨的代码感觉一直相对其他厂来说挺稳的，不知道码农是不是也40多<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最终兵器狂战  
+##### 7068#       发表于 2024-12-1 13:08
+
+40小时创轨（本质大少这个雄大鬼的洗白记）啃完了。寻思出来点感想。
+
+1、虽然上次打碧轨还是十几年前，细节早忘干净了，但是柿原以前的配音有这么油腻么？
+
+2、东山配得则是完全喊不出来的样子。只能说疫情全责了。
+
+3、果然有动捕了以后重要过场观感提升相当可观，开头兰花塔砸玻璃那段看得人眼前一亮。法社技术力稳中向好！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+4、但类似于公园决斗.gif那种拼出来的迫真打斗过场印象中还是有不少。伊莉雅的转圈舞看得只想快进。甚至到黎1开头还有俩黑衣人疯狂乱戳的桥段。可见技术力也是很贵的。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+5、分三线叙事并砍掉大部分通马桶剧情后确实看得舒服太多了。但是在大少跟黎恩线第一次合流那边两拨人正着打一遍反着再打一遍，跑段路后正着再再打一遍敌我互换再再再打一遍打得我都笑了。这说实话已经不是什么拖剧情水流程了，而应该是法老空法式幽默的一种具现。
+
+6、不过相应的，本作体感上少了不少前座中的“没有那个必要”以及在“台面上下”疯狂绕单杠的桥段。并且感觉“上次见面还是上次”桥段的量尚且没有那么致死。已经堪称是轨界良心了。
+
+7、抛开最后说什么也要玩家品一回骑神战的屎不谈。法社机器人的造型是越来越好看了。魔煌机兵和帝尔锋看着就很朴实刚健的好看。RF工厂看门的机器土龙更是比起格莱普尼尔、无尽神机、基神的直升机之流，时髦程度堪称碾压。不过归根结底，法社机器人别没事干在那边多动症一样药胳膊晃镜头观感应该能好很多。
+
+8、可操作人物太多真玩不过来了。老命搭上都不够开全手机孔的。每个人还武器衣服鞋子完全独有，好在这时候已经到普通结局打完专心爬塔也不缺钱了。但是要刷全塞姆利亚武器和全防具最高级的话想想都觉着肝疼。
+
+9、就算都四十几个可操角色，把2姐劳拉爹马克邦都抓来庭院坐牢。怎么铁机队还是3缺2呢。人明明闪4也跟着打柱子了。
+
+10、克州大牢组这群人这就全洗白了？加西亚这种被当枪使还助拐圣越狱有功先不说，前总统和熊律师这种幕后黑手，差一步万恶之源的这就当无事发生了？？？不如说我真看不明白前总统这货被终结者大少放出来到底是干啥的？
+
+11、仔细想想，虽然是火地至宝融合成钢之至宝后分成了7个骑神。所以骑神本身等于火+地至宝。但是我一撸神这种地底灵脉进化出来的超级AI带量子计算机带复制工厂才更像是地之至宝吧？相比之下这高难度下打两台量产小龙人都费劲的骑神简直就是个地三鲜而已。
+
+此外虽然轨迹的事情也不用我们搞的那么清楚，但还是有点东西不明白。
+
+1、AZOTH看运行时间都一千二百多年了，这不刚大崩坏之后帝国还没建立的时候么？那它到底是谁启动的？空之女神钦定的？
+
+2、爬庭院后面几层的时候净看他们在纠结OZxx怎么长的跟琪雅一模一样了，没看明白空之虚神在碧轨被拐圣手撕之后是怎么跑到塔里面还一脑袋把自己撞到AZOTH家地下室里的。
+
+3、虽说在轨迹的世界观里面，特别是闪4之后的世界观里面纠结人口和产能毫无意义。但是小黑夺舍一撸神后是怎么在湖底不声不响搓出个天基大炮还带发射配套的轨道卫星的？他总不能让终结者大少跟伊莉雅带面具上手硬打螺丝吧？
+
+4、6柱博士的行为目的简单来说就是。。。吃瓜么？
+
+另外黎1打到拿到第二个创世了。目前为止感觉就是。。。这柰子，这辟谷，这身材这特么16岁？？？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+转过头来，我突然有点期待啥时候闪1能轮得到重置了。我真的非常想看高清化的16岁的班长。
+
