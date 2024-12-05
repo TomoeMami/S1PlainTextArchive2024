@@ -1158,3 +1158,85 @@ G2新来的这个malbsMd可以啊，就他尼驴三个比较严肃。 ...</block
 
 既然叫GOAT组合 想必在major和MVP数量上应该是断层领先吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  ChAt  
+##### 4558#       发表于 2024-11-29 01:30
+
+完美搞那么多空降是干啥的，主播也空降吗
+
+
+*****
+
+####  cplfrankie  
+##### 4559#       发表于 2024-11-30 19:29
+
+ra这正赛签运也没谁了，祈祷一下黑豹打imperial拿下吧，要不然0-2打黑豹也太地狱了。
+
+
+*****
+
+####  ork  
+##### 4560#       发表于 2024-12-1 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66809233&amp;ptid=1857369" target="_blank">cplfrankie 发表于 2024-11-30 19:29</a>
+ra这正赛签运也没谁了，祈祷一下黑豹打imperial拿下吧，要不然0-2打黑豹也太地狱了。 ...</blockquote>
+对fnc应该算签运还行，但打得也挺吃力
+
+
+*****
+
+####  Vacuolar  
+##### 4561#       发表于 2024-12-1 16:22
+
+RA！RA！RA！
+
+
+*****
+
+####  阿垃垃圾历  
+##### 4562#       发表于 2024-12-1 16:26
+
+拿一分不容易 
+
+
+*****
+
+####  施人诚  
+##### 4563#       发表于 2024-12-1 16:28
+
+好歹赢个bo3，不容易啊
+
+
+*****
+
+####  朔方原的星  
+##### 4564#         楼主| 发表于 2024-12-1 16:43
+
+寻思RA毕竟本土作战可能爆种赢两把没放0-3，做对了
+就是fnc0-3滚蛋也太搞了，知道fnc菜，但黑马打的bo3太少不大敢贴所以我还是贴的fnc晋级，太不争气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  施人诚  
+##### 4565#       发表于 2024-12-1 21:02
+
+明天ra打mibr是不是也有机会啊，mibr我看也是绿色的一笔
+
+
+*****
+
+####  TiiTiiLL  
+##### 4566#       发表于 2024-12-2 08:49
+
+<img src="https://img.saraba1st.com/forum/202412/02/084912w88g8wq9979ivgiw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4eafa7eb5776a4db3f664bd3566a7fdd.jpeg</strong> (231.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 08:49 上传
+
+昨天RA这场现场氛围确实拉满了，最燃的一集
+

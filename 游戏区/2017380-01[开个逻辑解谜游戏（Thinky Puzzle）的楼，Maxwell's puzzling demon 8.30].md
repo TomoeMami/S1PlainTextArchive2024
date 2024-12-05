@@ -3398,3 +3398,66 @@ bean在愿望单了，等促销吧<img src="https://static.saraba1st.com/image/s
 Prove You Can Win 12月发售，做题爱好者速来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 [https://store.steampowered.com/app/3316620/Prove_You_Can_Win/](https://store.steampowered.com/app/3316620/Prove_You_Can_Win/)
 
+*****
+
+####  weiyun  
+##### 230#         楼主| 发表于 2024-11-29 12:40
+
+Maxwell's Puzzling Demon更新了一个世界wA，有几十关
+
+最近出了几个新解谜也不错
+
+Trans Neuronica
+
+脱离抢鲜体验，是连线类
+[https://store.steampowered.com/app/2390520/Trans_Neuronica/](https://store.steampowered.com/app/2390520/Trans_Neuronica/)
+
+CLONY
+
+纵版同步移动+推箱子
+[https://store.steampowered.com/app/2953590/CLONY/](https://store.steampowered.com/app/2953590/CLONY/)
+
+Robot Detour
+
+绕线类
+[https://store.steampowered.com/app/2666840/Robot_Detour/](https://store.steampowered.com/app/2666840/Robot_Detour/)
+
+Globs
+
+伸缩类
+[https://store.steampowered.com/app/3219110/Globs/](https://store.steampowered.com/app/3219110/Globs/)
+
+Prickle
+
+粘块类
+[https://store.steampowered.com/app/2759760/Prickle/](https://store.steampowered.com/app/2759760/Prickle/)
+
+Stig
+
+按顺序生成颜色序列，有类推箱成分
+[https://store.steampowered.com/app/2834830/Stig/](https://store.steampowered.com/app/2834830/Stig/)
+
+
+*****
+
+####  白軍浪  
+##### 231#       发表于 2024-11-30 22:14
+
+Gentoo Rescue
+[https://store.steampowered.com/app/2830480/Gentoo_Rescue/](https://store.steampowered.com/app/2830480/Gentoo_Rescue/)
+
+滑冰加推箱
+
+关卡排布还加了递归要素
+
+我看它有大帝之资
+
+
+*****
+
+####  weiyun  
+##### 232#         楼主| 发表于 2024-12-2 09:02
+
+24年的Confounding Calendar开始了
+[https://confoundingcalendar.itch.io/](https://confoundingcalendar.itch.io/)
+
