@@ -996,3 +996,147 @@ ABFLUG的Supra
 
 2024-11-8 12:25 上传
 
+*****
+
+####  Tnsbilws  
+##### 55#         楼主| 发表于 2024-11-27 23:27
+
+上周的的开发日志发了，秋名山完成了建模准备往上加细节了。
+
+现在多了Gemballa 930s ，Ms Factory R32, 400r和RE-Amemiya FC作为特殊车种。
+
+<img src="https://img.saraba1st.com/forum/202411/27/232357bdofvisaozfui02z.jpg" referrerpolicy="no-referrer">
+
+<strong>E5A8DAC9F028B8BFE376BBA0104489E3.jpg</strong> (380.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-27 23:23 上传
+
+
+*****
+
+####  Totokei  
+##### 56#       发表于 2024-11-28 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">有点兴趣，想问下这个游戏的操控是什么取向的？比较接近现在的哪一款游戏？
+
+
+*****
+
+####  霖岚_  
+##### 57#       发表于 2024-11-28 10:42
+
+有山道好耶，不过好像数量不多，不知道正式版出来会不会继续更新
+
+话说楼主汉化事宜还没联系上作者吗（x，好像后面一直没提这事
+
+
+*****
+
+####  Tnsbilws  
+##### 58#         楼主| 发表于 2024-11-29 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66789623&amp;ptid=2166221" target="_blank">Totokei 发表于 2024-11-28 00:02</a>
+
+有点兴趣，想问下这个游戏的操控是什么取向的？比较接近现在的哪一款游戏？ ...</blockquote>
+因为这个游戏物理是完全往推头方向走的，完全没有一点滑动，所以算独树一帜了
+
+你可以自己下载亲自体验下，过弯完全吸着地面
+
+*****
+
+####  Tnsbilws  
+##### 59#         楼主| 发表于 2024-11-29 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66791405&amp;ptid=2166221" target="_blank">霖岚_ 发表于 2024-11-28 10:42</a>
+
+有山道好耶，不过好像数量不多，不知道正式版出来会不会继续更新
+
+话说楼主汉化事宜还没联系上作者吗（x，好 ...</blockquote>
+已经联系上了，但是作者还是和大多数开发者一样
+
+“因为还在做内容所以完全没考虑本地化”
+
+等做的差不多再说吧……
+
+
+*****
+
+####  Totokei  
+##### 60#       发表于 2024-11-29 22:12
+
+跑了一下steam的demo，感觉这地也太抓太推头了，有一种扯着一个大铁块过弯的感觉。
+
+另外就是第一次PA比赛我赢了之后对方提出重赛，然后开赛前有个电话打过来说我故意输的话给得更多，是骗人的还是真的？
+
+虽然因为他实在太慢了我还是直接赢了他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tnsbilws  
+##### 61#         楼主| 发表于 2024-11-30 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66804463&amp;ptid=2166221" target="_blank">Totokei 发表于 2024-11-29 22:12</a>
+
+跑了一下steam的demo，感觉这地也太抓太推头了，有一种扯着一个大铁块过弯的感觉。
+
+另外就是第一次PA比赛 ...</blockquote>
+现在demo里故意输给的太少基本不用考虑，唯独如果你占领了PA，另外一个队伍BOSS向你发起挑战会给你钱故意输，但是你不需要给赌注
+
+
+*****
+
+####  Totokei  
+##### 62#       发表于 2024-11-30 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66805200&amp;ptid=2166221" target="_blank">Tnsbilws 发表于 2024-11-30 00:37</a>
+现在demo里故意输给的太少基本不用考虑，唯独如果你占领了PA，另外一个队伍BOSS向你发起挑战会给你钱故意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是游戏开头突然买了个车就背上了几百万的债务，有种世间险恶的感觉
+
+就怕故意输了赌注没了收获了一句“HAHAHA”
+
+
+*****
+
+####  Tnsbilws  
+##### 63#         楼主| 发表于 2024-12-2 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66807217&amp;ptid=2166221" target="_blank">Totokei 发表于 2024-11-30 12:44</a>
+主要是游戏开头突然买了个车就背上了几百万的债务，有种世间险恶的感觉
+
+就怕故意输了赌注没了收获了一句 ...</blockquote>
+还是没这么险恶的内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟也就让你赚个几万块
+
+—— 來自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Tnsbilws  
+##### 64#         楼主| 发表于 2024-12-3 11:38
+
+这个月第一个开发日志！
+
+EG6 R33GTR 和R32 GTST（包括四门） 以及JZX90 CHASER加入車单
+
+基本和我想象的差不多，后续应该就是R33GTS了
+
+<img src="https://img.saraba1st.com/forum/202412/03/113142huu0u5zmddvuy08u.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20241203113133.jpg</strong> (447.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-3 11:31 上传
+
+已确认車单：
+
+Nissan：S15，S14，S13<strong>\</strong>RPS13，R34 GTR<strong>\</strong>R34 GTT，R33 GTR，R32 GTR<strong>\</strong>R32 GTST<strong>（双门、四门）</strong>
+Toyota：AE86 Trueno<strong>\</strong>AE86 Levin，JZX100 MK2<strong>\</strong>JZX90 Chaser，Supra A80
+Porsche ：911 Type964<strong>\</strong>911<strong> </strong>Type930
+Honda：NSX NA1<strong>\</strong>NSX NA2，EK9<strong>\</strong>EM1<strong>\</strong>EG6
+Mazda：FD3S FC3S
+Mitsubishi：EVO7<strong>\</strong>EVO9
+
