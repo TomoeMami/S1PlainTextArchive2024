@@ -1858,3 +1858,112 @@ Wemod看着可以选xbox的版本，实际上不能用吗？
 
 最后看视频通关的，感觉整个游戏做的没什么爆点，全是机械重复的打飞机，什么巨石阵，冰海潜艇都没有………………
 
+*****
+
+####  安瓦尔阿明  
+##### 180#       发表于 2024-12-2 10:40
+
+It's time. （一阵激烈的弗拉明戈舞曲）
+
+<img src="https://img.saraba1st.com/forum/202412/02/104004kz09k6fze0lza9s0.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20241202_103900.jpg</strong> (321.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-2 10:40 上传
+
+
+*****
+
+####  cubesun  
+##### 181#       发表于 2024-12-2 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62628468&amp;ptid=1974980" target="_blank">安瓦尔阿明 发表于 2023-10-6 09:26</a>
+
+新版本支持PSVR2，但是也可以在PS5上玩普通版。</blockquote>
+可别提PSVR2，我就冲这个首发买了PS5版，后来发现支持VR的只有DLC6个关卡，主线没有。
+
+我就要问候制作组祖宗十八辈
+
+*****
+
+####  电磁炮233  
+##### 182#       发表于 2024-12-2 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66820787&amp;ptid=1974980" target="_blank">安瓦尔阿明 发表于 2024-12-2 10:40</a>
+It's time. （一阵激烈的弗拉明戈舞曲）</blockquote>
+
+这个价格不如买key
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  安瓦尔阿明  
+##### 183#       发表于 2024-12-3 08:31
+
+六关好短，3小时就能打完，但对战争和仇恨的疯狂描写并不输本体。估计制作者也知道战机强拆战舰容易被白嫖伤害，在最终BOSS战加入了阶段转换玩家回血的机制，不过对一般玩家来说有些难度，我弹药都快打光了。
+
+<img src="https://img.saraba1st.com/forum/202412/03/083132e3g6g9lg85b89b6e.png" referrerpolicy="no-referrer">
+
+<strong>895870_20241202221030_1.png</strong> (342.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-3 08:31 上传
+
+“罗斯福”号空中迪厅太劲啦。
+
+
+*****
+
+####  创始’’’天翔  
+##### 184#       发表于 2024-12-3 08:57
+
+<blockquote>安瓦尔阿明 发表于 2024-12-3 08:31
+六关好短，3小时就能打完，但对战争和仇恨的疯狂描写并不输本体。估计制作者也知道战机强拆战舰容易被白嫖 ...</blockquote>
+有道中存档点了吗
+
+
+*****
+
+####  安瓦尔阿明  
+##### 185#       发表于 2024-12-3 09:01
+
+<blockquote>创始’’’天翔 发表于 2024-12-3 08:57
+有道中存档点了吗</blockquote>
+还是没，我打第四关钻隧道撞死两次，尴尬。
+
+
+*****
+
+####  Hinacle  
+##### 186#       发表于 2024-12-3 14:45
+
+beta branch能够玩dlc吗？虽然有各种各样的问题，但是beta的画面和秒天秒地的rail gun太舒服了
+
+
+*****
+
+####  black1991518  
+##### 187#       发表于 2024-12-3 19:56
+
+隧道关的BGM实在是太攒劲了，Jose Pavli真是神人<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Hinacle  
+##### 188#       发表于 2024-12-3 23:26
+
+beta版也能玩dlc，爽到
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想看有没有神人开着加速buff过隧道
+
+新的攒劲小曲没进音乐dlc，不知道会不会单卖
+
+唯一不满的就是配音质量还是难蚌，他们不会还在用discord录音吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
