@@ -1028,3 +1028,864 @@ GM0FxiJbwAAA8uO.jpg
 
 感觉还是太油了，不如2B那种戳xp的设计高级<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Vladimeow  
+##### 100#       发表于 2024-11-29 14:26
+
+这一管估计不太够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  味太冲  
+##### 101#       发表于 2024-11-29 14:39
+
+看到标题很难不点进来
+
+
+*****
+
+####  藤宫由季  
+##### 102#       发表于 2024-11-29 14:49
+
+什么时候上pc啊，急急急
+
+
+*****
+
+####  Sevenzerofive  
+##### 103#       发表于 2024-11-29 15:04
+
+好急，快上PC
+
+
+*****
+
+####  Troywest  
+##### 104#       发表于 2024-11-29 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66801151&amp;ptid=2182820" target="_blank">Vladimeow 发表于 2024-11-29 14:26</a>
+这一管估计不太够</blockquote>
+老登论坛，虚一点也可以理解。几年前都是标配撸两管的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可见岁月无情。
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  敏感词好多  
+##### 105#       发表于 2024-11-29 15:41
+
+一管？十管！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  monolithsoft  
+##### 106#       发表于 2024-11-29 15:52
+
+没顶住 相信急二的判断
+
+赶紧给我上PC
+
+*****
+
+####  flxgundam  
+##### 107#       发表于 2024-11-29 15:52
+
+说实话一般
+
+
+*****
+
+####  B.K.  
+##### 108#         楼主| 发表于 2024-11-29 18:04
+
+年纪大了，没那么多管了，羡慕谭友10管
+
+*****
+
+####  司马千晶  
+##### 109#       发表于 2024-11-29 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">为什么我拍照模式只有自拍
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  浅川雏羽  
+##### 110#       发表于 2024-11-29 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66802880&amp;ptid=2182820" target="_blank">司马千晶 发表于 2024-11-29 18:09</a>
+
+为什么我拍照模式只有自拍
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+R1加左键还是右键来着
+
+
+*****
+
+####  樽——見  
+##### 111#       发表于 2024-11-29 19:14
+
+穿着暴露举止轻佻的女人站在男厕脏兮兮的小便池旁搔首弄姿是哪个天才发明的xp场景 我必须立刻撸管。
+
+
+*****
+
+####  tex033  
+##### 112#       发表于 2024-11-29 20:05
+
+精神加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  czs13  
+##### 113#       发表于 2024-11-30 10:05
+
+过于简单粗暴，不如2B
+
+
+*****
+
+####  B.K.  
+##### 114#         楼主| 发表于 2024-11-30 14:32
+
+<img src="https://img.saraba1st.com/forum/202411/30/143145snuttsy1661qotyy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0297.jpeg</strong> (507.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202411/30/143145cyddptzw2qvypziy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0298.jpeg</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202411/30/143146q5hmi5pghkmbmpi3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0299.jpeg</strong> (1008.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-30 14:31 上传
+
+
+*****
+
+####  FFFreddie  
+##### 115#       发表于 2024-12-1 16:36
+
+打dlc随便拍了几张<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">更加笃定了这就是我的年度游戏
+<img src="https://p.sda1.dev/20/797789daf869319eb4ab841702a43d44/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  B.K.  
+##### 116#         楼主| 发表于 2024-12-2 09:06
+
+<img src="https://img.saraba1st.com/forum/202412/02/090653ps5spmivnmmoimmu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>47e33bfa94a63399778bd25eae7cb85b.jpeg</strong> (194.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-2 09:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/02/090653ncke77uckauq9d5q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7427bcc2468347456dfe51b3e058013d.jpeg</strong> (303.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-2 09:06 上传
+
+<img src="https://img.saraba1st.com/forum/202412/02/090653fcc5bh72kkcyc9q9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6852e127da4bc4d620a8bed2bbf2b80d.jpeg</strong> (530.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-12-2 09:06 上传
+
+
+*****
+
+####  B.K.  
+##### 117#         楼主| 发表于 2024-12-4 12:14
+
+<img src="https://img.saraba1st.com/forum/202412/04/121430vyzso3wq4qiegv12.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (522.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121431bj86y666mh7fejn6.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (286.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121432x8g9z04kc93fbmfz.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (421.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121433wq0bvv0pbvbb0bat.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (768.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121434xb0ttzfinwkfk0i0.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (730.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121434nwb3cirdjvjbcty5.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (556.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121435duenoac2euy6knlc.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (934.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121436tdccm6ejzj6iii9d.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (641.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/121437b49bmq9z34qz3d41.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (315.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 12:14 上传
+
+
+*****
+
+####  wthall  
+##### 118#       发表于 2024-12-4 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虽然eve确实超级涩琪，各种屁股大腿顶脸。
+
+但是实际游玩体验还是不太行，弱智解密和找密码开门太影响探索，开放世界通马桶无法自由传送也影响实际to do list清理体验，我最开始玩到太空前只能给她4分，3分女主角，1分音乐。我只想战斗爽，可惜就是逼我要弱智跳跳乐+找钥匙
+
+
+*****
+
+####  B.K.  
+##### 119#         楼主| 发表于 2024-12-5 11:00
+
+<img src="https://img.saraba1st.com/forum/202412/05/105931z0k0eg9qowei9760.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0337.jpeg</strong> (2.63 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105933xzvby8y8hrnbb8kj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0334.jpeg</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105933ouomod05nyl8m76l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0335.jpeg</strong> (575.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105934g3f5gh73lhcmlsmc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0336.jpeg</strong> (855.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105936vcal5rtboqubbbli.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0333.jpeg</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/105936dgc9hw1jwwv8htdj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0332.jpeg</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 10:59 上传
+
+
+*****
+
+####  B.K.  
+##### 120#         楼主| 发表于 2024-12-5 21:57
+
+<img src="https://img.saraba1st.com/forum/202412/05/215702z55ig6mvv56wmgve.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0368.jpeg</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215702eog2ebelbzkl0bi1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0366.jpeg</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215703b0mv7kp8v8mehxav.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0342.jpeg</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215703rna3sf55wwoineod.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0355.jpeg</strong> (574.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215704z7z6t66zdwqxxidv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0358.jpeg</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215705sv4i57m0l4lv7foi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0357.jpeg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215707f5tpe5p7g4z55azp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0360.jpeg</strong> (897.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215708xz684l5uzwwwf1a5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0361.jpeg</strong> (864.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202412/05/215709zc9rybcbfjsclp5s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0351.jpeg</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-5 21:57 上传
+
+
+*****
+
+####  empereur  
+##### 121#       发表于 2024-12-5 23:01
+
+先知表示很赞<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忘却旋律  
+##### 122#       发表于 2024-12-6 11:14
+
+期待上PC后的创作<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千秋难诉  
+##### 123#       发表于 2024-12-6 11:22
+
+等一个PC姜仁卿mod
+
+
+*****
+
+####  巨馍蘸酱  
+##### 124#       发表于 2024-12-6 11:35
+
+我还是喜欢最早第一个PV的人设，现在这版齐刘海+长马尾的发型不太戳我
+
+
+*****
+
+####  Garterbelt  
+##### 125#       发表于 2024-12-6 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66857158&amp;ptid=2182820" target="_blank">巨馍蘸酱 发表于 2024-12-6 11:35</a>
+
+我还是喜欢最早第一个PV的人设，现在这版齐刘海+长马尾的发型不太戳我</blockquote>
+游戏内可以换的，这次更新还增加了去掉马尾的选项
+
+
+*****
+
+####  那由  
+##### 126#       发表于 2024-12-6 16:35
+
+<img src="https://img.saraba1st.com/forum/202412/06/163451pxx04o833t5xefxh.png" referrerpolicy="no-referrer">
+
+<strong>e40af6c53f9bd21b50ba7a855dc2e92d.png</strong> (302.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-6 16:34 上传
+
+还是喜欢这套，自由打光太方便了
+
+
+*****
+
+####  B.K.  
+##### 127#         楼主| 发表于 2024-12-7 14:10
+
+<img src="https://img.saraba1st.com/forum/202412/07/141039rg6w7uplwnkbplkg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0369.jpeg</strong> (809.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141039uoxn7ikxng9jqk1i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0370.jpeg</strong> (816.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141042smbvvw00vbzh9hwp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0373.jpeg</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141040zn24tmncu14zi661.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0371.jpeg</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202412/07/141041d1ccf12cccmgggfd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0372.jpeg</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 14:10 上传
+
+
+*****
+
+####  monikaca  
+##### 128#       发表于 2024-12-7 14:53
+
+年度游戏！（好像说过了）
+
+*****
+
+####  B.K.  
+##### 86#         楼主| 发表于 2024-11-28 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870195&amp;ptid=2182820" target="_blank">joker9527 发表于 2024-5-10 10:20</a>
+
+感觉还是太油了，不如2B那种戳xp的设计高级</blockquote>
+还是坛友已毒奶，没想到真的变成了2B<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  B.K.  
+##### 87#         楼主| 发表于 2024-11-28 22:51
+
+<img src="https://img.saraba1st.com/forum/202411/28/225050t767uu2fgccejaj8.jpg" referrerpolicy="no-referrer">
+
+<strong>20.jpg</strong> (263.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225051akjicnc3ve1han9d.jpg" referrerpolicy="no-referrer">
+
+<strong>21.jpg</strong> (33.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225052ej3w88bybzmjrjm9.jpg" referrerpolicy="no-referrer">
+
+<strong>22.jpg</strong> (243.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225052xrqb7ggu8us87qol.jpg" referrerpolicy="no-referrer">
+
+<strong>23.jpg</strong> (302.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225053pwqorzuaraeac0sd.jpg" referrerpolicy="no-referrer">
+
+<strong>25.jpg</strong> (549.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225054s0wiwffm3w0mwiw7.jpg" referrerpolicy="no-referrer">
+
+<strong>26.jpg</strong> (242.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225054ico4kzrcrs2szqwm.jpg" referrerpolicy="no-referrer">
+
+<strong>27.jpg</strong> (167.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225055ddi4rowabf3rfqrh.jpg" referrerpolicy="no-referrer">
+
+<strong>28.jpg</strong> (127.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225055j583ku8dtxt6s269.jpg" referrerpolicy="no-referrer">
+
+<strong>30.jpg</strong> (81.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225056wnfnncnnnnzkkkz7.jpg" referrerpolicy="no-referrer">
+
+<strong>31.jpg</strong> (344.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225057stap0jtq0wzaq90b.jpg" referrerpolicy="no-referrer">
+
+<strong>34.jpg</strong> (190.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225057ppt96bu0knzpctp9.jpg" referrerpolicy="no-referrer">
+
+<strong>35.jpg</strong> (219.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+<img src="https://img.saraba1st.com/forum/202411/28/225058b0p3pr8om36kvk73.jpg" referrerpolicy="no-referrer">
+
+<strong>36.jpg</strong> (184.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-28 22:50 上传
+
+
+*****
+
+####  寺胖  
+##### 88#       发表于 2024-11-28 22:57
+
+期待在PC上玩到高动态范围美少女
+
+
+*****
+
+####  爱撕衣魔刃  
+##### 89#       发表于 2024-11-28 23:04
+
+不行，新衣服会自动改变三围，
+
+实打实的人造人了，
+
+一想到这里就发情不能了……/吐血
+
+
+*****
+
+####  rainsheep  
+##### 90#       发表于 2024-11-29 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796816&amp;ptid=2182820" target="_blank">爱撕衣魔刃 发表于 2024-11-28 23:04</a>
+不行，新衣服会自动改变三围，
+
+实打实的人造人了，
+
+一想到这里就发情不能了……/吐血 ...</blockquote>
+旧衣服有些也会变，身材跟衣服走的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  大喇叭花田  
+##### 91#       发表于 2024-11-29 00:31
+
+PS5竟然能做到这个程度，年度游戏确定。
+
+
+*****
+
+####  B.K.  
+##### 92#         楼主| 发表于 2024-11-29 07:53
+
+<blockquote>大喇叭花田 发表于 2024-11-29 00:31
+PS5竟然能做到这个程度，年度游戏确定。</blockquote>
+GOTY没提名绝对有问题！
+
+
+*****
+
+####  苏斯赫查  
+##### 93#       发表于 2024-11-29 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66796816&amp;ptid=2182820" target="_blank">爱撕衣魔刃 发表于 2024-11-28 23:04</a>
+不行，新衣服会自动改变三围，
+
+实打实的人造人了，
+
+一想到这里就发情不能了……/吐血 ...</blockquote>
+本来就是，根据衣服连皮肤材质都会变<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.92-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 94#       发表于 2024-11-29 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">何等强大的拍摄模式
+
+
+*****
+
+####  不入流美术  
+##### 95#       发表于 2024-11-29 10:23
+
+从色的角度来讲不如后裔
+
+
+*****
+
+####  哎哟卧槽了  
+##### 96#       发表于 2024-11-29 10:31
+
+伊芙最大的问题是眼睛想讲究真实，反光设计太追求拟真，结果游玩表现上基本就是死鱼眼....
+
+
+*****
+
+####  忘却旋律  
+##### 97#       发表于 2024-11-29 10:37
+
+其实疯女人渡鸦也挺好看的 我也喜欢，可惜不能用，只能用她的纳米服，渡鸦纳米服其实也挺瑟的
+
+
+*****
+
+####  B.K.  
+##### 98#         楼主| 发表于 2024-11-29 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66798969&amp;ptid=2182820" target="_blank">忘却旋律 发表于 2024-11-29 10:37</a>
+
+其实疯女人渡鸦也挺好看的 我也喜欢，可惜不能用，只能用她的纳米服，渡鸦纳米服其实也挺瑟的 ...</blockquote>
+相当，二周目一半的流程我都用她的衣服过的<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">色！
+
+
+*****
+
+####  B.K.  
+##### 99#         楼主| 发表于 2024-11-29 13:57
+
+<img src="https://img.saraba1st.com/forum/202411/29/135627x2umimk2efkkl2ze.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg</strong> (286.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135620j3kegkefss2xkhqt.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (693.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135621hbmb5bvgbmqb63ol.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (433.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135622y61vm3c61l67a7tv.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (714.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135623ygk67f6kl6s7qg7e.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (116.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135623hsugtutjjuk8jrts.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (236.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135624it2or281krc81e6z.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (622.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135625szkvuqv0q9z0qzlj.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (132.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135626jo4u0iaevrs5esuy.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (331.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135628p4xx0iyckxkc4ppx.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (476.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/29/135628vomwgdwrmed9evg8.jpg" referrerpolicy="no-referrer">
+
+<strong>12.jpg</strong> (188.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-29 13:56 上传
+
+
