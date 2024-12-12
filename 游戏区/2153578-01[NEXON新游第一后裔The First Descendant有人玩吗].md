@@ -3007,3 +3007,170 @@ https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=135656870
 
 【《第一后裔》将加入“抖动物理效果”】《第一后裔》开发团队的一名成员在最近的 Discord 问答中表示“今天与团队进行了长时间的讨论后，我们决定添加玩家们强烈要求的‘抖动物理效果’。这是不久前才决定的，因此何时以及如何在游戏中实施的细节尚未最终确定，我们将在未来的更新中分享更多情报！”
 
+*****
+
+####  魂淡融  
+##### 240#       发表于 2024-12-4 21:24
+
+https://api.xiaoheihe.cn/v3/bbs/app/api/web/share?link_id=139927615
+
+冬季活动，签到14天获得终极邦尼
+
+<img src="https://img.saraba1st.com/forum/202412/04/212414t0360o36ckjy002r.jpg" referrerpolicy="no-referrer">
+
+<strong>e031eddbb69be53ae2a0562c0bf88a0fe317f49b6697b11fa7794d1f4e1d554e.jpg</strong> (43.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:24 上传
+
+<img src="https://img.saraba1st.com/forum/202412/04/212415mu2pf2em6vm2cu2s.jpg" referrerpolicy="no-referrer">
+
+<strong>f99e131874deef49a7b26026001e0b8b1fce4d1ebb7d294f05084b2fed21b5b4.jpg</strong> (45.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-4 21:24 上传
+
+
+*****
+
+####  魂淡融  
+##### 241#       发表于 2024-12-5 19:57
+
+第二赛季更新！！！
+[https://tfd.nexon.com/en/news/2694465](https://tfd.nexon.com/en/news/2694465)
+
+重点总结：
+
+1、继续减负，优化了很多恶心任务；增加了保底机制，格莱、恩佐可以普通副本直接掉落
+
+2、增加了宠物系统，可以增加掉率，帮忙拾取道具，自动分解
+
+3、终极沙恩和新的黑人后裔
+
+4、弱势后裔和枪械增强
+
+
+*****
+
+####  pentacles  
+##### 242#       发表于 2024-12-5 21:54
+
+角色格子是按赛季上商店?
+
+新东西不多 把终极沙恩弄完又能歇一阵
+
+
+*****
+
+####  GDIHARVESTER  
+##### 243#       发表于 2024-12-5 22:00
+
+炸服了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新庄運切  
+##### 244#       发表于 2024-12-5 22:00
+
+从1000多名排队排到8000多，然后直接炸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊克路西安  
+##### 245#       发表于 2024-12-6 22:02
+
+我前天还是昨天看到要送终极邦尼就下了游戏，结果昨天更新8G，写入硬盘40G，进去炸服，今天更新200M，又写入硬盘40G，还没玩呢硬盘被写了三遍<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leafS  
+##### 246#       发表于 2024-12-6 23:38
+
+这宠物还得用氪金币买，我是服了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Sine77  
+##### 247#       发表于 2024-12-7 08:56
+
+冰女加强完咋说？小登打算回坑氪个终极皮玩玩，之前主线打一半开始花式死就没玩，请教下冰女毒妈氪哪个比较好？
+
+
+*****
+
+####  GDIHARVESTER  
+##### 248#       发表于 2024-12-7 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864207&amp;ptid=2153578" target="_blank">Sine77 发表于 2024-12-7 08:56</a>
+
+冰女加强完咋说？小登打算回坑氪个终极皮玩玩，之前主线打一半开始花式死就没玩，请教下冰女毒妈氪哪个比较 ...</blockquote>
+冰女加强后我看能打150级巨魔了，看着很安逸。要氪的话还是毒妈吧，刷图用传染，打巨魔用大招，打死亡猎手用护盾流，比较全能。
+
+*****
+
+####  GDIHARVESTER  
+##### 249#       发表于 2024-12-7 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66862999&amp;ptid=2153578" target="_blank">leafS 发表于 2024-12-6 23:38</a>
+
+这宠物还得用氪金币买，我是服了
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+狗可以刷虚空舰刷出来
+
+
+*****
+
+####  leafS  
+##### 250#       发表于 2024-12-7 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66864300&amp;ptid=2153578" target="_blank">GDIHARVESTER 发表于 2024-12-7 09:18</a>
+狗可以刷虚空舰刷出来</blockquote>
+那还可以，主要就是要那个自动分解的功能了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  伊克路西安  
+##### 251#       发表于 2024-12-7 19:08
+
+<img src="https://img.saraba1st.com/forum/202412/07/190708u57av565c6351mmc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (693.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:07 上传
+
+卧槽，怎么今天又更新一次，三天更新三次，每次更新都要重写40G硬盘
+
+
+*****
+
+####  Andariel  
+##### 252#       发表于 2024-12-7 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66867949&amp;ptid=2153578" target="_blank">伊克路西安 发表于 2024-12-7 19:08</a>
+卧槽，怎么今天又更新一次，三天更新三次，每次更新都要重写40G硬盘
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在硬盘就是耗材，不用太操心了
+反正游戏盘不存数据，坏了换新
+
+
+*****
+
+####  pentacles  
+##### 253#       发表于 2024-12-9 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 集中攻略功能只能追核桃?  吐了
+
