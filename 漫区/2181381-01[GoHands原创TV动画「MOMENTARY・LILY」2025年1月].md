@@ -453,3 +453,18 @@ Gohands也来双女主原创<img src="https://static.saraba1st.com/image/smiley/
 
 往后播前面角色都领便当cv表排名就能升到女二了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 47#         楼主| 发表于 2024-12-10 17:22
+
+PV2：[https://youtu.be/LJkengk1IP0](https://youtu.be/LJkengk1IP0)
+
+
+*****
+
+####  八佾舞于潭  
+##### 48#       发表于 2024-12-10 21:16
+
+不知道为什么，看这片就有一种莫名的感动，感觉 gohands 把我梦寐以求的悦动的美少女给做出来了，京骚戏画+蜘蛛侠+莉克莉丝，就是上色头发和背景渲染不太行。
+
