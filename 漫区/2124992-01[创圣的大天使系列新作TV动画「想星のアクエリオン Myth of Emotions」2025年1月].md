@@ -1196,3 +1196,218 @@ TOKYO MX、テレビ愛知、tvk、BS朝日ほか：2025年1月放送開始
 悲观主义：高达AGE
 
 
+*****
+
+####  创始’’’天翔  
+##### 124#       发表于 2024-12-7 19:25
+
+<img src="https://img.saraba1st.com/forum/202412/07/192544gjt9ttxa3yhthtow.jpg" referrerpolicy="no-referrer">
+
+<strong>A111DE4953A85D41A146BB93AD71082E.jpg</strong> (60.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:25 上传
+
+味道太对了
+
+*****
+
+####  创始’’’天翔  
+##### 125#       发表于 2024-12-7 19:26
+
+不过PV里男主也太红发男路人了
+
+<img src="https://img.saraba1st.com/forum/202412/07/192644wms6h5thsqt96j8t.png" referrerpolicy="no-referrer">
+
+<strong>f5b506122cc2badbedd29cc13a7883c017bedf30a8e0a501b953e3bcccd448c1.0.PNG</strong> (412 Bytes, 下载次数: 0)
+
+下载附件
+
+2024-12-7 19:26 上传
+
+*****
+
+####  kisstv22  
+##### 126#       发表于 2024-12-7 19:27
+
+卫星社30周年纪念作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 127#         楼主| 发表于 2024-12-7 20:18
+
+正式PV：[https://youtu.be/T9zHdVOM7qE](https://youtu.be/T9zHdVOM7qE)
+
+
+*****
+
+####  X(iaolw)S  
+##### 128#       发表于 2024-12-7 20:32
+
+这正统宣言太过了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  HazukiShion  
+##### 129#       发表于 2024-12-7 20:43
+
+这情节配这画风看起来好怪啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kisstv22  
+##### 130#       发表于 2024-12-7 20:53
+
+这画风是真的难适应<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyDC  
+##### 131#       发表于 2024-12-7 21:16
+
+人设真违和
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  moeful  
+##### 132#       发表于 2024-12-7 22:45
+
+这次是阿波罗的鸡鸭鱼狗猪哪个？
+
+
+*****
+
+####  无动于衷  
+##### 133#       发表于 2024-12-7 22:52
+
+这玩意人设是工藤昌史？？
+
+给我的震撼不亚于隔壁高达作画监督写松原秀典
+
+*****
+
+####  七七見奈波  
+##### 134#       发表于 2024-12-7 22:57
+
+前世是堕天翅族吗？雀斑妹说前世有翅膀
+
+
+*****
+
+####  待宵  
+##### 135#       发表于 2024-12-7 23:04
+
+真挺意外，用这种人设，结果PV就差直接明说自己是正统续作
+
+
+*****
+
+####  ghostdio  
+##### 136#       发表于 2024-12-7 23:24
+
+这遮cv有什么意义吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  sephal  
+##### 137#       发表于 2024-12-7 23:26
+
+创圣是要谈恋爱的吧，顶着这人设合适吗
+
+
+*****
+
+####  nanjolno  
+##### 138#       发表于 2024-12-7 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870004&amp;ptid=2124992" target="_blank">ghostdio 发表于 2024-12-7 23:24</a>
+
+这遮cv有什么意义吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+遮CV多半是跟之前某个角色是同一人物（或者双子/前生/克隆人这类）用了同一CV
+
+盲听九成是小原好美
+
+
+*****
+
+####  ghostdio  
+##### 139#       发表于 2024-12-8 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66870160&amp;ptid=2124992" target="_blank">nanjolno 发表于 2024-12-07 23:47:45</a>
+遮CV多半是跟之前某个角色是同一人物（或者双子/前生/克隆人这类）用了同一CV
+
+盲听九成是小原好美 ...</blockquote>主要这声音基本一听就知道和雀斑妹是同一cv，甚至姓都一样，感觉是没啥遮的必要<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+不过想到之前推子神木光和萝莉神的cv刚出场也是问号，这个反而还算有点遮的理由
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  八佾舞于潭  
+##### 140#       发表于 2024-12-8 05:31
+
+这 PV 颇对胃口，感觉被人设拖后腿了
+
+
+*****
+
+####  牙狼GARO  
+##### 141#       发表于 2024-12-8 14:27
+
+啊这人设，倒不是说不好，只是和以前这个系列的人设比起来反差也太大了
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  基本农田  
+##### 142#       发表于 2024-12-8 14:49
+
+这人设是认真的？
+
+
+*****
+
+####  cmyk1234  
+##### 143#       发表于 2024-12-8 15:28
+
+安野希世乃在河森制片动画中配音的角色：
+evol女主角饲养的小动物。
+macross delta马三角的要姐（AXIA）。
+这次她配音角色是不是等于以前的不动？
+
+
+*****
+
+####  哈曼的YY  
+##### 144#       发表于 2024-12-9 17:12
+
+合体果然没裸漂了
+
+阿姨洗铁路改的好难听 要不用原版吧
+
+
+*****
+
+####  深渊骑士  
+##### 145#       发表于 2024-12-11 07:17
+
+反正这次基本不关和珅的事了，之前一堆人叫和珅放手，这次看看其他人能不能做好这系列。
+
