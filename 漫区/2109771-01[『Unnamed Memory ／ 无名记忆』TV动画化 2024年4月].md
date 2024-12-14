@@ -1931,3 +1931,10 @@ yysy,这集给我有一种石头门的感觉
 
 <img src="https://p.sda1.dev/20/f4119b9aa90e1d9618137fc5f2d02502/20241102_213221.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 181#         楼主| 发表于 2024-12-12 00:05
+
+二期正式PV：[https://youtu.be/Mvczf8DZJc4](https://youtu.be/Mvczf8DZJc4)
+
