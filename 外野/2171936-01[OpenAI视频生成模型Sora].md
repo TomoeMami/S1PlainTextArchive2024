@@ -832,3 +832,202 @@ gemini ultra我在用
 
 现在是1分钟的视频让人拿着放大镜反反复复去看哪里穿帮了，真的应用起来初步就是用来填充一些镜头，可能也就一闪而过的几秒，根本没那么容易穿帮
 
+*****
+
+####  处男老司机  
+##### 100#       发表于 2024-12-10 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888910&amp;ptid=2171936" target="_blank">qratosones1337 发表于 2024-12-10 15:06</a>
+[https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo](https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo)
+
+就是这个，现在开源了，不过要部署的话需要 ...</blockquote>
+并不一定，有大神做了插件可以本地运行，虽然哪怕4090也无法完全发挥模型性能
+[https://github.com/kijai/ComfyUI-HunyuanVideoWrapper](https://github.com/kijai/ComfyUI-HunyuanVideoWrapper)
+
+
+*****
+
+####  RainyNights  
+##### 101#       发表于 2024-12-11 08:37
+
+有没有混元作品可以鉴赏？
+
+
+*****
+
+####  临界点  
+##### 102#       发表于 2024-12-11 09:35
+
+簧片虽然动作简单重复 但我依然不觉得目前的AI能做得好
+
+*****
+
+####  Vg_Fy  
+##### 103#       发表于 2024-12-11 09:38
+
+实际效果还没混元可灵好，之前几个月的真就只是ppt啊。
+
+
+*****
+
+####  SkavenYesYes  
+##### 104#       发表于 2024-12-11 10:02
+
+细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  stonego  
+##### 105#       发表于 2024-12-11 10:17
+
+目前看来跟runway gen3一个级别，动态比不过kling，二次元比不过hailuo，评价是一坨<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ななひら  
+##### 106#       发表于 2024-12-11 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66888910&amp;ptid=2171936" target="_blank">qratosones1337 发表于 2024-12-10 15:06</a>
+
+https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo
+
+就是这个，现在开源了，不过要部署的话需要 ...</blockquote>
+本地部署需要什么硬件条件，慢点无所谓，只要能用，需要什么硬件我可以买<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刘昊霖  
+##### 85#       发表于 2024-12-10 12:14
+
+[https://sora.com/](https://sora.com/)
+
+
+*****
+
+####  电波系腑海林  
+##### 86#       发表于 2024-12-10 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66887595&amp;ptid=2171936" target="_blank">刘昊霖 发表于 2024-12-10 12:14</a>
+
+https://sora.com/</blockquote>
+怎么没了
+
+
+*****
+
+####  拜拜  
+##### 87#       发表于 2024-12-10 13:03
+
+我就一个需求能让我变真人版超人吗，电影版
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  泰坦失足  
+##### 88#       发表于 2024-12-10 13:10
+
+只有200刀的ChatGPT pro可以放开来用，plus给的和没有一样。反正都用AI糊弄了，比如749局的开头和很多大企业海报，何必用你这个Sora呢，免费的友商产品又不是不能用。
+
+最关键的还是VLM到底有没有认知世界和感知世界的能力，比如数字孪生环境下训练机器人？我猜Sora的模型拿来做运动检测和物体检测估计是一把好手。毕竟GPT最开始时候也只会续写文字。
+
+
+*****
+
+####  处男老司机  
+##### 89#       发表于 2024-12-10 13:31
+
+现在才发布黄花菜都凉了，且不说可灵海螺豆包这些已经成熟的商业模型，开源的企鹅混元视频模型完全免费还能NSFW<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寒蝉  
+##### 90#       发表于 2024-12-10 13:44
+
+进度太快了，谁想到也就是年初的sora还惊到一大堆人，年尾时候国产的视频ai已经遍地开花<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tonyunreal  
+##### 91#       发表于 2024-12-10 13:48
+
+已经不只是遍地开花了
+腾讯混元本地部署都能做到直出施法材料的水平了
+
+老外用下半身想了想还是中国的好<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+*****
+
+####  gawain  
+##### 92#       发表于 2024-12-10 13:50
+
+细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  龙骑士尹志平  
+##### 93#       发表于 2024-12-10 14:41
+
+细说混元
+
+
+*****
+
+####  当光停止  
+##### 94#       发表于 2024-12-10 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和朋友交流了下sora的成果。让人忍俊不禁。
+
+
+*****
+
+####  濡鸦之羽_  
+##### 95#       发表于 2024-12-10 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我好像错过了什么科技爆炸，细说混元
+
+*****
+
+####  siebten  
+##### 96#       发表于 2024-12-10 14:58
+
+啊？这个本地部署肯定说的是本地租服务器部署吧？ 
+
+*****
+
+####  x.cat  
+##### 97#       发表于 2024-12-10 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">废话少说，只需要告诉我们什么时候能按照咒语产出簧片
+
+
+*****
+
+####  Izunu_3  
+##### 98#       发表于 2024-12-10 15:02
+
+细说混元<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qratosones1337  
+##### 99#       发表于 2024-12-10 15:06
+
+[https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo](https://www.modelscope.cn/models/AI-ModelScope/HunyuanVideo)
+
+就是这个，现在开源了，不过要部署的话需要比较大的算力和显存，可以去AutoDL上租一个H800或者H20
+
+
