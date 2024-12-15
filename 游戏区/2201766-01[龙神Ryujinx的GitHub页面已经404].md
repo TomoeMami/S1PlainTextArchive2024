@@ -2669,3 +2669,40 @@ sw更是正版买来就进游戏建个档就关机了，现在除了Splatoon这�
 按照“我买的游戏是我自己的财产我有权处置”逻辑你模拟器里的ROM得是你自己从自己买的卡带/光盘里dump出 ...</blockquote>
 还有，要结合各地法律，我人在新西兰，新西兰这只有传播未经授权拷贝才算是非法。下载，制作，使用拷贝都是合法的。
 
+*****
+
+####  再买自检星剁手  
+##### 235#       发表于 2024-12-12 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66370515&amp;ptid=2201766" target="_blank">血狂毘沙门 发表于 2024-10-4 00:17</a>
+自己卖自己生产的东西
+
+这种行为叫垄断吗</blockquote>
+英伟达被中美欧同时反垄断调查，黄仁勋真是冤死了
+
+
+*****
+
+####  罐子  
+##### 236#       发表于 2024-12-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66377469&amp;ptid=2201766" target="_blank">慕容断月 发表于 2024-10-5 02:46</a>
+
+除非配置不够，否则着色器编译后再去编译的地方一般都不可能卡，这是技术上就不可能的事情（重装了显卡驱 ...</blockquote>
+搭车求个XBDE的高清60帧mod补丁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  血狂毘沙门  
+##### 237#       发表于 2024-12-12 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66904682&amp;ptid=2201766" target="_blank">再买自检星剁手 发表于 2024-12-12 13:31</a>
+
+英伟达被中美欧同时反垄断调查，黄仁勋真是冤死了</blockquote>
+游戏主机市场份额索尼比任天堂大
+
+建议先抵制索尼
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
