@@ -13463,3 +13463,54 @@ r/dragonage 评价大崩溃了，遗老们非常失望，可以去看乐子
 今天继续捏脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+*****
+
+####  刘昊霖  
+##### 1244#       发表于 2024-12-12 07:23
+
+省流：-35%
+
+
+*****
+
+####  風卷豹  
+##### 1245#       发表于 2024-12-12 08:26
+
+好惨，甚至没挺到下周冬促，这也太不体面了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  震荡波  
+##### 1246#       发表于 2024-12-12 08:27
+
+所以官宣100W了没有啊。
+
+
+*****
+
+####  刻路希  
+##### 1247#       发表于 2024-12-12 09:17
+
+买早了，EA和育碧的游戏真的是又不保值又无节操，说好的早买早享受呢？按照这个折扣力度，很快就像圣歌那样二十多块就能入手了
+
+
+*****
+
+####  sety  
+##### 1248#       发表于 2024-12-12 10:16
+
+所以现在有MOD了吗？
+
+把一脸雀斑的方脸矮人大妈和黑人女法师模型都替换掉
+
+
+*****
+
+####  ralfli  
+##### 1249#       发表于 2024-12-12 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66902343&amp;ptid=2072996" target="_blank">刻路希 发表于 2024-12-12 09:17</a>
+
+买早了，EA和育碧的游戏真的是又不保值又无节操，说好的早买早享受呢？按照这个折扣力度，很快就像圣歌那样 ...</blockquote>
+按照这个力度马上就EAplay了
+
