@@ -1967,3 +1967,14 @@ beta版也能玩dlc，爽到
 
 唯一不满的就是配音质量还是难蚌，他们不会还在用discord录音吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  君往何处  
+##### 189#       发表于 2024-12-15 23:02
+
+DLC确实不错，各方面比本篇都要好，感觉已经赶上皇牌空战了。特别是任务节奏方面，本篇就一个量大管饱，打的我感觉自己就是个扳机工具人，DLC就不至于那么冗长，而且语音的内容也明显多了。
+
+第四关那个隧道官画面有点难受，我把gamma调最大才能看清隧道的墙壁在哪。通关之后还专门开双座机又来了一次，副驾的语音果然有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可惜就是VR模式这次彻底击败我的显卡了，本来第一关调低了还能顺畅一点，结果地面电磁炮一发射就掉帧到不行，正常打的时候各种高设置都没啥问题，怀疑还是显存不够
+
