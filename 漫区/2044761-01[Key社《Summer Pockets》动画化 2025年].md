@@ -818,3 +818,52 @@ feel下资源只能到这水平吗<img src="https://static.saraba1st.com/image/s
 
 集数谜语，看staff的表现肯定是超过24集的，网传26集应该靠谱，监督表示这集数也只是勉强讲完故事
 
+*****
+
+####  千恋万花  
+##### 69#       发表于 2024-12-20 12:41
+
+<blockquote>【Summer Pockets 最新情報①】
+
+アニメ"Summer Pockets"
+
+2025年4月から放送開始決定！</blockquote>
+<img src="https://files.catbox.moe/iz5czi.jpg" referrerpolicy="no-referrer"> <blockquote>【Summer Pockets 最新情報②】
+
+アニメ"Summer Pockets"
+
+2025年4月の放送に先駆けて
+
+ノンクレジットオープニング映像を先行公開！
+[https://youtu.be/REuUOArc0W4](https://youtu.be/REuUOArc0W4)</blockquote>
+
+
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2024-12-20 12:47
+
+OP：[https://youtu.be/REuUOArc0W4](https://youtu.be/REuUOArc0W4)
+
+2025年4月
+
+
+*****
+
+####  二阶堂真琉  
+##### 71#       发表于 2024-12-20 15:02
+
+OP还可以诶
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.92
+
+
+*****
+
+####  Kusabi  
+##### 72#       发表于 2024-12-20 17:53
+
+大制作哦，这就是腾讯的力量？
+
+话说白羽明明是表女主，还原度是最低的，眼神不够凶。
+
