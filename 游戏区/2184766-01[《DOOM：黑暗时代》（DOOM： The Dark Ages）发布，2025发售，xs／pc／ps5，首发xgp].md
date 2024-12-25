@@ -1658,3 +1658,18 @@ DOOM: The Dark Ag ...</blockquote>
 
 索尼新放出了张截图，没啥新信息，不过这钉枪上的符文，我初看之下还以为是汉字
 
+*****
+
+####  JOJO42  
+##### 162#       发表于 2024-12-22 16:26
+
+<img src="https://img.saraba1st.com/forum/202412/22/162536imy525lle08nf8mq.jpg" referrerpolicy="no-referrer">
+
+<strong>GXJORTlbEAQFN9s.jpg</strong> (481.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-12-22 16:25 上传
+
+推上之前流出的颅骨粉碎者侧视图，另外有说法是本作25年5月发售
+
