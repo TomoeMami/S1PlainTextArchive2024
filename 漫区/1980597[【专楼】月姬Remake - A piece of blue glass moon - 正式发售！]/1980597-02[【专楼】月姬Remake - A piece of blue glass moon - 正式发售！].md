@@ -472,3 +472,10 @@ switch版为啥学姐线无法截图，公主线可以正常截
 —— 来自 S1Fun</blockquote>
 因为公主线官方允许直播和放网上了，学姐线没解禁
 
+*****
+
+####  兰开夏  
+##### 1634#       发表于 2024-12-24 00:16
+
+公主生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
