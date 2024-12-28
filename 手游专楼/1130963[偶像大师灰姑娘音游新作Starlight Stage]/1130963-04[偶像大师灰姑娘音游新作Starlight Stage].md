@@ -594,3 +594,654 @@ EXPO那邊也會有デレステ十週年專題出展。
 
 2024-11-26 20:01 上传
 
+*****
+
+####  两个路人  
+##### 5458#       发表于 2023-12-24 12:27
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  areklose  
+##### 5459#       发表于 2023-12-30 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是要关服得节奏吗
+
+*****
+
+####  OBW  
+##### 5460#       发表于 2023-12-30 15:33
+
+你看和我几个月就留言过的，看到要25年关服差不多吧。
+
+*****
+
+####  kobushi  
+##### 5461#       发表于 2023-12-30 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">早点关服也好，反正活下去也只会被万南恶心，早点解脱了
+
+*****
+
+####  Fuero  
+##### 5462#         楼主| 发表于 2023-12-30 19:39
+
+时光荏苒<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  八宫めぐる  
+##### 5463#       发表于 2023-12-31 10:06
+
+阴谋论一下，南宫梦老东西已经清理的差不多了，南宫梦遗留的爱马仕也到了该死的日子了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怪叔叔木易  
+##### 5464#       发表于 2023-12-31 10:38
+
+唉，也算是苟了挺久了，感觉真要停运了
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  两个路人  
+##### 5465#       发表于 2024-1-1 19:45
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  super_uni  
+##### 5466#       发表于 2024-1-1 20:49
+
+乐观点兴许有新的续作呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  unsh  
+##### 5467#       发表于 2024-1-15 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">有all位挂伊芙的潭友吗，想蹭个刷道具
+
+*****
+
+####  琴酒  
+##### 5468#       发表于 2024-1-20 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63650088&amp;ptid=1130963" target="_blank">unsh 发表于 2024-1-15 00:56</a>
+
+有all位挂伊芙的潭友吗，想蹭个刷道具</blockquote>
+还需要的话可以加我
+
+893037532
+
+*****
+
+####  unsh  
+##### 5469#       发表于 2024-1-22 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63716171&amp;ptid=1130963" target="_blank">琴酒 发表于 2024-1-20 21:55</a>
+
+还需要的话可以加我
+
+893037532</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">已申请
+
+*****
+
+####  两个路人  
+##### 5470#       发表于 2024-1-30 15:47
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  两个路人  
+##### 5471#       发表于 2024-2-16 12:15
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  kobushi  
+##### 5472#       发表于 2024-2-20 20:20
+
+又双叒是V <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真给手游奴隶减负，在担当出新卡之前不用上游戏了
+
+*****
+
+####  kria  
+##### 5473#       发表于 2024-2-20 20:32
+
+炎上不可避, 杏仁豆腐什都不知道
+
+*****
+
+####  kobushi  
+##### 5474#       发表于 2024-2-20 20:41
+
+只请管人工商就罢了，还钻进游戏里占卡池资源，还在缩小规模后这样来，不是很清楚这样做除了玩家炎上和V豚无关心外带来的正面效应是什么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 5475#       发表于 2024-2-20 20:48
+
+我为什么要在游戏里produce一个实际存在的人物？😅
+
+*****
+
+####  吃咸菜的  
+##### 5476#       发表于 2024-2-20 20:51
+
+要是流水够多万南也用不着请杏奴过来爆米
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kobushi  
+##### 5477#       发表于 2024-2-20 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那管人吃只爆一次米不够，该死的夕阳游戏还是会暴毙的，不如名字正式改成Starlight holo stage，把负资产190个人删了吧
+
+*****
+
+####  gammatau  
+##### 5478#       发表于 2024-2-20 23:05
+
+是不是可以视为承认管人企划玩砸了，要找真管人了
+
+*****
+
+####  月球列车  
+##### 5479#       发表于 2024-2-20 23:26
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  oyss  
+##### 5480#       发表于 2024-3-9 23:32
+
+<img src="https://img.saraba1st.com/forum/202403/09/232540j3ow13hys1ljwlol.jpg" referrerpolicy="no-referrer">
+
+10周年卯月到了.
+[https://bbs.saraba1st.com/2b/thread-2174862-1-1.html](https://bbs.saraba1st.com/2b/thread-2174862-1-1.html)
+
+
+*****
+
+####  两个路人  
+##### 5481#       发表于 2024-3-13 00:31
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  kobushi  
+##### 5482#       发表于 2024-3-22 19:58
+
+可能是关服前最后一轮SSR就消耗在管人阿姨联动上了，删游886<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kobushi  
+##### 5483#       发表于 2024-3-22 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">tmd不是自己有原创曲吗，开卡拉OK大会啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kobushi  
+##### 5484#       发表于 2024-3-22 20:06
+
+这么喜欢管人阿姨就自己去私联，去约炮，去结婚，为什么蛐蛐纸片人要遭受这等酷刑<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两个路人  
+##### 5485#       发表于 2024-3-22 21:07
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  kobushi  
+##### 5486#       发表于 2024-3-23 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游蜓  
+##### 5487#       发表于 2024-3-23 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62524330&amp;ptid=1130963" target="_blank">琴酒 发表于 2023-9-25 15:51</a>
+
+大意：
+
+CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
+
+虽然推出了第八轮ssr和（强度）膨胀的要素 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩偶像音游的真有多少强度党吗
+
+*****
+
+####  渡鸦骑士  
+##### 5488#       发表于 2024-3-25 15:20
+
+ 本帖最后由 渡鸦骑士 于 2024-3-25 15:21 编辑 
+
+啊这，这游戏的系统UI都挺老了。真论下来，和热度还在的时候入坑的玩家比到底谁是阿姨啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过有一说一，cy里面真的有管人粉吧，这联动方方面面都做全了，我都被吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kobushi  
+##### 5489#       发表于 2024-3-28 20:18
+
+V豚入坑干嘛，不给亲亲管人打钱给万南打钱来吗？小剧场漫画也亡了，今年关服还是明年关啊
+
+*****
+
+####  琴酒  
+##### 5490#       发表于 2024-4-22 14:29
+
+这新活动太页游了 让我想到了mobage cg
+
+*****
+
+####  二月十日  
+##### 5491#       发表于 2024-4-22 18:10
+
+这就是页游的アイプロ啊，太怀念了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+连通信限制和ちヒール都完全复刻
+
+<img src="https://img.saraba1st.com/forum/202404/22/181014fta9u5nafpa35xd9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240422_180109.jpg</strong> (79.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/181014bvxjx6vfg33duuj9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240422_180312.jpg</strong> (336.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/181015u7kgrk9tlgkhgzeo.jpg" referrerpolicy="no-referrer">
+
+<strong>20240422_180315.jpg</strong> (324.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 18:10 上传
+
+*****
+
+####  琴酒  
+##### 5492#       发表于 2024-5-8 17:33
+
+看看数据库网站的小道消息说2024Q4关服
+
+*****
+
+####  SchwarzX  
+##### 5493#       发表于 2024-5-8 18:30
+
+都还没过10年大寿呢，这不就比ll那个还短命？
+
+*****
+
+####  游蜓  
+##### 5494#       发表于 2024-5-8 19:07
+
+万代犯病能有啥办法
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wfhtony  
+##### 5495#       发表于 2024-5-8 19:24
+
+ 本帖最后由 wfhtony 于 2024-5-8 19:31 编辑 
+
+看6月的两场livehouse结束之后会公布些啥吧...
+当时那张PPT，除了预计本财年Q4关服之外，还有「万南准备（从Cy手上）回收版权」「（本财年夏季开始）万南自己的制作组准备开始制作CG的新手游（MLTD的制作组也会参与）」等消息。
+
+—— 來自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  flynnei  
+##### 5496#       发表于 2024-9-2 23:05
+
+9周年了
+
+*****
+
+####  darkangel0224  
+##### 5497#       发表于 2024-9-3 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66094669&amp;ptid=1130963" target="_blank">flynnei 发表于 2024-9-2 23:05</a>
+
+9周年了</blockquote>
+都在肝学马仕呢 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 5498#       发表于 2024-9-3 06:52
+
+一下子那么多超得 是打算死前赚一笔吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkangel0224  
+##### 5499#       发表于 2024-9-3 11:37
+
+<blockquote>琴酒 发表于 2024-9-3 06:52
+一下子那么多超得 是打算死前赚一笔吗</blockquote>
+看起来是这样的呢
+
+<img src="https://img.saraba1st.com/forum/202409/03/113754cbjjkd6mdmomddrm.jpg" referrerpolicy="no-referrer">
+
+<strong>295d2594a36b9086.jpg</strong> (222.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 11:37 上传
+
+*****
+
+####  flynnei  
+##### 5500#       发表于 2024-9-14 19:30
+
+游戏9周年live没伴舞没花车没彩带，灰姑娘的魔法要结束了吗
+
+*****
+
+####  flynnei  
+##### 5501#       发表于 2024-9-15 23:44
+
+10周年巡演公布，还能多活一年~
+
+*****
+
+####  darkangel0224  
+##### 5502#       发表于 2024-9-16 22:32
+
+这万代做游戏果然不行啊，挂机运营的队伍，第二天接着收菜就记不住配置，还得重新选人
+
+更新出bug是为了刷KPI吗？没活可以咬打火机啊
+
+*****
+
+####  darkangel0224  
+##### 5503#       发表于 2024-9-20 22:21
+
+这兰子好难出啊。大号近200多抽不出，开小号30抽出了，淦
+
+*****
+
+####  华蝶风雪  
+##### 5504#       发表于 2024-9-21 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66223138&amp;ptid=1130963" target="_blank">darkangel0224 发表于 2024-9-16 22:32</a>
+
+这万代做游戏果然不行啊，挂机运营的队伍，第二天接着收菜就记不住配置，还得重新选人
+
+更新出bug是为了刷K ...</blockquote>
+原来的运营项是很多天的换一轮，现在全改成一天，我觉得是故意的
+
+*****
+
+####  a1370303  
+##### 5505#       发表于 2024-9-21 12:02
+
+营业这个改版属实是没活硬整，可能是为了凑周年的更新吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  klushyo  
+##### 5506#       发表于 2024-9-21 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66260645&amp;ptid=1130963" target="_blank">darkangel0224 发表于 2024-9-20 22:21</a>
+这兰子好难出啊。大号近200多抽不出，开小号30抽出了，淦</blockquote>
+吐血，290出了…再井个芙芙芙吧…
+
+*****
+
+####  wfhtony  
+##### 5507#       发表于 2024-11-26 19:57
+
+ 本帖最后由 wfhtony 于 2024-11-26 21:31 编辑 
+
+<img src="https://img.saraba1st.com/forum/202411/26/195636o970jr9sed3s5ar0.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h31m01s636.png</strong> (2.34 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:56 上传
+
+CGSS十週年紀念LOGO和KV（十週年企劃PV：[【デレステ】ST＠iRs to 10th Anniversary PV](https://www.youtube.com/watch?v=Zku0ENQDzE0)）：
+
+<img src="https://img.saraba1st.com/forum/202411/26/195637lzwalhh6gzajaaga.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h49m51s856.png</strong> (256.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/195641vhgl3o4tvhsjt163.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h51m39s939.png</strong> (3.27 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/195639umsdm0kkxdmlxk4k.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h50m31s996.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/195724t29fvoop20a70m6p.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h52m52s096.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+紀念專頁將於今晚9點(UTC+8)開放。
+
+<img src="https://img.saraba1st.com/forum/202411/26/195725zlcnrouunjcuuszr.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h53m25s048.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/195726h0cugfu6b43gulul.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h53m26s405.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/195727gntg1w8gqozfwfrs.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h53m39s336.png</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+官方**頻道的全天MV直播活動也將開始。
+
+<img src="https://img.saraba1st.com/forum/202411/26/195728gambquf8kmrn4nmq.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h53m53s091.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+名臺詞募集活動也將開始。
+
+<img src="https://img.saraba1st.com/forum/202411/26/195743munjbji0qz1jqqpj.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h55m20s159.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+EXPO那邊也會有デレステ十週年專題出展。
+
+穀子相關（不一定和十週年強關聯）：
+
+<img src="https://img.saraba1st.com/forum/202411/26/195755ofjzyynn99lorou5.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-19h56m21s350.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/200152bowfde9obccxddux.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h01m02s108.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/204748t0mjm1k4ncoqmo0r.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h42m34s548.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/204749zfmwzc3w32avuuz1.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h42m53s716.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:47 上传
+
+↑依然是這邊最早實裝週年曲啊...
+
+<img src="https://img.saraba1st.com/forum/202411/26/204750h2e922uxzz2t6u4m.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h43m24s305.png</strong> (1.58 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202411/26/204751jye1q1de5q6zb3qz.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h43m46s251.png</strong> (2.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:47 上传
+
+↑下個月的活動曲《We wish your smile》毫不意外的是聖誕曲。
+
+<img src="https://img.saraba1st.com/forum/202411/26/204752c2s668872u75ov62.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h44m02s563.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:47 上传
+
+頁遊相關：
+
+<img src="https://img.saraba1st.com/forum/202411/26/204754brh02h4m22rhe8o6.png" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-11-26-20h44m47s498.png</strong> (2.39 MB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 20:47 上传
+
+設定集（磚頭）將於今晚開始預約。
+
+→ [https://stairs-to-10th.idolmaster-official.jp/](https://stairs-to-10th.idolmaster-official.jp/)
+
+十週年活動的LOGO：
+
+<img src="https://img.saraba1st.com/forum/202411/26/213059mv1kccv14qxx1kfk.png" referrerpolicy="no-referrer">
+
+<strong>logo_to10th.png</strong> (56.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 21:30 上传
+
+KV大圖：
+
+<img src="https://img.saraba1st.com/forum/202411/26/213100w4bywa8rhb1wxhdb.png" referrerpolicy="no-referrer">
+
+<strong>mv_pc.png</strong> (733.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 21:31 上传
+
+組合：
+
+<img src="https://img.saraba1st.com/forum/202411/26/213059rzl1370tbtuqzd1a.png" referrerpolicy="no-referrer">
+
+<strong>img_project_2.png</strong> (282.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-11-26 21:30 上传
+
+======
+[Special 24/7 Stage ゲストパス](https://stairs-to-10th.idolmaster-official.jp/stream/)(共190張)：[OneDrive](https://clr2.wfhtony.space/s/417TE)
+
+*****
+
+####  darkangel0224  
+##### 5508#       发表于 2024-12-25 21:06
+
+圣诞节🎄🍪
+
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a35f058.jpg" referrerpolicy="no-referrer">
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a37c2d0.jpg" referrerpolicy="no-referrer">
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a428d53.jpg" referrerpolicy="no-referrer">
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a492008.jpg" referrerpolicy="no-referrer">
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a494c57.jpg" referrerpolicy="no-referrer">
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a539bff.jpg" referrerpolicy="no-referrer">
+<img src="https://i.wpic.cc/g/2024/12/25/676c02a5a7a0f.jpg" referrerpolicy="no-referrer">
+
