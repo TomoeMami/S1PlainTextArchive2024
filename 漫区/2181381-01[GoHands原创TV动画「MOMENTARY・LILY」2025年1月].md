@@ -468,3 +468,10 @@ PV2：[https://youtu.be/LJkengk1IP0](https://youtu.be/LJkengk1IP0)
 
 不知道为什么，看这片就有一种莫名的感动，感觉 gohands 把我梦寐以求的悦动的美少女给做出来了，京骚戏画+蜘蛛侠+莉克莉丝，就是上色头发和背景渲染不太行。
 
+*****
+
+####  Piano-Forest  
+##### 49#         楼主| 发表于 2024-12-25 13:21
+
+<img src="https://p.sda1.dev/20/00fbbd48019da837aa40bf07853e4c33/20241225_131930.jpg" referrerpolicy="no-referrer">
+
