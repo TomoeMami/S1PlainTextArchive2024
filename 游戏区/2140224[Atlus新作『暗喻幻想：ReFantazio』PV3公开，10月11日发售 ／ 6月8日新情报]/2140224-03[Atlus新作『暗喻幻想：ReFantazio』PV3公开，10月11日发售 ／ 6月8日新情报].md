@@ -7614,3 +7614,45 @@ se的音乐团队一直是一流的，更何况ff7重制还有一部分植松伸
 
 2024-12-20 23:56 上传
 
+*****
+
+####  Piano-Forest  
+##### 3642#         楼主| 发表于 2024-12-25 13:10
+
+💫ガリカからみなさんに メリークリスマス！
+
+✨Happy Holidays 2024✨
+<img src="https://p.sda1.dev/20/0d6acb7cedb7842b91b350c778512397/20241225_130529.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 3643#         楼主| 发表于 2024-12-25 15:04
+
+橋野桂
+
+・今後新作を作るとき舞台設定は戦国時代ベストと思ったらBASARAのような世界のJRPGになるかも（笑）
+
+・メタファーシリーズ化の具体的なプランは何も・・・
+
+・でもシリーズ化できたらいいなという思いはある
+
+・メガテン、ペルソナに続く第3のJRPGを生み出そうとしてスタートした企画なので弊社を代表する看板タイトルになるよう育てていきたい
+
+
+*****
+
+####  alucardcz  
+##### 3644#       发表于 2024-12-25 17:06
+
+代表个毛呢。。。全是p系列的影子 除了战斗系统外其他全是p5的劣化。。。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suzakushi  
+##### 3645#       发表于 2024-12-25 17:17
+
+画图画这么勤，就是没有200w贺图，看来是真没卖到吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
