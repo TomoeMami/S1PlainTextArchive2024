@@ -1029,3 +1029,11 @@ as归来的游戏好像还是全团一个世界的世界观，重写了吗。。
 
 <img src="https://p.sda1.dev/20/2344b532ebdb408d6f43b81615f434d1/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 7562#       发表于 2024-12-25 20:11
+
+[https://x.com/kei_watan/status/1871610422497055032](https://x.com/kei_watan/status/1871610422497055032)
+<img src="https://p.sda1.dev/21/7c88bf758ac28fb76f32bb0965972318/SaveTwitter.Net_GflLqi4aAAAQ7Kz__gif_.gif" referrerpolicy="no-referrer">
+
