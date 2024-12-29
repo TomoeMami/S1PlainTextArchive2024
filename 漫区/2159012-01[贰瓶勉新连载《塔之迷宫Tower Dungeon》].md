@@ -1664,3 +1664,37 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 比如死灵术士的遗族顶着种族灭绝伪装生活已经很难了还有个同族挑了国王公主召唤龙之塔搞大事所以赶过来平事<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+*****
+
+####  smdzh2  
+##### 115#       发表于 2024-12-26 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66797681&amp;ptid=2159012" target="_blank">zzf111 发表于 2024-11-29 05:47</a>
+已知龙之塔的死灵术士有智能知能，能力至少有附体夺取国王身体（目前在夺舍龙化公主ing）,靠幼虫驱使尸体 ...</blockquote>
+最新话有正规军士兵一眼认出了女骑士身上穿的铠甲是旧款正规军制式装备，问她是从哪里搞来的，女骑士支支吾吾说了个一眼编的理由，看来身体夺舍说的真实性又增加了
+
+老鼠妹把女骑士屁股的管子当成了男人那根东西所以误以为她是男人，女骑士疯狂汗颜中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzf111  
+##### 116#       发表于 2024-12-26 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67018663&amp;ptid=2159012" target="_blank">smdzh2 发表于 2024-12-26 01:09</a>
+
+最新话有正规军士兵一眼认出了女骑士身上穿的铠甲是旧款正规军制式装备，问她是从哪里搞来的，女骑士支支 ...</blockquote>
+这话看着女骑士是还活着的死灵术士受害者可能性也挺大的感觉
+
+
+*****
+
+####  鱼雷鲨  
+##### 117#       发表于 2024-12-26 14:08
+
+<blockquote>smdzh2 发表于 2024-10-27 14:12
+这话信息量很足，多年以来王族一直在隐瞒龙化人戴冠后能召唤龙之塔的事实，现在真相被卡拉修知道了
+
+</blockquote>
+那塔估计是个播种船或者恒差庙
+
